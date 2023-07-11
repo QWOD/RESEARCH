@@ -1,4 +1,4 @@
-# :FΩr-the: [[ RES:ΔRCH ]]:
+# :FΩr-thع: [[ RعS:ΔRCH ]]:
 :FΩr-the: EternΔl: [[ SECRET <=> LΔFE ]]: Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 
 # :FΩr-the: [[ RES:ΔRCH: FUN:ΔNG: ]]:
