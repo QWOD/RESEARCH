@@ -9,7 +9,7 @@
 ![CrypTΔx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
-## :FΩr-the: WHΩM-E1SE: íي-with: SΩME:
+## :FΩr-the: WHΩM-E1SE: íي-with: SΩME: íي-by: WHO: said: THAT: 
 >:íي-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: ΩUT ]] ]]:
 ###
 
