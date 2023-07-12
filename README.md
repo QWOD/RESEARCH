@@ -1,5 +1,5 @@
 # :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL: ]]:= [[ SECRET: <=> LΔFE: ]]:= CΔPTURE:
-![Rعي:ΔRCㅐ]()
+![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 >:Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 
 :FΩr-thع: [[ CrypTΔx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= [[ NΩTΔCE: íي-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
