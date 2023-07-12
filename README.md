@@ -3,7 +3,8 @@
 >:Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 
 ### :FΩr-thع: [[ CrypTΔx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= [[ NΩTΔCE: íي-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
-# :FΩr-the: WHΩM-E1SE: íي-with: SΩME:
+
+### :FΩr-the: WHΩM-E1SE: íي-with: SΩME:
 >:íي-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: ΩUT ]] ]]:
 
 
