@@ -1,5 +1,6 @@
-https://github.com/QWOD/RESEARCH/blob/main/Screenshot%20from%202023-07-11%2019-27-35.png
-# :FΩr-thع: [[ Rعي:ΔRCㅐ ]]:
+![Rعي:ΔRCㅐ](https://github.com/QWOD/RESEARCH/blob/main/Screenshot%20from%202023-07-11%2019-27-35.png
+#))
+:FΩr-thع: [[ Rعي:ΔRCㅐ ]]:
 :FΩr-the: EternΔl: [[ SECRET <=> LΔFE ]]: Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 
 :FΩr-thع: [[ CrypTΔx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ]]:= [[ NΩTΔCE: íي-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
