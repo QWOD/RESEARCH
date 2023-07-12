@@ -1,4 +1,4 @@
-## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL: ]]:= [[ SECRET: <=> LΔFE: ]]:= CΔPTURE:
+## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRET: <=> LΔFE: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 >:Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 ###
