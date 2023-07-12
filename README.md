@@ -8,7 +8,7 @@
 >:íي-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: ΩUT ]] ]]:
 
 
-## :FΩr-thع: [[ Rعي:ΔRCㅐ: FעִN:ΔNG: ]]:
+### :FΩr-thع: [[ Rعي:ΔRCㅐ: FעִN:ΔNG: ]]:
     :FΩr-the: Tether: ERC20: [[ 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: Is-by: { ^crypto: Δ: cΩm: app: rh5gbrhfew^ }:
 ![ETERNΔL: SECRET:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 #
