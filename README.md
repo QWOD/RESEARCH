@@ -1,4 +1,4 @@
-# :FΩr-thع: [[ Rعي:ΔRCㅐ ]]: :FΩr-the: EternΔl: [[ SECRET <=> LΔFE ]]:
+# :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL: ]]: [[ SECRET: <=> LΔFE: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/RESEARCH/main/Screenshot%20from%202023-07-11%2019-27-35.png)
 >:Is-by: [[ TRUE | FΔLSE ]]: Is-by: [[ _ ]]: FΩr-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 
