@@ -4,9 +4,9 @@
 ###
 
 ###
-## :FΩr-thع: [[ CrypTΔx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= [[ NΩTΔCE: íي-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
+## :FΩr-thع: [[ Cryp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= [[ NΩTΔCE: íي-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
 ###
-![CrypTΔx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
+![Cryp☥Δx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
 ## :FΩr-the: WHΩM-E1SE: íي-with: SΩME: íي-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
