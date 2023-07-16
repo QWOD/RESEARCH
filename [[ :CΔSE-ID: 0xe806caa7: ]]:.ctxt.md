@@ -12,7 +12,13 @@
 
 #
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
+### :FΩr-th3: ΩPعΔ [[ :A Mark of Death Placed On Your Head That You Weren't Aware Of, Obedience Saved Someone & You: ]]:
+###     :íي-with: { ^ https://youtu.be/Fl3UBvJI8Ok ^ }:
+### :FΩr-th3: [[ :try Listen 15 Minutes miracles will begin to happen for you LUCKY ALWAYS and IN EVERYTHING! #1: ]]:
+###     :íي-with: { ^ https://youtu.be/_mZpXGNbX48 ^ }:
+
+#
+### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
 ###     :íي-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
 ### :FΩr-th3: [[ :Tesseract: ]]:
 ###     :íي-with: { ^ https://youtu.be/Zf1OlzBvtAo ^ }:
