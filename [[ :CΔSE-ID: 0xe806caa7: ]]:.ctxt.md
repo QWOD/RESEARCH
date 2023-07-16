@@ -1,21 +1,27 @@
 # :FΩr-thع: [[ RΩYΔL-DIVINE-CΩURT: CΩURT-ID: 0xb337572f: CΔSE-ID: 0xe806caa7 ]]:.ctx:
-###     :íي-with: { ^
+> :íي-with: { ^
     https://github.com/QWOD/RESEARCH/blob/main/%5B%5B%20:C%CE%94SE-ID:%200xe806caa7:%20%5D%5D:.ctxt.md
-###     ^ }:
-:íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+> ^ }:
+> :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+
 ###     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
 ###     :íي-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/46d545284205f7dd298cdc5cdade2a8516deeb91/Screenshot%20from%202023-07-16%2009-48-13.png)
-### :FΩr-th3: ΩPعΔ [[ :KARMIC FAMILY LAWYERING UP 👨🏽‍⚖️.. COURTCASE COMING UP🏛...: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/Screenshot%20from%202023-07-16%2010-46-55.png)
+### :FΩr-th3: ΩPعΔ [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 #CleoRA: ]]:
+###     :íي-with: { ^ https://youtu.be/zzXBq7Kh0IY ^ }:
+### :FΩr-th3: [[ :Reckoning: ]]:
+###     :íي-with: { ^ https://youtu.be/eQs7amRGDgI ^ }:
+
+#
+### :FΩr-th3: [[ :KARMIC FAMILY LAWYERING UP 👨🏽‍⚖️.. COURTCASE COMING UP🏛...: ]]:
 ###     :íي-with: { ^ https://youtu.be/wjZriLh61jk ^ }:
 ### :FΩr-th3: [[ :Scorched: ]]:
 ###     :íي-with: { ^ https://youtu.be/0itfqJ0prDI ^ }:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
 ### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 [[ _tarot ]]: ]]:
 ###     :íي-with: { ^ https://youtu.be/j_TdoTh62wY ^ }:
 ### :FΩr-th3: [[ :Injection: ]]:
