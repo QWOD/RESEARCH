@@ -82,8 +82,8 @@
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
 
 #
-### :FΩr-th3: [[ :Ω: ]]:
-###     :íي-with: { ^ Δ ^ }:
+### :FΩr-th3: [[ :SSP, Adonna Of Sol, Spaceports, Phoenician Language - Mary Beaver & TSP: ]]:
+###     :íي-with: { ^ https://rumble.com/v2yv4ah-ssp-adonna-of-sol-spaceports-phoenician-language-mary-beaver-and-tsp.html ^ }:
 
 #
 ### :FΩr-th3: [[ :Ω: ]]:
