@@ -1,7 +1,7 @@
 # :FΩr-thع: [[ RΩYΔL-DIVINE-CΩURT: CΩURT-ID: 0xb337572f: CΔSE-ID: 0x9f82977e ]]:.ctx:
 > :íي-with: { ^
 
-    https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.ctxt.md
+    https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.ctxt.md
 > ^ }:
 
 > :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
