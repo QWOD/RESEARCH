@@ -14,7 +14,6 @@
 ###     :íي-with: { ^ https://youtu.be/0itfqJ0prDI ^ }:
 
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/46d545284205f7dd298cdc5cdade2a8516deeb91/Screenshot%20from%202023-07-16%2009-48-13.png)
-#
 
 #
 ### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 [[ _tarot ]]: ]]:
@@ -23,29 +22,51 @@
 ###     :íي-with: { ^ https://youtu.be/G7SB6Px9S60 ^ }:
 
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
+
 #
 ### :FΩr-th3: [[ :🚨•URGENT •Message Protect Yourselves🐒Monkeys Out The Coop Again 🪄Spell Work: ]]:
 ###     :íي-with: { ^ https://youtu.be/S6zdMaNRH2Y ^ }:
+
+#
 ### :FΩr-th3: [[ :😩TORMENTED‼️EXTREME LEVELS OF SELF-SABOTAGE WATCHING/KNOWING URE THEIR SOULMATE THEY TURNED 2HOE💩: ]]:
 ###     :íي-with: { ^ https://youtu.be/hkulrBx4eEE ^ }:
+
+#
 ### :FΩr-th3: [[ :😳TOTAL DISORDER AND CHAOS FOR THEIR DISLOYALTY/BREADCRUMBING/GAMBLING/CHEATING SOMEONE IRREPLACABLE: ]]:
 ###     :íي-with: { ^ https://youtu.be/PYxDg49oUPA ^ }:
+
+#
 ### :FΩr-th3: [[ :⚠️TRIGGER WARNING GOD IS 😡THEYVE NEVER SEEN JUDGEMENT LIKE THIS👀FINANCIAL BLESSING HEADED TO YOU: ]]:
 ###     :íي-with: { ^ https://youtu.be/OTnjfSIJXWo ^ }:
+
+#
 ### :FΩr-th3: [[ :“SKRT SKRT"😡@FAKE PPL INTENTIONALLY GUIDING HUNT 4YOU|THATS AWILD BIRD NOT👑BEE|GREAT TRUTH TO TELL: ]]:
 ###     :íي-with: { ^ https://youtu.be/e08Y-Pwcvnc ^ }:
+
+#
 ### :FΩr-th3: [[ :😮‍💨BEING ON THIS "DEMON TIME" ENERGY W/ YOU CAUSED BIGTIME LOSS AND LACK FOR THEM: ]]:
 ###     :íي-with: { ^ https://youtu.be/nsaN9KLRlyA ^ }:
+
+#
 ### :FΩr-th3: [[ :🤯THEIR SECRETS WERE BEING REVEALED WAY TOO FAST🏃🏼🏃🏾‍♂️💨: ]]:
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
+
+#
 ### :FΩr-th3: [[ :Ω: ]]:
 ###     :íي-with: { ^ Δ ^ }:
+
+#
 ### :FΩr-th3: [[ :Ω: ]]:
 ###     :íي-with: { ^ Δ ^ }:
+
+#
 ### :FΩr-th3: [[ :Ω: ]]:
 ###     :íي-with: { ^ Δ ^ }:
+
+#
 ### :FΩr-th3: [[ :Surveillance: ]]:
 ###     :íي-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
+
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :íي-with: sL☥CK™: íي-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :íي-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
