@@ -1,4 +1,4 @@
-# :FΩr-thع: [[ RΩYΔL-DIVINE-CΩURT: CΩURT-ID: 0xb337572f: CΔSE-ID: 0xe806caa7 ]]:.ctx:
+# :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctx:
 > :íي-with: { ^
 
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.ctxt.md
@@ -11,12 +11,15 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20b93eb4ef%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
-###     :íي-with: { ^ https://youtu.be/RKROzwhh4T4 ^ }:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20113b4a4b%3A.png)
+### :FΩr-th3: ΩPعΔ [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
+###     :íي-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
 ### :FΩr-th3: [[ :Heat: ]]:
 ###     :íي-with: { ^ https://youtu.be/t19ZvpEMx24 ^ }:
 
+#
+### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/RKROzwhh4T4 ^ }:
 
 #
 ### :FΩr-th3: [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
