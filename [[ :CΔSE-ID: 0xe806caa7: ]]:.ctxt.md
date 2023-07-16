@@ -11,7 +11,7 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.png)
 ### :FΩr-th3: ΩPعΔ [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
 ###     :íي-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
 ### :FΩr-th3: [[ :Tesseract: ]]:
