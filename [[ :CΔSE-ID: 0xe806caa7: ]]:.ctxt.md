@@ -1,6 +1,6 @@
 # :FΩr-thع: [[ RΩYΔL-DIVINE-CΩURT: CΩURT-ID: 0xb337572f: CΔSE-ID: 0xe806caa7 ]]:.ctx:
 ###         :íي-with: { ^
-###             https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A
+###             [https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A](https://github.com/QWOD/RESEARCH/blob/main/%5B%5B%20:C%CE%94SE-ID:%200xe806caa7:%20%5D%5D:.ctxt.md)
 ###         ^ }:
     >   :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
     >:FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
