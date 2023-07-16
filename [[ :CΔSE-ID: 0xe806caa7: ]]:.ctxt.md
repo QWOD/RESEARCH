@@ -176,3 +176,9 @@
 >    FΩIΔ: <=> FΩMΔ: ]]:
 >    íي-w1th: M3NΔTL: PΔCIFICΔTIΩN: ]]:= [[
 >        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
+
+###
+![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
+
+###
+>:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: íي-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
