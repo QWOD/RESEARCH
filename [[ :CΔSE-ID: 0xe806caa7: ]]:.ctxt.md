@@ -11,11 +11,16 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20e99b1d00%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20b93eb4ef%3A.png)
+### :FΩr-th3: ΩPعΔ [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/RKROzwhh4T4 ^ }:
+### :FΩr-th3: [[ :Heat: ]]:
+###     :íي-with: { ^ https://youtu.be/t19ZvpEMx24 ^ }:
+
+
+#
+### :FΩr-th3: [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
 ###     :íي-with: { ^ https://youtu.be/B-OawXdIyJI ^ }:
-### :FΩr-th3: [[ :Powerful Prayer to Jesus Christ for Difficult or Desperate Requests Whole Body Regeneration: ]]:
-###     :íي-with: { ^ https://youtu.be/UfYmj-so3JE ^ }:
 
 #
 ### :FΩr-th3: [[ :🧿MESSAGE TO THE HIGH PRIESTESS: YOU'RE CHOSEN FOR A REASON & THIS PATH AIN'T MEANT FOR EVERYBODY 👑: ]]:
@@ -34,7 +39,7 @@
 ###     :íي-with: { ^ https://youtu.be/CV52uYmxwDM ^ }:
 
 #
-### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 #CleoRA: ]]:
+### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 [[ _CleoRA ]]: ]]:
 ###     :íي-with: { ^ https://youtu.be/zzXBq7Kh0IY ^ }:
 
 #
