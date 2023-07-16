@@ -12,10 +12,18 @@
 
 #
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :A Mark of Death Placed On Your Head That You Weren't Aware Of, Obedience Saved Someone & You: ]]:
+### :FΩr-th3: ΩPعΔ [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
+###     :íي-with: { ^ https://youtu.be/B-OawXdIyJI ^ }:
+### :FΩr-th3: [[ :Powerful Prayer to Jesus Christ for Difficult or Desperate Requests Whole Body Regeneration: ]]:
+###     :íي-with: { ^ https://youtu.be/UfYmj-so3JE ^ }:
+
+#
+### :FΩr-th3: [[ :🧿MESSAGE TO THE HIGH PRIESTESS: YOU'RE CHOSEN FOR A REASON & THIS PATH AIN'T MEANT FOR EVERYBODY 👑: ]]:
+###     :íي-with: { ^ https://youtu.be/J8glapHL9aI ^ }:
+
+#
+### :FΩr-th3: [[ :A Mark of Death Placed On Your Head That You Weren't Aware Of, Obedience Saved Someone & You: ]]:
 ###     :íي-with: { ^ https://youtu.be/Fl3UBvJI8Ok ^ }:
-### :FΩr-th3: [[ :try Listen 15 Minutes miracles will begin to happen for you LUCKY ALWAYS and IN EVERYTHING! #1: ]]:
-###     :íي-with: { ^ https://youtu.be/_mZpXGNbX48 ^ }:
 
 #
 ### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
