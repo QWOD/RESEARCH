@@ -11,7 +11,7 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.png)
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20e99b1d00%3A.png)
 ### :FΩr-th3: ΩPعΔ [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
 ###     :íي-with: { ^ https://youtu.be/B-OawXdIyJI ^ }:
 ### :FΩr-th3: [[ :Powerful Prayer to Jesus Christ for Difficult or Desperate Requests Whole Body Regeneration: ]]:
