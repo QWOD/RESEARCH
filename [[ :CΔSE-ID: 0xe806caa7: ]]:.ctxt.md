@@ -20,8 +20,6 @@
 #
 ### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
 ###     :íي-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
-### :FΩr-th3: [[ :Tesseract: ]]:
-###     :íي-with: { ^ https://youtu.be/Zf1OlzBvtAo ^ }:
 
 #
 ### :FΩr-th3: [[ :THEY DID NOT WANT YOU TWO TO BE TOGETHER! CUTTING OFF TIES WITH KARMIC FRIENDS & FAMILY [[ _tarot ]]: ]]:
