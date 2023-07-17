@@ -11,12 +11,17 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20d4602879%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20ba689d02.png)
+### :FΩr-th3: ΩPعΔ [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
+###     :íي-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
+### :FΩr-th3: [[ :Spliced: ]]:
+###     :íي-with: { ^ https://youtu.be/HxrKoeYLOd4 ^ }:
+
+#
+### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
 ###     :íي-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/dc667f10-2437-11ee-8369-899ab124ac5b ^ }:
-### :FΩr-th3: [[ :ONLY BEAUTIFUL THINGS AND GOOD PEOPLE WILL ENTER YOUR LIFE • 528 HZ + 432 HZ: ]]:
-###     :íي-with: { ^ https://youtu.be/Qs-Eai5mHDw ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/
+#
 
 #
 ### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
