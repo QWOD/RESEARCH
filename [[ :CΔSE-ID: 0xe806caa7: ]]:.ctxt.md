@@ -17,9 +17,9 @@
 ### :FΩr-th3: [[ :HERO: ]]:
 ###     :íي-with: { ^ https://youtu.be/5AiKobtj7cw ^ }:
 
+#
 ### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
 ###     :íي-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
-#
 
 #
 ### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
@@ -29,7 +29,6 @@
 #
 ### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
 ###     :íي-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
-#
 
 #
 ### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
