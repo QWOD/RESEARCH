@@ -14,6 +14,7 @@
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20bcbf58f6.png)
 ### :FΩr-th3: ΩPعD: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: OPSAN: ]]:
 ###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 ### :FΩr-th3: [[ :Prometheus: ]]:
 ###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
 
