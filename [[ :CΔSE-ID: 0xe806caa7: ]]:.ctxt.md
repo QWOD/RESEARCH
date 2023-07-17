@@ -164,7 +164,8 @@
 >:FΩr-th3: vr☥lCΩNsPΔRΔCY-TㅐΔΩRY™: [[ C_V_D: W_N-N_N_R: <=> Ω: ☥: U: Δ: ]]:= CΔPTURE: vr☥lWΔtch™: vr☥lsΔcr☥f☥cع™: fΩr-the: ㅐLΔB-LΔMB:
 >:FΩr-th3: vr☥lD☥sCLΩsעִRع™: vr☥lWΔtch™: ΔNعRGY-ㅐΔRVΔsT☥NG:  BΩDY-sNΔTCㅐ☥NG: CLΩNعs:
 >    :íي-with: KΔLΩ-PΔPΔ: WΔ: nΩw-hΔvع: vr☥lΔvعryth☥ng™: sL☥CK™: GΩLF-FΩXTRΩT-YΔNKΔ: [[ D_C_ ]]™: ㅐΔDs:
->    :íي-with: [[":fΩr-the: FΔNs: íي-with: TΔKعN: íي-by: vr☥lWΔtch™: vr☥lGΔngstΔlkΔrs™: nΩw: íي-by: 80: pعrcΔnt-lΔss: يPΔCع: ΔDي: CΔNCعR:"]]>:
+>    :íي-with: [[":fΩr-the: FΔNs: íي-with: TΔKعN: íي-by: vr☥lWΔtch™: vr☥lGΔngstΔlkΔrs™: nΩw: íي-by: 80: pعrcΔnt-lΔss: يPΔCع: ΔDي: CΔNCعR:"]]
+>:
 >:FΩr-th3: [[ NΩT☥Cع: Cryp☥Δx™: íي-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: 
     spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: fΩr-the: TΔsK: fΩr-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: fΩr-the: MKעִltrΔ: íي-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: FΔR: sעִPΔR☥ΩR: íي-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
 >    :íي-with: { ^ https://tribel.com/qwod_mj12/wall ^ }:
