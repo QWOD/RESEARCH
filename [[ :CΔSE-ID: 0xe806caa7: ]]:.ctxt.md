@@ -221,8 +221,6 @@
 >:
 >:FΩr-th3: [[ :st0l3n g3n3t1cs: ]]:
 >:
->:FΩr-th3: [[ BΩDY-sNΔTCㅐ☥NG: CLΩNعs ]]:= [[ those-whom: is-with: close-proximity: is-with: working: jobs: is-with: child-care: is-with: high-risk-occupations: is-with: body-j4ck3d: is-by: KΔLO-PΔPΔ: BΩDY-sNΔTCㅐ☥NG: CLΩNعs:
->:
 >:FΩr-th3: [[ K☥NGDΩM: HΔVEN: ]]:= [[ fΩr-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: fΩr-the: SON: is-with: THΔ-MΔ5T-HΔGH: GΩD:: ]]:
 >:
 >:FΩr-th3: [[ K☥NGDΩM: HΔVEN: ]]:= [[ fΩr-the: LΩRD: 5Δ☥TH: wh0-cΔn-be: w0rthy: rece1v1n6: MΔ: GLΩRΔΩU5: KINGD0M: wh3n-n0n3:
@@ -256,7 +254,9 @@
 >    FΩIΔ: <=> FΩMΔ: ]]:
 >    íي-w1th: M3NΔTL: PΔCIFICΔTIΩN: ]]:= [[
 >        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
-
+>:
+>:FΩr-th3: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
+>[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: NΔDLE-EXCHΔNGES: BLΩΩD-DRIVES: ETC: ]]:= [[ HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: ]]:
 ###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 
