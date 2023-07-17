@@ -11,11 +11,15 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20ba689d02.png)
-### :FΩr-th3: ΩPعΔ [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20bb42ef14.png)
+### :FΩr-th3: ΩPعΔ [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
+###     :íي-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
+### :FΩr-th3: [[ :HERO: ]]:
+###     :íي-with: { ^ https://youtu.be/5AiKobtj7cw ^ }:
+
+### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
 ###     :íي-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
-### :FΩr-th3: [[ :Spliced: ]]:
-###     :íي-with: { ^ https://youtu.be/HxrKoeYLOd4 ^ }:
+#
 
 #
 ### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
@@ -25,6 +29,7 @@
 #
 ### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
 ###     :íي-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
+#
 
 #
 ### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
