@@ -11,16 +11,20 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2056d2955d.png)
-### :FΩr-th3: ΩPعΔ [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%205e2f9899.png)
+### :FΩr-th3: [[ :You Validated Someone's Pain & Threw A Rope When They Were At Their Worst, A Modern Day Witch Hunt: ]]:
+###     :íي-with: { ^ https://youtu.be/D7nnrZNHc2k ^ }:
+### :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
+###     :íي-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
+
+#
+### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 ![CΔSE-ID: 0xe806caa7: FIG: 202ee71d](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
-### :FΩr-th3: [[ :TRY TO LISTEN FOR 15 SECONDS AND YOU WILL FEEL THE POWER OF ALL MIRACLES #: 1: ]]:
-###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 
+#
 ### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
 ###     :íي-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
-#
 
 #
 ### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
