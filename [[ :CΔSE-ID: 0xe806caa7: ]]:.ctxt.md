@@ -20,23 +20,11 @@
 ![CΔSE-ID: 0xe806caa7: FIG: dfd780cb](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
 ###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
-# [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }:
+### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20029015b4.png)
 ### :FΩr-th3: ΩPعD: [[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
 ###     :íي-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
-#
-### :FΩr-th3: [[ :Oculus: ]]:
-###     :íي-with: { ^ https://youtu.be/mCdc2lOejJk ^ }:
-#
-![CΔSE-ID: 0xe806caa7: FIG: b19e085b](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20b19e085b.png)
-### :FΩr-th3: [[ :Confusion: ]]:
-###     :íي-with: { ^ https://youtu.be/DnFDMRphYi0 ^ }:
-
-#
-# :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
-###     :íي-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 
 #
 ### :FΩr-th3: [[ :You Validated Someone's Pain & Threw A Rope When They Were At Their Worst, A Modern Day Witch Hunt: ]]:
@@ -143,6 +131,10 @@
 #
 ### :FΩr-th3: [[ :Surveillance: ]]:
 ###     :íي-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
+
+#
+# :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
+###     :íي-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :íي-with: sL☥CK™: íي-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
