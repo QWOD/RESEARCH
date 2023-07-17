@@ -11,6 +11,18 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20b0296978.png)
+### :FΩr-th3: ΩPعD: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
+###     :íي-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
+### :FΩr-th3: [[ :Oculus: ]]:
+###     :íي-with: { ^ https://youtu.be/mCdc2lOejJk ^ }:
+#
+![CΔSE-ID: 0xe806caa7: FIG: dfd780cb](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
+### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
+###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
+# [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }:
+
+#
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20029015b4.png)
 ### :FΩr-th3: ΩPعD: [[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
 ###     :íي-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
