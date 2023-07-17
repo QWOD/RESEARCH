@@ -22,7 +22,7 @@
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
 ###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
-# ]]:
+# ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
 ### :FΩr-th3: ΩPعD: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
 ###     :íي-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
