@@ -11,11 +11,15 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20bb42ef14.png)
-### :FΩr-th3: ΩPعΔ [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2056d2955d.png)
+### :FΩr-th3: ΩPعΔ [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
+###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
+### :FΩr-th3: [[ :TRY TO LISTEN FOR 15 SECONDS AND YOU WILL FEEL THE POWER OF ALL MIRACLES #: 1: ]]:
+###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
+
+### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
 ###     :íي-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
-### :FΩr-th3: [[ :HERO: ]]:
-###     :íي-with: { ^ https://youtu.be/5AiKobtj7cw ^ }:
+#
 
 #
 ### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
