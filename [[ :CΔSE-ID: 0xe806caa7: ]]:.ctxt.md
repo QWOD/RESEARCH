@@ -14,6 +14,7 @@
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2056d2955d.png)
 ### :FΩr-th3: ΩPعΔ [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
+![CΔSE-ID: 0xe806caa7: FIG: 202ee71d](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
 ### :FΩr-th3: [[ :TRY TO LISTEN FOR 15 SECONDS AND YOU WILL FEEL THE POWER OF ALL MIRACLES #: 1: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 
