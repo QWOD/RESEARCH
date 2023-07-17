@@ -11,11 +11,11 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%206aaa0f5f.png)
-### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
-###     :íي-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
-### :FΩr-th3: [[ :Confusion: ]]:
-###     :íي-with: { ^ https://youtu.be/DnFDMRphYi0 ^ }:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20bcbf58f6.png)
+### :FΩr-th3: ΩPعD: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: OPSAN: ]]:
+###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
+### :FΩr-th3: [[ :Prometheus: ]]:
+###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
 
 ![CΔSE-ID: 0xe806caa7: FIG: dfd780cb](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
@@ -38,6 +38,10 @@
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 ![CΔSE-ID: 0xe806caa7: FIG: 202ee71d](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
+
+#
+### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
+###     :íي-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
 
 #
 ### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
