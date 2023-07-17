@@ -11,11 +11,16 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20113b4a4b%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
+![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20d4602879%3A.png)
+### :FΩr-th3: ΩPعΔ [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
+###     :íي-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/dc667f10-2437-11ee-8369-899ab124ac5b ^ }:
+### :FΩr-th3: [[ :ONLY BEAUTIFUL THINGS AND GOOD PEOPLE WILL ENTER YOUR LIFE • 528 HZ + 432 HZ: ]]:
+###     :íي-with: { ^ https://youtu.be/Qs-Eai5mHDw ^ }:
+
+#
+### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
 ###     :íي-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
-### :FΩr-th3: [[ :Heat: ]]:
-###     :íي-with: { ^ https://youtu.be/t19ZvpEMx24 ^ }:
 
 #
 ### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
