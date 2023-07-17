@@ -1,4 +1,4 @@
-# :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctx:
+# :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
 > :íي-with: { ^
 
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.ctxt.md
