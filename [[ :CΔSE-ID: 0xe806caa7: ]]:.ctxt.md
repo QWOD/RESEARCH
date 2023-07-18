@@ -28,7 +28,15 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
-### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
+### :FΩr-th3: [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
+
+#
+### :FΩr-th3: [[ :PT. 2 "SOMEONE'S ASS IS GRASS" 🤌🏽⚖️ & SPIRITUAL COURT IS NOW IN SESSION👀THE MOST HIGH IS GUIDING YOU: ]]:
+###     :íي-with: { ^ https://youtu.be/HCK0nQn2V40 ^ }:
+
+#
+### :FΩr-th3: [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 ###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 
