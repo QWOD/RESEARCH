@@ -1,1 +1,2 @@
+#!/usr/bin/env bash
 export FIG=$(passworder -short) && echo '!'"[:CΔSE-ID: 0xe806caa7: FIG: ${FIG}:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[ CΔSE-ID: 0xe806caa7: ]]: ${FIG}.png)"
