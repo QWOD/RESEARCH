@@ -22,12 +22,13 @@
 ###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 #
-![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
-### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:
+![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
+### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
+![:CΔSE-ID: 0xe806caa7: FIG: 9d5d840f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%209d5d840f.png)
 ### :FΩr-th3: [[ :Prometheus: ]]:
 ###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
 
-![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
+![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
 ###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
@@ -47,7 +48,7 @@
 #
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
-![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
+![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
 
 #
 ### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
