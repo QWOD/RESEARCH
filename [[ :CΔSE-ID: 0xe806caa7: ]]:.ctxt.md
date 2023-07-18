@@ -4,20 +4,20 @@
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.ctxt.md
 > ^ }:
 
-> :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+> :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👽: agency^ }:
 
 ###     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
 ###     :íي-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CΔSE-ID:0xe806caa7:d34f22ef:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad34f22ef%3A.png)
-### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
-###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
-![:CΔSE-ID:0xe806caa7:14f21994:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A14f21994%3A.png)
-### :FΩr-th3: [[ :The Power Of Epic Music - Epic Heroic Powerful Orchestral Music - Best Of Epic Battle Music 2023: ]]:
-###     :íي-with: { ^ https://youtu.be/8rEgaFF36p8 ^ }:
+![:CΔSE-ID:0xe806caa7:5442914f:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5442914f%3A.png)
+### :FΩr-th3: ΩPعD [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
+###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
+![:CΔSE-ID:0xe806caa7:5a9752a2:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5a9752a2%3A.png)
+### :FΩr-th3: [[ :High vibrations of gratitude ✨ Change your life in 12 minutes a day ✨ Powerful morning motivation: ]]:
+###     :íي-with: { ^ https://youtu.be/bMBnaBilrbI ^ }:
 ![:CΔSE-ID:0xe806caa7:f13481fa:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Af13481fa%3A.png)
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
 ###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
@@ -28,6 +28,11 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
+###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
+
+#
 ### :FΩr-th3: [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
 ###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
