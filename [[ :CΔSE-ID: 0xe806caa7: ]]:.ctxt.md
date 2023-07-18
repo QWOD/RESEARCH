@@ -10,27 +10,39 @@
 ###     :íي-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
-#
-![:CΔSE-ID: 0xe806caa7: OPED: FIG: bcbf58f6:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20bcbf58f6.png)
-### :FΩr-th3: ΩPعD: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: OPSAN: ]]:
-###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
-#
-![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
-### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:
-### :FΩr-th3: [[ :Prometheus: ]]:
-###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
-
-![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
+# [[ NOTICE: WARNO: ROYAL-DIVINE-COURT: MILITARY-TRIBUNAL: IS-WITH: NOW-IN-SESSION: ]]:
+![:CΔSE-ID: 0xe806caa7: OPED: FIG: 072129b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20072129b0.png)
+### :FΩr-th3: ΩPعD [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
+###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
+### :FΩr-th3: [[ :528Hz - Whole Body Regeneration - Full Body Healing | Emotional & Physical Healing: ]]:
+###     :íي-with: { ^ https://youtu.be/oPTfN57QBA8 ^ }:
+### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
+###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
+![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
 ###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/39WnBy-vzXI ^ }:
+
+#
+### :FΩr-th3: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: ΩPSΔN: ]]:
+###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
+#
+![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
+### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
+![:CΔSE-ID: 0xe806caa7: FIG: 9d5d840f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%209d5d840f.png)
+
+#
 ### :FΩr-th3: ΩPعD: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
 ###     :íي-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
 
+#
 ### :FΩr-th3: [[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
 ###     :íي-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
 
@@ -41,7 +53,7 @@
 #
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
-![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
+![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
 
 #
 ### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
