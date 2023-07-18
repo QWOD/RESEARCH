@@ -4,7 +4,7 @@
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.ctxt.md
 > ^ }:
 
-> :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+> :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👼: agency^ }:
 
 ###     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
 ###     :íي-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
@@ -17,7 +17,7 @@
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ### :FΩr-th3: [[ :A VERY STRONG PRAYER that opens all doors ۞ PRACTICE OF GRATITUDE: ]]:
 ###     :íي-with: { ^ https://youtu.be/bCgZ-NT1h1I ^ }:
-![:CΔSE-ID: 0xe806caa7: FIG: 4dbd16e4:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%204dbd16e4.png)
+![:CΔSE-ID:0x9f82977e:232910ff:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0x9f82977e%3A232910ff%3A.png)
 
 #
 ### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
