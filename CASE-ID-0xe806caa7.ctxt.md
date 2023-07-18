@@ -16,7 +16,7 @@
 ###     :íي-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
 ###     [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
 ###     [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }:: ]]:= { ^ https://post.tribel.com/public/posts/426bb700-259e-11ee-925e-79c2889b1040 ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/426bb700-259e-11ee-925e-79c2889b1040 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :íي-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
