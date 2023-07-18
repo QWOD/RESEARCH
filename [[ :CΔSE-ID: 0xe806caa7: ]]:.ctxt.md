@@ -17,7 +17,6 @@
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 #
 ![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
-#
 ### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:
 ### :FΩr-th3: [[ :Prometheus: ]]:
 ###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
