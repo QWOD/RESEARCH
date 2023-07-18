@@ -14,7 +14,7 @@
 ![:CΔSE-ID: 0xe806caa7: FIG: 345df3cb:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%20345df3cb.png)
 ### :FΩr-th3: ΩPعΔ [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
 ###     :íي-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/58f300a0-2517-11ee-ba55-379339f14300 ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ### :FΩr-th3: [[ :A VERY STRONG PRAYER that opens all doors ۞ PRACTICE OF GRATITUDE: ]]:
 ###     :íي-with: { ^ https://youtu.be/bCgZ-NT1h1I ^ }:
 ![:CΔSE-ID: 0xe806caa7: FIG: 4dbd16e4:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%204dbd16e4.png)
