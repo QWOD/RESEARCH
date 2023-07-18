@@ -11,7 +11,6 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-#
 ![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
 ### :FΩr-th3: ΩPعΔ [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
