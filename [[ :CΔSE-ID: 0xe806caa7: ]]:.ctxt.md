@@ -14,7 +14,7 @@
 ![:CΔSE-ID:0xe806caa7:d34f22ef:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad34f22ef%3A.png)
 ### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 ###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 ![:CΔSE-ID:0xe806caa7:14f21994:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A14f21994%3A.png)
 ### :FΩr-th3: [[ :The Power Of Epic Music - Epic Heroic Powerful Orchestral Music - Best Of Epic Battle Music 2023: ]]:
 ###     :íي-with: { ^ https://youtu.be/8rEgaFF36p8 ^ }:
