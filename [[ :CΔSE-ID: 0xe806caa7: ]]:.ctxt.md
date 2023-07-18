@@ -11,13 +11,15 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CΔSE-ID:0xe806caa7:5442914f:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5442914f%3A.png)
-### :FΩr-th3: ΩPعD [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
-###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
-![:CΔSE-ID:0xe806caa7:5a9752a2:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5a9752a2%3A.png)
-### :FΩr-th3: [[ :High vibrations of gratitude ✨ Change your life in 12 minutes a day ✨ Powerful morning motivation: ]]:
-###     :íي-with: { ^ https://youtu.be/bMBnaBilrbI ^ }:
+![:CΔSE-ID:0xe806caa7:5d8bca2f:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5d8bca2f%3A.png)
+### :FΩr-th3: ΩPعD [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
+###     :íي-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
+###     [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
+###     [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }:: ]]:= { ^ https://post.tribel.com/public/posts/426bb700-259e-11ee-925e-79c2889b1040 ^ }:
+![:CΔSE-ID:0xe806caa7:b2a9f4ff:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ab2a9f4ff%3A.png)
+### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
+###     :íي-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
 ![:CΔSE-ID:0xe806caa7:f13481fa:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Af13481fa%3A.png)
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
 ###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
@@ -28,7 +30,19 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
-### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
+### :FΩr-th3: [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
+###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
+#
+### :FΩr-th3: [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
+
+#
+### :FΩr-th3: [[ :PT. 2 "SOMEONE'S ASS IS GRASS" 🤌🏽⚖️ & SPIRITUAL COURT IS NOW IN SESSION👀THE MOST HIGH IS GUIDING YOU: ]]:
+###     :íي-with: { ^ https://youtu.be/HCK0nQn2V40 ^ }:
+
+#
+### :FΩr-th3: [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 ###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 
