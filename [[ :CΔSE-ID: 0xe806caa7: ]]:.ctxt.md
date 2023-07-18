@@ -51,7 +51,7 @@
 ![:CΔSE-ID: 0xe806caa7: FIG: 9d5d840f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%209d5d840f.png)
 
 #
-### :FΩr-th3: ΩPعD: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
+### :FΩr-th3: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
 ###     :íي-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
 
 #
@@ -68,7 +68,7 @@
 ![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
 
 #
-### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
+### :FΩr-th3: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
 ###     :íي-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
 
 #
