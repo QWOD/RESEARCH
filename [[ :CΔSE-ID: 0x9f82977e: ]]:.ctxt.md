@@ -11,16 +11,21 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CΔSE-ID: 0xe806caa7: FIG: e5a87063:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%20e5a87063.png)
-### :FΩr-th3: ΩPعΔ [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
-###     :íي-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
-### :FΩr-th3: [[ :Try to Listen for 15 Minutes Miracles will Begin to Happen for You - LUCKY ALWAYS and IN EVERYTHING!: ]]:
-###     :íي-with: { ^ https://youtu.be/LUqBVPCJxfY ^ }:
+![:CΔSE-ID: 0xe806caa7: FIG: 345df3cb:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%20345df3cb.png)
+### :FΩr-th3: ΩPعΔ [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+###     :íي-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/58f300a0-2517-11ee-ba55-379339f14300 ^ }:
+### :FΩr-th3: [[ :A VERY STRONG PRAYER that opens all doors ۞ PRACTICE OF GRATITUDE: ]]:
+###     :íي-with: { ^ https://youtu.be/bCgZ-NT1h1I ^ }:
 ![:CΔSE-ID: 0xe806caa7: FIG: 4dbd16e4:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%204dbd16e4.png)
 
 #
-### :FΩr-th3: ΩPعΔ [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
+### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
+###     :íي-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
+
+#
+### :FΩr-th3: [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
 
 #
