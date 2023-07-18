@@ -30,13 +30,11 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
-<<<<<<< HEAD
 ### :FΩr-th3: [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
 ###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
 #
-=======
->>>>>>> refs/remotes/origin/main
+
 ### :FΩr-th3: [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
 ###     :íي-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
 
