@@ -14,7 +14,7 @@
 ![:CΔSE-ID:0xe806caa7:d946e9d8:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad946e9d8%3A.png)
 ### :FΩr-th3: ΩPعD [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
 ###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 ### :FΩr-th3: [[ :Archangel Raphael Full Recovery, Healing Body, Mind & Spirit Immediate Melatonin Release: ]]:
 ###     :íي-with: { ^ https://youtu.be/clBKDAe5eb0 ^ }:
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
