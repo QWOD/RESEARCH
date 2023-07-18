@@ -28,7 +28,7 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
-### :FΩr-th3: ΩPعD [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
+### :FΩr-th3: [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
 ###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 
