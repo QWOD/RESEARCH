@@ -12,6 +12,7 @@
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ![:CΔSE-ID:0xe806caa7:5442914f:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A5442914f%3A.png)
+:CASE-ID:0xe806caa7:5442914f:.png
 ### :FΩr-th3: ΩPعD [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
 ###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
