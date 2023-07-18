@@ -11,12 +11,12 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CΔSE-ID: 0xe806caa7: OPED: FIG: 072129b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20072129b0.png)
-### :FΩr-th3: ΩPعD [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
-###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
-### :FΩr-th3: [[ :528Hz - Whole Body Regeneration - Full Body Healing | Emotional & Physical Healing: ]]:
-###     :íي-with: { ^ https://youtu.be/oPTfN57QBA8 ^ }:
+![:CΔSE-ID:0xe806caa7:d946e9d8:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad946e9d8%3A.png)
+### :FΩr-th3: ΩPعD [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
+###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
+### :FΩr-th3: [[ :Archangel Raphael Full Recovery, Healing Body, Mind & Spirit Immediate Melatonin Release: ]]:
+###     :íي-with: { ^ https://youtu.be/clBKDAe5eb0 ^ }:
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
 ###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
 ![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
@@ -26,6 +26,11 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
+###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
+
+#
 ### :FΩr-th3: [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
 ###     :íي-with: { ^ https://youtu.be/39WnBy-vzXI ^ }:
 
