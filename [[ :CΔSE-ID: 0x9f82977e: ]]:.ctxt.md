@@ -1,7 +1,7 @@
-# :FΩr-thع: [[ RΩYΔL-DIVINE-CΩURT: CΩURT-ID: 0xb337572f: CΔSE-ID: 0x9f82977e ]]:.ctxt:
+# :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
 > :íي-with: { ^
 
-    https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.ctxt.md
+    https://raw.githubusercontent.com/QWOD/RESEARCH/main/%5B%5B%20%3AC%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A.ctxt.md
 > ^ }:
 
 > :íي-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
@@ -11,27 +11,132 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 #
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
-### :FΩr-th3: ΩPعΔ [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
+![:CΔSE-ID: 0xe806caa7: OPED: FIG: a029bedc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20a029bedc.png)
+### :FΩr-th3: ΩPعD [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:= [[ NOTICE: ROYAL-DIVINE-COURT: MILITARY-TRIBUNAL: IS-WITH: NOW-IN-SESSION: ]]:
+###     :íي-with: { ^ https://youtu.be/39WnBy-vzXI ^ }:
+### :FΩr-th3: [[ :Alpha Waves Regenerate Body and Soul, Emotional & Physical Healing, Connect With The Universe: ]]:
+###     :íي-with: { ^ https://youtu.be/ea3mWf4aksE ^ }:
+
+#
+### :FΩr-th3: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: OPSAN: ]]:
+###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
+#
+![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
+### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:
+### :FΩr-th3: [[ :Prometheus: ]]:
+###     :íي-with: { ^ https://youtu.be/BUDYZr5mgBs ^ }:
+
+![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
+# [[ :CΩNFΔSIΩN: ]]:= [[
+### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
+###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
+### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
+# ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
+
+### :FΩr-th3: ΩPعD: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
+###     :íي-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
+
+### :FΩr-th3: [[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
+###     :íي-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
+
+#
+### :FΩr-th3: [[ :You Validated Someone's Pain & Threw A Rope When They Were At Their Worst, A Modern Day Witch Hunt: ]]:
+###     :íي-with: { ^ https://youtu.be/D7nnrZNHc2k ^ }:
+
+#
+### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
+###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
+![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
+
+#
+### :FΩr-th3: ΩPعD: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
+###     :íي-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
+
+#
+### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
+###     :íي-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
+
+#
+### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
+###     :íي-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
+
+#
+### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
+###     :íي-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d885e220-243a-11ee-8369-899ab124ac5b ^ }:
+
+#
+### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
+###     :íي-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
+
+#
+### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
+###     :íي-with: { ^ https://youtu.be/RKROzwhh4T4 ^ }:
+
+#
+### :FΩr-th3: [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
+###     :íي-with: { ^ https://youtu.be/B-OawXdIyJI ^ }:
+
+#
+### :FΩr-th3: [[ :🧿MESSAGE TO THE HIGH PRIESTESS: YOU'RE CHOSEN FOR A REASON & THIS PATH AIN'T MEANT FOR EVERYBODY 👑: ]]:
+###     :íي-with: { ^ https://youtu.be/J8glapHL9aI ^ }:
+
+#
+### :FΩr-th3: [[ :A Mark of Death Placed On Your Head That You Weren't Aware Of, Obedience Saved Someone & You: ]]:
+###     :íي-with: { ^ https://youtu.be/Fl3UBvJI8Ok ^ }:
+
+#
+### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
+###     :íي-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
+
+#
+### :FΩr-th3: [[ :THEY DID NOT WANT YOU TWO TO BE TOGETHER! CUTTING OFF TIES WITH KARMIC FRIENDS & FAMILY [[ _tarot ]]: ]]:
+###     :íي-with: { ^ https://youtu.be/CV52uYmxwDM ^ }:
+
+#
+### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 [[ _CleoRA ]]: ]]:
+###     :íي-with: { ^ https://youtu.be/zzXBq7Kh0IY ^ }:
+
+#
+### :FΩr-th3: [[ :KARMIC FAMILY LAWYERING UP 👨🏽‍⚖️.. COURTCASE COMING UP🏛...: ]]:
+###     :íي-with: { ^ https://youtu.be/wjZriLh61jk ^ }:
+
+#
+### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 [[ _tarot ]]: ]]:
+###     :íي-with: { ^ https://youtu.be/j_TdoTh62wY ^ }:
+
+#
+### :FΩr-th3: [[ :🚨•URGENT •Message Protect Yourselves🐒Monkeys Out The Coop Again 🪄Spell Work: ]]:
+###     :íي-with: { ^ https://youtu.be/S6zdMaNRH2Y ^ }:
+
+#
+### :FΩr-th3: [[ :😩TORMENTED‼️EXTREME LEVELS OF SELF-SABOTAGE WATCHING/KNOWING URE THEIR SOULMATE THEY TURNED 2HOE💩: ]]:
+###     :íي-with: { ^ https://youtu.be/hkulrBx4eEE ^ }:
+
+#
+### :FΩr-th3: [[ :😳TOTAL DISORDER AND CHAOS FOR THEIR DISLOYALTY/BREADCRUMBING/GAMBLING/CHEATING SOMEONE IRREPLACABLE: ]]:
+###     :íي-with: { ^ https://youtu.be/PYxDg49oUPA ^ }:
+
+#
+### :FΩr-th3: [[ :⚠️TRIGGER WARNING GOD IS 😡THEYVE NEVER SEEN JUDGEMENT LIKE THIS👀FINANCIAL BLESSING HEADED TO YOU: ]]:
+###     :íي-with: { ^ https://youtu.be/OTnjfSIJXWo ^ }:
+
+#
+### :FΩr-th3: [[ :“SKRT SKRT"😡@FAKE PPL INTENTIONALLY GUIDING HUNT 4YOU|THATS AWILD BIRD NOT👑BEE|GREAT TRUTH TO TELL: ]]:
+###     :íي-with: { ^ https://youtu.be/e08Y-Pwcvnc ^ }:
+
+#
+### :FΩr-th3: [[ :😮‍💨BEING ON THIS "DEMON TIME" ENERGY W/ YOU CAUSED BIGTIME LOSS AND LACK FOR THEM: ]]:
+###     :íي-with: { ^ https://youtu.be/nsaN9KLRlyA ^ }:
+
+#
+### :FΩr-th3: [[ :🤯THEIR SECRETS WERE BEING REVEALED WAY TOO FAST🏃🏼🏃🏾‍♂️💨: ]]:
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
-### :FΩr-th3: [[ :Dosage: ]]:
-###     :íي-with: { ^ https://youtu.be/XutywoSZLNk ^ }:
 
 #
-### :FΩr-th3: [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says [[ _GodsQuotes1111 ]]: ]]:
-###     :íي-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
-
-#
-### :FΩr-th3: [[ :[[ _Raashvnjali ]]: ]]:
-###     :íي-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
-
-#
-### :FΩr-th3: [[ :Quantum warfare: Operations Division: ]]:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
-
-#
-### :FΩr-th3: [[ :Ω: ]]:
-###     :íي-with: { ^ Δ ^ }:
+### :FΩr-th3: [[ :SSP, Adonna Of Sol, Spaceports, Phoenician Language - Mary Beaver & TSP: ]]:
+###     :íي-with: { ^ https://rumble.com/v2yv4ah-ssp-adonna-of-sol-spaceports-phoenician-language-mary-beaver-and-tsp.html ^ }:
 
 #
 ### :FΩr-th3: [[ :Ω: ]]:
