@@ -13,12 +13,12 @@
 # [[ NOTICE: WARNO: ROYAL-DIVINE-COURT: MILITARY-TRIBUNAL: IS-WITH: NOW-IN-SESSION: ]]:
 ![:CΔSE-ID: 0xe806caa7: OPED: FIG: 072129b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20072129b0.png)
 ### :FΩr-th3: ΩPعD [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
-###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg#_NEW ^ }:
-###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300#_NEW ^ }:
+###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg#_blank ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300#_blank ^ }:
 ### :FΩr-th3: [[ :528Hz - Whole Body Regeneration - Full Body Healing | Emotional & Physical Healing: ]]:
-###     :íي-with: { ^ https://youtu.be/oPTfN57QBA8#_NEW ^ }:
+###     :íي-with: { ^ https://youtu.be/oPTfN57QBA8#_blank ^ }:
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
-###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0#_NEW ^ }:
+###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0#_blank ^ }:
 ![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
