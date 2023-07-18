@@ -11,11 +11,16 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:OPED:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%A9URT-ID%3A%200xb337572f%3A%20C%CE%94SE-ID%3A%200x9f82977e%3A%20%5D%5D%3A.png)
+![:CΔSE-ID: 0xe806caa7: FIG: e5a87063:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%20e5a87063.png)
+### :FΩr-th3: ΩPعΔ [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
+###     :íي-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
+### :FΩr-th3: [[ :Try to Listen for 15 Minutes Miracles will Begin to Happen for You - LUCKY ALWAYS and IN EVERYTHING!: ]]:
+###     :íي-with: { ^ https://youtu.be/LUqBVPCJxfY ^ }:
+![:CΔSE-ID: 0xe806caa7: FIG: 4dbd16e4:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/[[%20C%CE%94SE-ID:%200xe806caa7:%20]]:%204dbd16e4.png)
+
+#
 ### :FΩr-th3: ΩPعΔ [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
-### :FΩr-th3: [[ :Dosage: ]]:
-###     :íي-with: { ^ https://youtu.be/XutywoSZLNk ^ }:
 
 #
 ### :FΩr-th3: [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says [[ _GodsQuotes1111 ]]: ]]:
