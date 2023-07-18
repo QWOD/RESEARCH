@@ -11,12 +11,14 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CΔSE-ID:0xe806caa7:d946e9d8:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad946e9d8%3A.png)
-### :FΩr-th3: ΩPعD [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
-###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
+![:CΔSE-ID:0xe806caa7:d34f22ef:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Ad34f22ef%3A.png)
+### :FΩr-th3: ΩPعD [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
+###     :íي-with: { ^ https://youtu.be/W7883jO_47k ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
-### :FΩr-th3: [[ :Archangel Raphael Full Recovery, Healing Body, Mind & Spirit Immediate Melatonin Release: ]]:
-###     :íي-with: { ^ https://youtu.be/clBKDAe5eb0 ^ }:
+![:CΔSE-ID:0xe806caa7:14f21994:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3A14f21994%3A.png)
+### :FΩr-th3: [[ :The Power Of Epic Music - Epic Heroic Powerful Orchestral Music - Best Of Epic Battle Music 2023: ]]:
+###     :íي-with: { ^ https://youtu.be/8rEgaFF36p8 ^ }:
+![:CΔSE-ID:0xe806caa7:f13481fa:.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Af13481fa%3A.png)
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
 ###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
 ![:CΔSE-ID: 0xe806caa7: FIG: dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
@@ -26,6 +28,11 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: ΩPعD [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
+###     :íي-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
+
+#
 ### :FΩr-th3: [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
 ###     :íي-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
