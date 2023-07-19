@@ -11,12 +11,13 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-5d8bca2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5d8bca2f.png)
-### :FΩr-th3: ΩPعD [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
-###     :íي-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
-###     [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
-###     [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/426bb700-259e-11ee-925e-79c2889b1040 ^ }:
+![:CASE-ID-0xe806caa7-ac193d64.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ac193d64.png)
+![:CASE-ID-0xe806caa7-6a4403b9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-6a4403b9.png)
+### :FΩr-th3: ΩPعD [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
+###     :íي-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
+### :FΩr-th3: [[ :MVMXCI: ]]:
+###     :íي-with: { ^ https://youtu.be/CyVth97dT0o ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5d852c80-25d3-11ee-83a4-21a93d188d0b ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :íي-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
@@ -30,11 +31,16 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
+###     :íي-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
+###     [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
+###     [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
+#
 ### :FΩr-th3: [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
 ###     :íي-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
-#
 
+#
 ### :FΩr-th3: [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
 ###     :íي-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
 
