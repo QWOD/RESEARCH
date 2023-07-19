@@ -21,10 +21,10 @@
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :íي-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
-![:CΔSE-ID-0xe806caa7-f13481fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%3ACASE-ID%3A0xe806caa7%3Af13481fa%3A.png)
+![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
 ###     :íي-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
-![:CΔSE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20dfd780cb.png)
+![:CASE-ID-0xe806caa7-e71d097f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e71d097f.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
 ###     :íي-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
@@ -72,9 +72,9 @@
 ###     :íي-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 #
-![:CΔSE-ID: 0xe806caa7: FIG: 04a7690f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%2004a7690f.png)
+![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
 ### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
-![:CΔSE-ID: 0xe806caa7: FIG: 9d5d840f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%209d5d840f.png)
+![:CASE-ID-0xe806caa7-62ccae58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-62ccae58.png)
 
 #
 ### :FΩr-th3: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
@@ -91,7 +91,7 @@
 #
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 ###     :íي-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
-![:CΔSE-ID: 0xe806caa7: FIG: 202ee71d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/%5B%5B%20C%CE%94SE-ID%3A%200xe806caa7%3A%20%5D%5D%3A%20202ee71d.png)
+![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 
 #
 ### :FΩr-th3: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
