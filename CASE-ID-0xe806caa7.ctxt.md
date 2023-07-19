@@ -11,8 +11,8 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-b375ab7b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b375ab7b.png)
-![:CASE-ID-0xe806caa7-78c61b61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-78c61b61.png)
+
+![:CASE-ID-0xe806caa7-d00790e9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d00790e9.png)
 ### :FΩr-th3: ΩPعD [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
 ###     :íي-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
 ### :FΩr-th3: [[ :Let JESUS CHRIST'S HEALING MUSIC Awaken your soul Angel Healing Music: ]]:

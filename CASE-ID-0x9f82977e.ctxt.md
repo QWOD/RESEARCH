@@ -11,14 +11,19 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
+![:CASE-ID-0x9f82977e-a124cf09.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-a124cf09.png)
 ![:CASE-ID-0x9f82977e-51bbba34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-51bbba34.png)
-### :FΩr-th3: ΩPعΔ [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+### :FΩr-th3: ΩPعD [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
+###     :íي-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
+### :FΩr-th3: [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:
+###     :íي-with: { ^ https://youtu.be/EQg7GrKsyMw ^ }:
+![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
+
+
+### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
 ###     :íي-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
-### :FΩr-th3: [[ :A VERY STRONG PRAYER that opens all doors ۞ PRACTICE OF GRATITUDE: ]]:
-###     :íي-with: { ^ https://youtu.be/bCgZ-NT1h1I ^ }:
-![:CASE-ID-0x9f82977e-8d0da430.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-8d0da430.png)
-
 #
 ### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
 ###     :íي-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
