@@ -20,7 +20,7 @@
 ###     :íي-with: { ^ https://youtu.be/EQg7GrKsyMw ^ }:
 ![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
 
-### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |:[[ @:GodsQuotes1111 ]]: ]]:
+### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
 ![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
 ###     :íي-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
@@ -44,11 +44,11 @@
 ###     :íي-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
 
 #
-### :FΩr-th3: [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says [[ _GodsQuotes1111 ]]: ]]:
+### :FΩr-th3: [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
 ###     :íي-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
 
 #
-### :FΩr-th3: [[ :[[ _Raashvnjali ]]: ]]:
+### :FΩr-th3: [[ :[[ @:Raashvnjali ]]: ]]:
 ###     :íي-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
 
 #
