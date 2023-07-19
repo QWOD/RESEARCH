@@ -15,7 +15,7 @@
 ### :FΩr-th3: [[ :[Try Listening For 15 Minutes] Alpha Waves Massage The Whole Body, Emotional & Physical Healing: ]]:
 ![:CASE-ID-0xe806caa7-294eab70.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-294eab70.png)
 ###     :1s-with: { ^ https://youtu.be/Ij1v5l0q07Q ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ Δ ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
