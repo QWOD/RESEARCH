@@ -23,6 +23,7 @@
 ### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |:[[ @:GodsQuotes1111 ]]: ]]:
 ![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
 ###     :íي-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
 
 #
 ### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
