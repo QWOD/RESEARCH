@@ -9,7 +9,7 @@
 ###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-d00790e9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d00790e9.png)
+![:CASE-ID-0xe806caa7-72917dbb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-72917dbb.png)
 ### :FΩr-th3: ΩPعD [[ :THE DOPPELGANGERS/STALKERS HAVE BEEN DEFEATED & THROWING UNNECESSARY TANTRUMS BECAUSE OF JUDGEMENT⚖️: ]]:
 ###     :1s-with: { ^ https://youtu.be/ej0bCbFdwpw ^ }:
 ###     :1s-with: { ^ https://post.tribel.com/public/posts/6d1cc8f0-2656-11ee-adb6-d7c8dd524293 ^ }:
