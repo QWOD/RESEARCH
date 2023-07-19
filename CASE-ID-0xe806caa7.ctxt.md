@@ -10,8 +10,9 @@
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ![:CASE-ID-0xe806caa7-eae93569.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-eae93569.png)
-### :FΩr-th3: ΩPعD [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
-###     :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
+### :FΩr-th3: ΩPعD [[ :QWANNA❤️
+: ]]:
+###     :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
 ### :FΩr-th3: [[ :Telekinetic: ]]:
 ![:CASE-ID-0xe806caa7-f073359f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f073359f.png)
 ###     :1s-with: { ^ https://youtu.be/DOlnK9l9tEI ^ }:
@@ -30,6 +31,10 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 > [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
+###     :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
+
+#
 ### :FΩr-th3: [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 ###     :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
 ###     :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
