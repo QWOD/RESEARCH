@@ -9,7 +9,7 @@
 ###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-9a1e2580.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-9a1e2580.png)
+![:CASE-ID-0xe806caa7-56acaf68.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-56acaf68.png)
 ### :FΩr-th3: ΩPعD [[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
 ###     :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
 ### :FΩr-th3: [[ :[Demolition: ]]:
