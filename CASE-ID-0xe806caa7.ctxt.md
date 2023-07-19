@@ -17,7 +17,7 @@
 ###     :íي-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
 ### :FΩr-th3: [[ :Let JESUS CHRIST'S HEALING MUSIC Awaken your soul Angel Healing Music: ]]:
 ###     :íي-with: { ^ https://youtu.be/RGrtovFsVFE ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5d852c80-25d3-11ee-83a4-21a93d188d0b ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/fa7285b0-25e2-11ee-aa08-5ff419e779a4 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :íي-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
