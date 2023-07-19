@@ -30,7 +30,7 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 > [[ ΔRC:HΔVE ]]:
 
-### :FΩr-th3: ΩPعD [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
+### :FΩr-th3: [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 ###     :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
 ###     :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
 #
