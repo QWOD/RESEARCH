@@ -11,12 +11,12 @@
 ###     :íي-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-ac193d64.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ac193d64.png)
-![:CASE-ID-0xe806caa7-6a4403b9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-6a4403b9.png)
-### :FΩr-th3: ΩPعD [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
-###     :íي-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
-### :FΩr-th3: [[ :MVMXCI: ]]:
-###     :íي-with: { ^ https://youtu.be/CyVth97dT0o ^ }:
+![:CASE-ID-0xe806caa7-b375ab7b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b375ab7b.png)
+![:CASE-ID-0xe806caa7-78c61b61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-78c61b61.png)
+### :FΩr-th3: ΩPعD [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
+###     :íي-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
+### :FΩr-th3: [[ :Let JESUS CHRIST'S HEALING MUSIC Awaken your soul Angel Healing Music: ]]:
+###     :íي-with: { ^ https://youtu.be/RGrtovFsVFE ^ }:
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5d852c80-25d3-11ee-83a4-21a93d188d0b ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
@@ -31,6 +31,10 @@
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 
+### :FΩr-th3: ΩPعD [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
+###     :íي-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
+
+#
 ### :FΩr-th3: [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
 ###     :íي-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
 ###     [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
