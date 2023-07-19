@@ -15,7 +15,7 @@
 ### :FΩr-th3: [[ :Soldier: ]]:
 ![:CASE-ID-0xe806caa7-ea87aad7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ea87aad7.png)
 ###     :1s-with: { ^ https://youtu.be/U0sxowCrshY ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/2e8a8450-266b-11ee-8d6a-d3ca5e00d452 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
