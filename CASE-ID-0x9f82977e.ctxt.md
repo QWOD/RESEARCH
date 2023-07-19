@@ -20,7 +20,16 @@
 ###     :íي-with: { ^ https://youtu.be/EQg7GrKsyMw ^ }:
 ![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
 
+### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |:[[ @:GodsQuotes1111 ]]: ]]:
+![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
+###     :íي-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
 
+#
+### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+###     :íي-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
+
+#
 ### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
 ###     :íي-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
 ###     :íي-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
