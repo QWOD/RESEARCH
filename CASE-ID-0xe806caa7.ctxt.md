@@ -12,7 +12,7 @@
 ![:CASE-ID-0xe806caa7-54c9a835.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-54c9a835.png)
 ### :FΩr-th3: ΩPعD [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 ###     :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
-###     :1s-with: { ^  ^ }:
+###     :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
 ### :FΩr-th3: [[ :parallel realms: ]]:
 ![:CASE-ID-0xe806caa7-fc80b083.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fc80b083.png)
 ###     :1s-with: { ^ https://youtu.be/0NLywtGrVpM ^ }:
