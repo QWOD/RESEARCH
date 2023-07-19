@@ -10,8 +10,7 @@
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ![:CASE-ID-0xe806caa7-eae93569.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-eae93569.png)
-### :FΩr-th3: ΩPعD [[ :QWANNA❤️
-: ]]:
+### :FΩr-th3: ΩPعD [[ :QWANNA❤️: ]]:
 ###     :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
 ### :FΩr-th3: [[ :Telekinetic: ]]:
 ![:CASE-ID-0xe806caa7-f073359f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f073359f.png)
