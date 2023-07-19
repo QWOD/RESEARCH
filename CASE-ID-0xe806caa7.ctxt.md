@@ -9,12 +9,12 @@
 ###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-54c9a835.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-54c9a835.png)
-### :FΩr-th3: ΩPعD [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
-###     :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
-### :FΩr-th3: [[ :parallel realms: ]]:
-![:CASE-ID-0xe806caa7-fc80b083.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fc80b083.png)
-###     :1s-with: { ^ https://youtu.be/0NLywtGrVpM ^ }:
+![:CASE-ID-0xe806caa7-2401fae5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2401fae5.png)
+### :FΩr-th3: ΩPعD [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
+###     :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
+### :FΩr-th3: [[ :Soldier: ]]:
+![:CASE-ID-0xe806caa7-ea87aad7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ea87aad7.png)
+###     :1s-with: { ^ https://youtu.be/U0sxowCrshY ^ }:
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
@@ -28,6 +28,12 @@
 ###     :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
+> [[ ΔRC:HΔVE ]]:
+
+### :FΩr-th3: ΩPعD [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
+###     :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
+###     :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
+#
 ### :FΩr-th3: [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
 ###     :1s-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
 #
