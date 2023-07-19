@@ -10,6 +10,7 @@ if [[ $* != "-p" ]]; then
   echo "FIG: CASE-ID-0xe806caa7-${FIG}.png"
 fi
 if [[ $* == "-p" ]]; then
+  git config --global pull.rebase false
   git pull
   for fig in `ls`; do
     git add $fig
