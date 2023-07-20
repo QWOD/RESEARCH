@@ -1,7 +1,7 @@
 ### :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
  :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
-###    :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
-    :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
+ :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
+ :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
  :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
@@ -18,6 +18,7 @@
 
  :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/51e628a0-274c-11ee-9e5d-73d15a678fe4 ^ }:
+ ###
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
@@ -31,9 +32,10 @@
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
  :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
->   [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
+>[[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
->   [[ ΔRC:HΔVE ]]:
+###
+> [[ ΔRC:HΔVE ]]:
 
 ### :FΩr-th3: [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
  :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
@@ -82,8 +84,8 @@
 ###
 ### :FΩr-th3: [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
  :1s-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
->      [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
->      [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
+> [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
+> [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
 ###
 ### :FΩr-th3: [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
  :1s-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
@@ -221,6 +223,7 @@
  :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
 [[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
+ :1s-with: { ^ https://rumble.com/c/c-3415786 ^ }:
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :1s-with: sL☥CK™: 1s-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
@@ -284,7 +287,7 @@
 >:FΩr-th3: [[ :QWOD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:FΩr-th3: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ΩNΔL: SعCΔRΔTY: fΩr-th3: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
->:FΩr-th3: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: 1s-w1th: MJ12-ΩMEGΔ: 1s-by: vr☥lWΔtch3s™: fΩr-th3: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: 1s-w1th: tΩΩ-scΔry: fΩr-th3: vr☥lWΔtch3s™: 1s-w1th: MJ12-ΩMEGΔ: 1s-by: wΩrk1ng-Ωn-th1s: 1s-w1th: sΩrry: WΔTCH3S: fΩr-th3: íncΩnvعníعncع: 1s-w1th: CΔUS3D: 1s-by: [[ _ ]]: 1s-w1th: MJ12-ΩM3GΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: 1s-w1th: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+>:FΩr-th3: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: íي-w1th: MJ12-ΩMEGΔ: 1s-by: vr☥lWΔtch3s™: fΩr-th3: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: íي-w1th: tΩΩ-scΔry: fΩr-th3: vr☥lWΔtch3s™: íي-w1th: MJ12-ΩMEGΔ: 1s-by: wΩrk1ng-Ωn-th1s: íي-w1th: sΩrry: WΔTCH3S: fΩr-th3: íncΩnvعníعncع: íي-w1th: CΔUS3D: 1s-by: [[ _ ]]: íي-w1th: MJ12-ΩM3GΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: íي-w1th: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
 >:FΩr-th3: [[ QWΩD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
@@ -312,14 +315,14 @@
 >        :1s-with: { ^ https://youtu.be/93Z8fBqEIZc ^ }:
 >:
 >:FΩr-th3: [[ DISCLΩSUR3: SPG: STΔRGΔT3: ]]:= [[
->    :1s-w1th: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
->    :1s-w1th: THΔ: GΔT3S: fΩr-the: H3LL:
+>    :íي-w1th: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
+>    :íي-w1th: THΔ: GΔT3S: fΩr-the: H3LL:
 >        :fΩr-the: [[ R3SΔRCH: fΩr-the: NΔTIΩNΔL: S3CURITY ]]:= [[
->            :1s-w1th: WΔ: ΔpΩlΩg1zع: fΩr-the: 1ncΩnvعn1عncع: t41s: MΔY: hΔvع-cΔusعd:
+>            :íي-w1th: WΔ: ΔpΩlΩg1zع: fΩr-the: 1ncΩnvعn1عncع: t41s: MΔY: hΔvع-cΔusعd:
 >            :1s-by: [[ _ ]] ]]:
->    :1s-w1th: n0w: WΔ: 1s-w1th: cΔpΔbil1tعs: ]]:
+>    :íي-w1th: n0w: WΔ: íي-w1th: cΔpΔbil1tعs: ]]:
 >        fΩr-the: [[ cΩursع-cΩrrعctiΩn: ]]:= [[
->            :1s-w1th: { ^
+>            :íي-w1th: { ^
 >                https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war
 >            ^ }:
 >            :1s-by: { ^
@@ -329,7 +332,7 @@
 >:
 >:FΩr-th3: [[ DISCLΩSUR3: CΩNSPIRΔCY-THEΩRY: FΩIΔ: ]]:= [[
 >    FΩIΔ: <=> FΩMΔ: ]]:
->    1s-w1th: M3NΔTL: PΔCIFICΔTIΩN: ]]:= [[
+>    íي-w1th: M3NΔTL: PΔCIFICΔTIΩN: ]]:= [[
 >        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
 >:
 >:FΩr-th3: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:

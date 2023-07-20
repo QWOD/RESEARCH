@@ -1,6 +1,6 @@
 ### :FΩr-thع: [[ CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
  :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x9f82977e.ctxt.md ^ }:
-###    :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👼: agency^ }:
+ :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👼: agency^ }:
     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
  :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
@@ -18,6 +18,7 @@
 ![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
 
  [[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
+ ###
 >    [[ ΔRC:HΔVE ]]:
 ### :FΩr-th3: [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
  :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
@@ -185,7 +186,7 @@
 ###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 
->  [[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>[[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 
 ###
 >:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
