@@ -14,6 +14,7 @@
 ![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
 >
  :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
+>
 ### :FΩr-th3: [[ :DARKTIDE: ]]:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 >
@@ -22,7 +23,9 @@
  ###
  [[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
+>
  :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
+>
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 >
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
@@ -32,9 +35,8 @@
  :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
 >[[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
-###
-> [[ ΔRC:HΔVE ]]:
 >
+> [[ ΔRC:HΔVE ]]:
 ### :FΩr-th3: [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
  :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
 >
