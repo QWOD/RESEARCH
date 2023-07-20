@@ -11,7 +11,9 @@
 ### :FΩr-th3: [[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
 ![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
 ###   :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
+### :FΩr-th3: [[ :DARKTIDE: ]]:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
+###   :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/51e628a0-274c-11ee-9e5d-73d15a678fe4 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
