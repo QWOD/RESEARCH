@@ -5,12 +5,13 @@
 ###    :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###    :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-be7e5332.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-be7e5332.png)
-### :FΩr-th3: ΩPعD [[ :A Narcissist got scammed trying to spiritually attack u: ]]:
-###   :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
-### :FΩr-th3: [[ :Archangel Raphael May He Remove Stress, Anxiety & Calmness Forget Negative Thoughts: ]]:
-![:CASE-ID-0xe806caa7-1c29e960.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-1c29e960.png)
-###   :1s-with: { ^ https://youtu.be/LjwGCwEl8Jg ^ }:
+![:CASE-ID-0xe806caa7-113f244f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-113f244f.png)
+### :FΩr-th3: ΩPعD [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
+###   :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
+### :FΩr-th3: [[ :DARKTIDE: ]]:
+![:CASE-ID-0xe806caa7-30b9dddf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-30b9dddf.png)
+###   :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
+![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/cb364e20-271e-11ee-a412-790f2645076b ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
@@ -26,6 +27,8 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 >   [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :A Narcissist got scammed trying to spiritually attack u: ]]:
+>   :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
 ### :FΩr-th3: [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
 >   :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
 ### :FΩr-th3: [[ :They're planning a funeral-deep despair&sorrow about their secrets being exposed: ]]:
