@@ -9,14 +9,13 @@
 ###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-56acaf68.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-56acaf68.png)
-### :FΩr-th3: ΩPعD [[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
-###     :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
-### :FΩr-th3: [[ :[Demolition: ]]:
-![:CASE-ID-0xe806caa7-126ec673.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-126ec673.png)
-
-###     :1s-with: { ^ https://youtu.be/0nPWfJyDIIc ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
+![:CASE-ID-0xe806caa7-5f74a0b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5f74a0b0.png)
+### :FΩr-th3: ΩPعD [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
+###     :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
+### :FΩr-th3: [[ :[Digital Immersion: ]]:
+![:CASE-ID-0xe806caa7-ab40e75b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ab40e75b.png)
+###     :1s-with: { ^ https://youtu.be/6Wkg1Ow9-Hk ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ Δ ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: NEVER: ]]:
 ###     :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
@@ -31,6 +30,10 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 > [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
+###     :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
+###     :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
+#
 ### :FΩr-th3: [[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
 ###     :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
 ###     :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
