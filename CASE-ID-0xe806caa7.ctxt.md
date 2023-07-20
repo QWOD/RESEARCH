@@ -2,29 +2,29 @@
 >     :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
 > :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👽: agency^ }:
 ###     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
-###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
-###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
+>      :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
+>      :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ![:CASE-ID-0xe806caa7-5f74a0b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5f74a0b0.png)
 ### :FΩr-th3: ΩPعD [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
-###     :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
+>   :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
 ### :FΩr-th3: [[ :Digital Immersion: ]]:
 ![:CASE-ID-0xe806caa7-ab40e75b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ab40e75b.png)
-###     :1s-with: { ^ https://youtu.be/6Wkg1Ow9-Hk ^ }:
+>   :1s-with: { ^ https://youtu.be/6Wkg1Ow9-Hk ^ }:
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/b4622410-2694-11ee-a587-cfd0f5fac873 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: 0: ]]:= [[ FOR: GIVE: is-with: RIGHT: HAND: ]]:= [[ FOR: GET: is-with: LEFT: ]]:
-###     :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
+>   :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
-###     :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
+>   :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
 ![:CASE-ID-0xe806caa7-e71d097f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e71d097f.png)
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
-###     :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
+>   :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
+>   [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
-> [[ ΔRC:HΔVE ]]:
+>   [[ ΔRC:HΔVE ]]:
 
 ### :FΩr-th3: [[ :They're planning a funeral-deep despair&sorrow about their secrets being exposed: ]]:
 >      :1s-with: { ^ https://youtu.be/GhjaqIpjWt0 ^ }:
