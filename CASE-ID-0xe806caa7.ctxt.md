@@ -126,7 +126,7 @@
 ### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
 >   :1s-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
 ###
-### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
+### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 : [[ :#:lovetarot: ]] [[ :#:CleoRA: ]]: ]]:
 >   :1s-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
 ###
 ### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
@@ -151,16 +151,16 @@
 ### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
 >   :1s-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
 ###
-### :FΩr-th3: [[ :THEY DID NOT WANT YOU TWO TO BE TOGETHER! CUTTING OFF TIES WITH KARMIC FRIENDS & FAMILY [[ _tarot ]]: ]]:
+### :FΩr-th3: [[ :THEY DID NOT WANT YOU TWO TO BE TOGETHER! CUTTING OFF TIES WITH KARMIC FRIENDS & FAMILY : [[ :#:tarot: ]]: ]]:
 >   :1s-with: { ^ https://youtu.be/CV52uYmxwDM ^ }:
 ###
-### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 [[ _CleoRA ]]: ]]:
+### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 : [[ :#:CleoRA: ]]: ]]:
 >   :1s-with: { ^ https://youtu.be/zzXBq7Kh0IY ^ }:
 ###
 ### :FΩr-th3: [[ :KARMIC FAMILY LAWYERING UP 👨🏽‍⚖️.. COURTCASE COMING UP🏛...: ]]:
 >   :1s-with: { ^ https://youtu.be/wjZriLh61jk ^ }:
 ###
-### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 [[ _tarot ]]: ]]:
+### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 : [[ :#:tarot: ]]: ]]:
 >   :1s-with: { ^ https://youtu.be/j_TdoTh62wY ^ }:
 ###
 ### :FΩr-th3: [[ :🚨•URGENT •Message Protect Yourselves🐒Monkeys Out The Coop Again 🪄Spell Work: ]]:
