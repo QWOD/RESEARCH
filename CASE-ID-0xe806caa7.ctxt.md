@@ -55,7 +55,7 @@
 >   :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
 >   :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
 ###
-### :FΩr-th3: [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
+### :FΩr-th3: [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine: ]]: ]]:
 >   :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
 ###
 ### :FΩr-th3: [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
