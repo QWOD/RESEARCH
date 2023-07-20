@@ -197,10 +197,10 @@
 > 
 ![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
 > [[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
-> [[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:
+> [[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:
 > 
 ### :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
->   :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
+###   :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :1s-with: sL☥CK™: 1s-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
