@@ -48,7 +48,7 @@
 >   :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
 >   :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
 ###
-### :FΩr-th3: [[ :QWANNA❤️: ]]:
+### :FΩr-th3: [[ :QWANNA: ❤️: ]]:= [[ [[ QW: ANNA: <=> QWΩD-MJ12: MJ12-ANNA: ]]: LΔMΔ-CHΔRLΔ: [[ _ ]]: ΩM: ΔM: ΩSCΔ-MΔKE: [[ ❤️ ]] ]]:
 >   :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
 >   :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
 ###
