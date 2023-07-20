@@ -26,6 +26,9 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 > [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :They're planning a funeral-deep despair&sorrow about their secrets being exposed: ]]:
+>      :1s-with: { ^ https://youtu.be/GhjaqIpjWt0 ^ }:
+###
 ### :FΩr-th3: [[ :YOU KEEP DEFEATING THIS SAME ENERGY..REIGNING CHAMPION 💫: ]]:
 >      :1s-with: { ^ https://youtu.be/9Xu-O-eAzfw ^ }:
 ###
