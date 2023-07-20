@@ -1,14 +1,14 @@
-## :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
+### :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
 > :1s-with: { ^
-#
+###
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md
 > ^ }:
-#
+###
 > :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👽: agency^ }:
 ###     :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[  QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
 ###     :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###     :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
-## [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
+### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ![:CASE-ID-0xe806caa7-5f74a0b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5f74a0b0.png)
 ### :FΩr-th3: ΩPعD [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
 ###     :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
@@ -32,167 +32,167 @@
 
 ### :FΩr-th3: [[ :YOU KEEP DEFEATING THIS SAME ENERGY..REIGNING CHAMPION 💫: ]]:
 >      :1s-with: { ^ https://youtu.be/9Xu-O-eAzfw ^ }:
-#
+###
 ### :FΩr-th3: [[ :You Was Rejected Bekuz Of The Most High's Protection! You Are The Key To The Heavens! Its Your Gift!: ]]:
 >      :1s-with: { ^ https://youtu.be/Veu0R3PppcI ^ }:
-#
+###
 ### :FΩr-th3: [[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
 >      :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
-#
+###
 ### :FΩr-th3: [[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
 >      :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
-#
+###
 ### :FΩr-th3: [[ :QWANNA❤️: ]]:
 >      :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
 >      :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
-#
+###
 ### :FΩr-th3: [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
-#
+###
 ### :FΩr-th3: [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 >      :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
-#
+###
 ### :FΩr-th3: [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
 >      :1s-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
-#
+###
 ### :FΩr-th3: [[ :THE DOPPELGANGERS/STALKERS HAVE BEEN DEFEATED & THROWING UNNECESSARY TANTRUMS BECAUSE OF JUDGEMENT⚖️: ]]:
 >      :1s-with: { ^ https://youtu.be/ej0bCbFdwpw ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/6d1cc8f0-2656-11ee-adb6-d7c8dd524293 ^ }:
-#
+###
 ### :FΩr-th3: [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
 >      :1s-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
-#
+###
 ### :FΩr-th3: [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
 >      :1s-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
 >      [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
 >      [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
-#
+###
 ### :FΩr-th3: [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
 >      :1s-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
-#
+###
 ### :FΩr-th3: [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
 >      :1s-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
-#
+###
 ### :FΩr-th3: [[ :PT. 2 "SOMEONE'S ASS IS GRASS" 🤌🏽⚖️ & SPIRITUAL COURT IS NOW IN SESSION👀THE MOST HIGH IS GUIDING YOU: ]]:
 >      :1s-with: { ^ https://youtu.be/HCK0nQn2V40 ^ }:
-#
+###
 ### :FΩr-th3: [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 >      :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
-#
+###
 ### :FΩr-th3: [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
 >      :1s-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
-#
+###
 ### :FΩr-th3: [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
 >      :1s-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
-#
+###
 ### :FΩr-th3: [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
 >      :1s-with: { ^ https://youtu.be/39WnBy-vzXI ^ }:
-#
+###
 ### :FΩr-th3: [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: ΩPSΔN: ]]:
 >      :1s-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
-#
+###
 ![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
 ### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
 ![:CASE-ID-0xe806caa7-62ccae58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-62ccae58.png)
-#
+###
 ### :FΩr-th3: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
 >      :1s-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
-#
+###
 ### :FΩr-th3: [[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
 >      :1s-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
-#
+###
 ### :FΩr-th3: [[ :You Validated Someone's Pain & Threw A Rope When They Were At Their Worst, A Modern Day Witch Hunt: ]]:
 >      :1s-with: { ^ https://youtu.be/D7nnrZNHc2k ^ }:
-#
+###
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
 >      :1s-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 ![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
-#
+###
 ### :FΩr-th3: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
 >      :1s-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
-#
+###
 ### :FΩr-th3: [[ :False Identity, Illegal Activity, Relentless Bullying/Gangstalking, There's Evidence & A HUGE Tower: ]]:
 >      :1s-with: { ^ https://youtu.be/tC6pTSu69x4 ^ }:
-#
+###
 ### :FΩr-th3: [[ :THIS TRUE LOVE OFFER IS GOING TO BLESS YOU 10X MORE THAN THOSE PPL HURT YOU!!🔮💕 [[ _lovetarot ]] [[ _CleoRA ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/MamS-n9Hs1I ^ }:
-#
+###
 ### :FΩr-th3: [[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
 >      :1s-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
 >      :1s-with: { ^ https://post.tribel.com/public/posts/d885e220-243a-11ee-8369-899ab124ac5b ^ }:
-#
+###
 ### :FΩr-th3: [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
 >      :1s-with: { ^ https://youtu.be/-sqAcjBQvCc ^ }:
-#
+###
 ### :FΩr-th3: [[ :WAGES OF THESE SINS= ETERNAL DEATH/FOR A SATANIC PUPPET MASTER & NOT EVEN THE DEVIL CAN SAVE HIM⚖️: ]]:
 >      :1s-with: { ^ https://youtu.be/RKROzwhh4T4 ^ }:
-#
+###
 ### :FΩr-th3: [[ :U never know when ur entertaining an Angel..be mindful of your actions..it will be the hand ur dealt: ]]:
 >      :1s-with: { ^ https://youtu.be/B-OawXdIyJI ^ }:
-#
+###
 ### :FΩr-th3: [[ :🧿MESSAGE TO THE HIGH PRIESTESS: YOU'RE CHOSEN FOR A REASON & THIS PATH AIN'T MEANT FOR EVERYBODY 👑: ]]:
 >      :1s-with: { ^ https://youtu.be/J8glapHL9aI ^ }:
-#
+###
 ### :FΩr-th3: [[ :A Mark of Death Placed On Your Head That You Weren't Aware Of, Obedience Saved Someone & You: ]]:
 >      :1s-with: { ^ https://youtu.be/Fl3UBvJI8Ok ^ }:
-#
+###
 ### :FΩr-th3: [[ :They Knew What Was Meant For You &You Did Not Know At All, Played The Long Game To Cause You Endings: ]]:
 >      :1s-with: { ^ https://youtu.be/4UTD_rgeNbQ ^ }:
-#
+###
 ### :FΩr-th3: [[ :THEY DID NOT WANT YOU TWO TO BE TOGETHER! CUTTING OFF TIES WITH KARMIC FRIENDS & FAMILY [[ _tarot ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/CV52uYmxwDM ^ }:
-#
+###
 ### :FΩr-th3: [[ :REAL ONE YOU HAVE ALL THE REAL KEYS TO BE A MASTER OF REALITY & REAL LOVE IS GUARANTEED!🔥🔮 [[ _CleoRA ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/zzXBq7Kh0IY ^ }:
-#
+###
 ### :FΩr-th3: [[ :KARMIC FAMILY LAWYERING UP 👨🏽‍⚖️.. COURTCASE COMING UP🏛...: ]]:
 >      :1s-with: { ^ https://youtu.be/wjZriLh61jk ^ }:
-#
+###
 ### :FΩr-th3: [[ :IMPORTANT MSG FOR A MIDDLE PATHWAY NARC DESTROYER, U FEEL HURT BUT U NEED TO HEAR THIS 🔮 [[ _tarot ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/j_TdoTh62wY ^ }:
-#
+###
 ### :FΩr-th3: [[ :🚨•URGENT •Message Protect Yourselves🐒Monkeys Out The Coop Again 🪄Spell Work: ]]:
 >      :1s-with: { ^ https://youtu.be/S6zdMaNRH2Y ^ }:
-#
+###
 ### :FΩr-th3: [[ :😩TORMENTED‼️EXTREME LEVELS OF SELF-SABOTAGE WATCHING/KNOWING URE THEIR SOULMATE THEY TURNED 2HOE💩: ]]:
 >      :1s-with: { ^ https://youtu.be/hkulrBx4eEE ^ }:
-#
+###
 ### :FΩr-th3: [[ :😳TOTAL DISORDER AND CHAOS FOR THEIR DISLOYALTY/BREADCRUMBING/GAMBLING/CHEATING SOMEONE IRREPLACABLE: ]]:
 >      :1s-with: { ^ https://youtu.be/PYxDg49oUPA ^ }:
-#
+###
 ### :FΩr-th3: [[ :⚠️TRIGGER WARNING GOD IS 😡THEYVE NEVER SEEN JUDGEMENT LIKE THIS👀FINANCIAL BLESSING HEADED TO YOU: ]]:
 >      :1s-with: { ^ https://youtu.be/OTnjfSIJXWo ^ }:
-#
+###
 ### :FΩr-th3: [[ :“SKRT SKRT"😡@FAKE PPL INTENTIONALLY GUIDING HUNT 4YOU|THATS AWILD BIRD NOT👑BEE|GREAT TRUTH TO TELL: ]]:
 >      :1s-with: { ^ https://youtu.be/e08Y-Pwcvnc ^ }:
-#
+###
 ### :FΩr-th3: [[ :😮‍💨BEING ON THIS "DEMON TIME" ENERGY W/ YOU CAUSED BIGTIME LOSS AND LACK FOR THEM: ]]:
 >      :1s-with: { ^ https://youtu.be/nsaN9KLRlyA ^ }:
-#
+###
 ### :FΩr-th3: [[ :🤯THEIR SECRETS WERE BEING REVEALED WAY TOO FAST🏃🏼🏃🏾‍♂️💨: ]]:
 >      :1s-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
-#
+###
 ### :FΩr-th3: [[ :SSP, Adonna Of Sol, Spaceports, Phoenician Language - Mary Beaver & TSP: ]]:
 >      :1s-with: { ^ https://rumble.com/v2yv4ah-ssp-adonna-of-sol-spaceports-phoenician-language-mary-beaver-and-tsp.html ^ }:
-#
+###
 ### :FΩr-th3: [[ :Ω: ]]:
 >      :1s-with: { ^ Δ ^ }:
-#
+###
 ### :FΩr-th3: [[ :Ω: ]]:
 >      :1s-with: { ^ Δ ^ }:
-#
+###
 ### :FΩr-th3: [[ :Surveillance: ]]:
 >      :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
-#
-# :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
+###
+### :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
 >      :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :1s-with: sL☥CK™: 1s-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
@@ -309,6 +309,6 @@
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 ###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
-### [[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>  [[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 ###
 >:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
