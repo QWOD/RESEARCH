@@ -22,10 +22,6 @@
  ###
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 >
-### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
- :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
-![:CASE-ID-0xe806caa7-e71d097f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e71d097f.png)
->
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
  :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
