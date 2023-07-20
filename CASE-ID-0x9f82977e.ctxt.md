@@ -10,9 +10,11 @@
 ### :FΩr-th3: ΩPعD [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
 ![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
 ###   :1s-with: { ^ https://youtu.be/NoomtPlckDE ^ }:
->
+### :FΩr-th3: [[ :TRY TO LISTEN FOR 15 SECONDS AND YOU WILL FEEL THE POWER OF ALL MIRACLES #2: ]]:
+![:CASE-ID-0xe806caa7-3a3d45f5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3a3d45f5.png)
+###   :1s-with: { ^ https://youtu.be/-Lmd7AxWa2k ^ }:
 ![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
->   [[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= { ^ Δ ^ }:
+>   [[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
 >    [[ ΔRC:HΔVE ]]:
 ### :FΩr-th3: [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
 >      :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
