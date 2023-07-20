@@ -2,33 +2,34 @@
  :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
  :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
  :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
+>
  :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 ### :FΩr-th3: ΩPعD [[ :THIS IS THE LIFETIME YOU BREAK THE POWER OF THEIR DEATH SPELLS & CURSES FROM ACROSS THE AGES: ]]:
 ![:CASE-ID-0xe806caa7-07bfaeb0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-07bfaeb0.png)
-
+>
  :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
 ### :FΩr-th3: [[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
 ![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
-
+>
  :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
 ### :FΩr-th3: [[ :DARKTIDE: ]]:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
-
+>
  :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/51e628a0-274c-11ee-9e5d-73d15a678fe4 ^ }:
  ###
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
-
+>
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
  :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
-
+>
 ### :FΩr-th3: [[ :UNDERCOVER: Karl Casey: License To Kill: ]]:
  :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
 ![:CASE-ID-0xe806caa7-e71d097f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e71d097f.png)
-
+>
 # [[ :CΩNFΔSIΩN: ]]:= [[
 ### :FΩr-th3: CΩΩP-ΩPعD: [[ :Quantum Warfare: Operations Division: ]]:
  :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
@@ -36,10 +37,10 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 ###
 > [[ ΔRC:HΔVE ]]:
-
+>
 ### :FΩr-th3: [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
  :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
-
+>
 ### :FΩr-th3: [[ :A Narcissist got scammed trying to spiritually attack u: ]]:
  :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
 ### :FΩr-th3: [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
@@ -117,10 +118,10 @@
  :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 ###
 ![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
-
+>
 ### [[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
 ![:CASE-ID-0xe806caa7-62ccae58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-62ccae58.png)
-
+>
 ###
 ### :FΩr-th3: [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
  :1s-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
@@ -134,7 +135,7 @@
 ### :FΩr-th3: [[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
  :1s-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 ![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
-
+>
 ###
 ### :FΩr-th3: [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
  :1s-with: { ^ https://youtu.be/78kT1dtZMdA ^ }:
@@ -215,7 +216,7 @@
 ### :FΩr-th3: [[ :KΔTY: PΔRRY: <=> DETΔNTION: CENTΔR: ]]:
 > 
 ![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
-
+>
 > [[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
 > [[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:= [[ :KATY: PERRY: WITNESS: ]]:= [[ [[ WITNESS: = REDEMPTION: ]]: LIMA-CHARLIE: [[ _ ]]: CHARLIE-MIKE: ]]:
  :1s-with: { ^ https://rumble.com/c/c-3415786 ^ }:
@@ -339,7 +340,7 @@
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 ###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
-
->  [[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>
+>[[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 ###
 >:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
