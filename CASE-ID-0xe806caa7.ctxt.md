@@ -31,6 +31,9 @@
 >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
 >
  :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
+>
+![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
+>
 # [[ :CΩNFΔSIΩN: ]]:= [[
 >[[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
 >
