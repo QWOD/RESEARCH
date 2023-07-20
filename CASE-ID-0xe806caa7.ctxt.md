@@ -5,14 +5,14 @@
 ###    :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 ###    :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-113f244f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-113f244f.png)
-### :FΩr-th3: ΩPعD [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
-###   :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
-### :FΩr-th3: [[ :DARKTIDE: ]]:
-![:CASE-ID-0xe806caa7-30b9dddf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-30b9dddf.png)
-###   :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
+### :FΩr-th3: ΩPعD [[ :THIS IS THE LIFETIME YOU BREAK THE POWER OF THEIR DEATH SPELLS & CURSES FROM ACROSS THE AGES: ]]:
+![:CASE-ID-0xe806caa7-07bfaeb0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-07bfaeb0.png)
+###   :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
+### :FΩr-th3: [[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
+![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
+###   :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/39e760d0-273c-11ee-9ede-2beff1538f70 ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ Δ ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
 >   :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
@@ -26,6 +26,9 @@
 >   [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 >   [[ ΔRC:HΔVE ]]:
+
+### :FΩr-th3: [[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
+>   :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
 
 ### :FΩr-th3: [[ :A Narcissist got scammed trying to spiritually attack u: ]]:
 >   :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
