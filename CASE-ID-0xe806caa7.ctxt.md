@@ -11,7 +11,7 @@
 ### :FΩr-th3: [[ :Archangel Raphael May He Remove Stress, Anxiety & Calmness Forget Negative Thoughts: ]]:
 ![:CASE-ID-0xe806caa7-1c29e960.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-1c29e960.png)
 ###   :1s-with: { ^ https://youtu.be/LjwGCwEl8Jg ^ }:
-###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/cb364e20-271e-11ee-a412-790f2645076b ^ }:
+###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/cb364e20-271e-11ee-a412-790f2645076b ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: 0: ]]:= [[ FOR: GIVE: is-with: RIGHT: HAND: ]]:= [[ FOR: GET: is-with: LEFT: ]]:
 >   :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
