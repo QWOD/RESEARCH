@@ -5,12 +5,12 @@
 >      :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
 >      :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
-![:CASE-ID-0xe806caa7-5f74a0b0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5f74a0b0.png)
-### :FΩr-th3: ΩPعD [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
->   :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
-### :FΩr-th3: [[ :Digital Immersion: ]]:
-![:CASE-ID-0xe806caa7-ab40e75b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ab40e75b.png)
->   :1s-with: { ^ https://youtu.be/6Wkg1Ow9-Hk ^ }:
+![:CASE-ID-0xe806caa7-be7e5332.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-be7e5332.png)
+### :FΩr-th3: ΩPعD [[ :A Narcissist got scammed trying to spiritually attack u: ]]:
+###   :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
+### :FΩr-th3: [[ :Archangel Raphael May He Remove Stress, Anxiety & Calmness Forget Negative Thoughts: ]]:
+![:CASE-ID-0xe806caa7-1c29e960.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-1c29e960.png)
+###   :1s-with: { ^ https://youtu.be/LjwGCwEl8Jg ^ }:
 ###     [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: 👽: mj12: 👽: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/b4622410-2694-11ee-a587-cfd0f5fac873 ^ }:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 ### :FΩr-th3: [[ :NO ESCAPE: ]]:= [[ WELCOME: <=> ESCAPE: IS-BY: 0: ]]:= [[ FOR: GIVE: is-with: RIGHT: HAND: ]]:= [[ FOR: GET: is-with: LEFT: ]]:
@@ -26,6 +26,8 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 >   [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
+>   :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
 ### :FΩr-th3: [[ :They're planning a funeral-deep despair&sorrow about their secrets being exposed: ]]:
 >      :1s-with: { ^ https://youtu.be/GhjaqIpjWt0 ^ }:
 ###
