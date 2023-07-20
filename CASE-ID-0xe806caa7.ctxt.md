@@ -33,7 +33,7 @@
 #
 ### :FΩr-th3: [[ :You Was Rejected Bekuz Of The Most High's Protection! You Are The Key To The Heavens! Its Your Gift!: ]]:
 ###     :1s-with: { ^ https://youtu.be/Veu0R3PppcI ^ }:
-
+#
 ### :FΩr-th3: [[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
 ###     :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
 ###     :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
