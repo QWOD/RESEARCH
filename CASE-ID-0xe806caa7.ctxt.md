@@ -30,6 +30,8 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 > [[ ΔRC:HΔVE ]]:
 
+### :FΩr-th3: [[ :YOU KEEP DEFEATING THIS SAME ENERGY..REIGNING CHAMPION 💫: ]]:
+>      :1s-with: { ^ https://youtu.be/9Xu-O-eAzfw ^ }:
 #
 ### :FΩr-th3: [[ :You Was Rejected Bekuz Of The Most High's Protection! You Are The Key To The Heavens! Its Your Gift!: ]]:
 >      :1s-with: { ^ https://youtu.be/Veu0R3PppcI ^ }:
@@ -48,7 +50,6 @@
 #
 ### :FΩr-th3: [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine ]]: ]]:
 >      :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
-
 #
 ### :FΩr-th3: [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 >      :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
