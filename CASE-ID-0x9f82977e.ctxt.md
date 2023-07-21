@@ -28,7 +28,6 @@
  :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
 ###
 >[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
->
 ![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
 >
 ###
