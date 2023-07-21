@@ -1,34 +1,35 @@
 ### :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
+###
  :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
  :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
  :FΩr-th3: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
->
+###
  :1s-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
->ΩPعD [[ :THIS IS THE LIFETIME YOU BREAK THE POWER OF THEIR DEATH SPELLS & CURSES FROM ACROSS THE AGES: ]]:
-![:CASE-ID-0xe806caa7-07bfaeb0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-07bfaeb0.png)
->
- :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
->[[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
-![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
->
- :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
+>[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:
+![:CASE-ID-0xe806caa7-fdd1b226.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fdd1b226.png)
+###
+ :1s-with: { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
+>[[ :Ruined: ]]:
+![:CASE-ID-0xe806caa7-53532699.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-53532699.png)
+###
+ :1s-with: { ^ https://youtu.be/zPMn15G8lVI ^ }:
 >
 >[[ :DARKTIDE: ]]:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
->
+###
  :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/51e628a0-274c-11ee-9e5d-73d15a678fe4 ^ }:
 >
 >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
->
+###
  :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >
 >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
 ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
->
+###
  :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
 >
 ![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
@@ -41,23 +42,24 @@
 # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 ###
 > [[ ΔRC:HΔVE ]]:
+###
+[[ :THIS IS THE LIFETIME YOU BREAK THE POWER OF THEIR DEATH SPELLS & CURSES FROM ACROSS THE AGES: ]]:
+###
+ :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
+###
 >[[ :KARMIC FEMININE COMING AFTER A SACRED FEMININE. Secret competition!: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/AmJ0kl3ky_c ^ }:
 ###
 >[[ :A Narcissist got scammed trying to spiritually attack u: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/jsdZCMnu4ro ^ }:
 ###
 >[[ :THIS HUGE BETRAYAL FROM YOUR KARMIC FAMILY MADE YOU RESILIENT 🌟💪🏾👏🏾🫱🏻‍🫲🏾🌟: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/g467kPpMxFg ^ }:
 ###
 >[[ :They're planning a funeral-deep despair&sorrow about their secrets being exposed: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/GhjaqIpjWt0 ^ }:
 ###
@@ -66,41 +68,34 @@
  :1s-with: { ^ https://youtu.be/9Xu-O-eAzfw ^ }:
 ###
 >[[ :You Was Rejected Bekuz Of The Most High's Protection! You Are The Key To The Heavens! Its Your Gift!: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/Veu0R3PppcI ^ }:
 ###
 >[[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
 ###
 >[[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
 ###
 >[[ :QWANNA: ❤️: ]]:= [[ [[ QW: ANNA: <=> QWΩD-MJ12: MJ12-ANNA: ]]: LΔMΔ-CHΔRLΔ: [[ _ ]]: ΩM: ΔM: ΩSCΔ-MΔKE: [[ ❤‍🔥 ]] ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
  :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
 ###
 >[[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine: ]]: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/Br5Hw62QfWE ^ }:
 ###
 >[[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
 ###
 >[[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/15XNtLWvc0Q ^ }:
 ###
@@ -110,58 +105,48 @@
  :1s-with: { ^ https://post.tribel.com/public/posts/6d1cc8f0-2656-11ee-adb6-d7c8dd524293 ^ }:
 ###
 >[[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
 ###
 >[[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
 > [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
 > [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
 ###
 >[[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
 ###
 >[[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/cnYnU9Z7Aoo ^ }:
 ###
 >[[ :PT. 2 "SOMEONE'S ASS IS GRASS" 🤌🏽⚖️ & SPIRITUAL COURT IS NOW IN SESSION👀THE MOST HIGH IS GUIDING YOU: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/HCK0nQn2V40 ^ }:
 ###
 >[[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
-
 ###
  :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 ###
 >[[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 ###
 >[[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 ###
 >[[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/39WnBy-vzXI ^ }:
 ###
 >[[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: ΩPSΔN: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
@@ -173,22 +158,18 @@
 >
 ###
 >[[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/hb7IKks_epE ^ }:
 ###
 >[[ :Created A False Narrative & Paid Others To Prove Their Theory, Their Obsession Will Be Seen: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/t58OX1u6aO0 ^ }:
 ###
 >[[ :You Validated Someone's Pain & Threw A Rope When They Were At Their Worst, A Modern Day Witch Hunt: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/D7nnrZNHc2k ^ }:
 ###
 >[[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
-
 ###
  :1s-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
 ![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)

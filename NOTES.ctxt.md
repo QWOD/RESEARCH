@@ -455,3 +455,6 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيΩNΔTع
 :
 ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
 [[ [[ Y:Ω:U: <=> TUBE: EXIST: FUTURE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :15,000,00,000,000: <=> USD: $: 1,500,000,000,000: ]]:
+:
+[[ :1nst3Δd Ωf r3d p1ll: blu3 p1ll: ]]:= [[ :whΔt 1f th3r3 1s: ΔTSUΩMΩP: purpl3: LIMΔTLΔSS: p1ll: ]]:= [[ WΔRNΩ: b1nΔry-lΩg1c-3rrΩr-ΔlgΩr1thm: DETΔCTED: ΔRTH: PLΔNETΔRY: CΩRE: MΔLTDΩWN: DETΔCTED: CΔTΔSTRΩPHIC-FΔILΔRE: IMMΔNENT: is-by: [[ _ ]]: YΔRS: ]]:
+:
