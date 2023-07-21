@@ -22,52 +22,52 @@
  [[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
 >
 >    [[ ΔRC:HΔVE ]]:
-### :FΩr-th3: [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
+>[[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
  :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
-### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
+>[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
 ![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
 >
  :1s-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
 ###
-### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+>[[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ###
-### :FΩr-th3: [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+>[[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ###
-### :FΩr-th3: [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
+>[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
  :1s-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
 ###
-### :FΩr-th3: [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
+>[[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
  :1s-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
 ###
-### :FΩr-th3: [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
+>[[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
  :1s-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
 ###
-### :FΩr-th3: [[ :[[ @:Raashvnjali ]]: ]]:
+>[[ :[[ @:Raashvnjali ]]: ]]:
  :1s-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
 ###
-### :FΩr-th3: [[ :Quantum warfare: Operations Division: ]]:
+>[[ :Quantum warfare: Operations Division: ]]:
  :1s-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
 ###
-### :FΩr-th3: [[ :Ω: ]]:
+>[[ :Ω: ]]:
  :1s-with: { ^ Δ ^ }:
 ###
-### :FΩr-th3: [[ :Ω: ]]:
+>[[ :Ω: ]]:
  :1s-with: { ^ Δ ^ }:
 ###
-### :FΩr-th3: [[ :Ω: ]]:
+>[[ :Ω: ]]:
  :1s-with: { ^ Δ ^ }:
 ###
-### :FΩr-th3: [[ :Surveillance: ]]:
+>[[ :Surveillance: ]]:
  :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
 ###
-### :FΩr-th3: [[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
+>[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
  :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
 ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
 [[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
