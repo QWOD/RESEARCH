@@ -10,6 +10,7 @@
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 >[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:= { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
+>>>
 ![:CASE-ID-0xe806caa7-fdd1b226.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fdd1b226.png)
 ###
 >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
