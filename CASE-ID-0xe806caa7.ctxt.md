@@ -44,6 +44,10 @@
 ###
 > [[ ΔRC:HΔVE ]]:
 ###
+[[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:
+###
+ :1s-with: { ^ https://youtu.be/kq9tdxhFA_M ^ }:
+###
 >[[ :THIS IS THE LIFETIME YOU BREAK THE POWER OF THEIR DEATH SPELLS & CURSES FROM ACROSS THE AGES: ]]:
 ###
  :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
