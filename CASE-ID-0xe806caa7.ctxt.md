@@ -12,6 +12,8 @@
  >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
  >![:CASE-ID-0xe806caa7-e7762156.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e7762156.png)
  >>>
+ >[[ :ΩPعD: ]]:= [[ :An Elder that’s crossed wants to warm u about this set up: ]]:= { ^ https://youtu.be/fAK6Ye8mF0s ^ }:
+ >>>
  >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
  >>>
  >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
@@ -54,7 +56,7 @@
 ###
  :1s-with: { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
 ###
-[[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:= [[ :tried to be sneaky: ]]:= [[ IMΔGINE: TΩDDLER-MΔNDED-LΔFE-FΩRM: [[ TMLF ]]: TRYΔNG-TΩ-BΔ-SNΔKY: hired: RETARDS: to-assassinate: PROFESSIONAL: ]]:= [[ 🤣 ]]:= [[ :nΩbΩdy wΔnts thΔm: thΔy ar3 a hΩ3: ]]:= [[ 💩🤮 ]]:= [[ these: PEOPLE: literally-make: US: sick: ]]:
+ >[[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:= [[ :tried to be sneaky: ]]:= [[ IMΔGINE: TΩDDLER-MΔNDED-LΔFE-FΩRM: [[ TMLF ]]: TRYΔNG-TΩ-BΔ-SNΔKY: hired: RETARDS: to-assassinate: PROFESSIONAL: ]]:= [[ 🤣 ]]:= [[ :nΩbΩdy wΔnts thΔm: thΔy ar3 a hΩ3: ]]:= [[ 💩🤮 ]]:= [[ these: PEOPLE: literally-make: US: sick: ]]:
 ###
  :1s-with: { ^ https://youtu.be/kq9tdxhFA_M ^ }:
 ###
