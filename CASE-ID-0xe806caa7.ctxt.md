@@ -10,12 +10,12 @@
 ![:CASE-ID-0xe806caa7-07bfaeb0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-07bfaeb0.png)
 >
  :1s-with: { ^ https://youtu.be/Ivl15wRomtk ^ }:
-### :FΩr-th3: [[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
+>[[ :432Hz - Alpha Waves Heal The Body and Spirit, Cleanse Negative Energy, Absorb Cosmic Energy: ]]:
 ![:CASE-ID-0xe806caa7-cb4f2e6f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-cb4f2e6f.png)
 >
  :1s-with: { ^ https://youtu.be/Xsc08LuQKtk ^ }:
 >
-### :FΩr-th3: [[ :DARKTIDE: ]]:
+>[[ :DARKTIDE: ]]:
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 >
  :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
