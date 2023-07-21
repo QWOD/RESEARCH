@@ -17,9 +17,6 @@
  :1s-with: { ^ https://youtu.be/NoomtPlckDE ^ }:
 ![:CASE-ID-0x9f82977e-7b896574.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-7b896574.png)
 >
- :1s-with: { ^ https://youtu.be/-Lmd7AxWa2k ^ }:
-![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
->
 ###
 >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
 ###
