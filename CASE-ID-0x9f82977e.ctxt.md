@@ -23,7 +23,7 @@
 ###
 >[[ ΔRC:HΔVE ]]:
 ###
->[[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
+[[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
  :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
 ###
