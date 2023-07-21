@@ -29,7 +29,7 @@
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/4eb74780-27a7-11ee-8e5f-295a108facf5 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ Δ ^ }:
  >>>
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
@@ -292,15 +292,21 @@
 ###
  :1s-with: { ^ https://rumble.com/v2yv4ah-ssp-adonna-of-sol-spaceports-phoenician-language-mary-beaver-and-tsp.html ^ }:
 ###
-[[ :Ω: ]]:
+ >[[ :Jesus Christ Destroys Fears In Subconscious, Obsessive Thoughts and Worries ]]:= { ^ https://youtu.be/3f15ZGvLURc ^ }:
+ >>>
+ >![:CASE-ID-0xe806caa7-f2eb66da.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f2eb66da.png)
+ >>>
+ >[[ :THEY USE THEIR GIFTS FUR EVIL 👿 YOU USE YOUR GIFTS FOR GOOD. Fallen angel vs earth angel: ]]:
+ >>>
+ >![:CASE-ID-0xe806caa7-b4cbd22c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b4cbd22c.png)
+###
+ :1s-with: { ^ https://youtu.be/U8IctjY4nTA ^ }:
+###
+ >[[ :Ω: ]]:
 ###
  :1s-with: { ^ Δ ^ }:
 ###
-[[ :Ω: ]]:
-###
- :1s-with: { ^ Δ ^ }:
-###
-[[ :Surveillance: ]]:
+ >[[ :Surveillance: ]]:
 ###
  :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
 ###
