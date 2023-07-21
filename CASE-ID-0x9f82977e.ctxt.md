@@ -25,7 +25,6 @@
  >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
  >>>
  >![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
->
 ###
  >[[ ΔRC:HΔVE ]]:
 ###
@@ -78,6 +77,7 @@
  :1s-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
 ###
  >![:CASE-ID-0x9f82977e-83b727fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-83b727fa.png)
+ >>>
  >[[ :💌😭Sunday will be very dangerous for your family...!!!!: ]]:
 ###
  :1s-with: { ^ https://youtu.be/3tQoc8b5Eus ^ }:
