@@ -21,8 +21,8 @@
  >>>
  >[[ :ΩPعD: ]]:= [[ :Pt2-U need to get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/vziuou6wt8w ^ }:
  >>>
-![:CASE-ID-0xe806caa7-5180b550.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5180b550.png)
- >[[ :Justice: ]]:= { ^ https://youtu.be/lBxeWxw7jXA ^ }:
+ >![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
+ >[[ :Ruined: ]]:= { ^ https://youtu.be/zPMn15G8lVI ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-53532699.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-53532699.png)
  >>>
