@@ -9,10 +9,8 @@
 >>>
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
->[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:
+>[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:= { ^ { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
 ![:CASE-ID-0xe806caa7-fdd1b226.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fdd1b226.png)
-###
- :1s-with: { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
 ###
 >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
 >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:
@@ -28,7 +26,7 @@
 ###
  :1s-with: { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
 ###
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/0ce6a160-2767-11ee-8aec-63c52c47d2d9 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/757c3590-2777-11ee-8ef6-e9212c8d2331 ^ }:
 >
 >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
 ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
