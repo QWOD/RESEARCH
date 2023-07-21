@@ -8,6 +8,7 @@
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 >
+>[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ https://youtu.be/bpa2WcPOar8 ^ }:
 ![:CASE-ID-0xe806caa7-3430b111.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3430b111.png)
 >
 ###
