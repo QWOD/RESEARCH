@@ -34,7 +34,7 @@
  :1s-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
 ###
->[[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+[[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ###
@@ -47,11 +47,11 @@
  :1s-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
 ###
->[[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
+[[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
 ###
  :1s-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
 ###
->[[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
+[[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
 ###
  :1s-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
 ###
@@ -59,7 +59,7 @@
 ###
  :1s-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
 ###
->[[ :Quantum warfare: Operations Division: ]]:
+[[ :Quantum warfare: Operations Division: ]]:
 ###
  :1s-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
 ###
