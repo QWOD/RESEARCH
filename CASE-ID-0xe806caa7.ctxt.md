@@ -46,7 +46,7 @@
  >>>
 [[ :CΩNFΔSIΩN: ]]:= [[
  >>>
- [[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
+ >[[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
  >>>
  >:1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
  >>>
