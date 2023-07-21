@@ -40,12 +40,12 @@
  
  ![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
  
-# [[ :CΩNFΔSIΩN: ]]:= [[
->[[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
->>>
+ # [[ :CΩNFΔSIΩN: ]]:= [[
+ >[[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
+ 
  :1s-with: { ^ https://www.tribel.com/qwod_mj12/wall ^ }:
->[[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
-# ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
+ >[[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:= [[ :Confusion: ]]:= { ^ https://youtu.be/DnFDMRphYi0 ^ }: ]]:= { ^ https://rumble.com/c/c-3415786 ^ }:
+ # ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 ###
 >[[ ΔRC:HΔVE ]]:
 ###
