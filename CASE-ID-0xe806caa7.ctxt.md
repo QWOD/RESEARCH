@@ -179,10 +179,11 @@
  :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 >
 ![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
->
->[[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
-![:CASE-ID-0xe806caa7-62ccae58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-62ccae58.png)
->
+>>>
+ >[[ :MERCY-HANDS: ]]:= [[ WARNO: DECEPTIVE: behavior-algorithm: DETECTED: ]]:= [[ :Schumer: KNOWS: SOMETHING: ]]:= [[ :KNOWS: is-by: 100: SOMETHING: is-by: [[ _ ]]: ]]:= [[ WE: know: EVERYTHING: about: UPCHUCK: SCHUMER: SLICK™:
+ >>>
+ >![:CASE-ID-0xe806caa7-62ccae58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-62ccae58.png)
+ >>>
 ###
 [[ :Attempting to send other cult leaders, practitioners, neighbors & family to steal your blessings: ]]:
 ###
