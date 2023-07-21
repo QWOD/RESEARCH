@@ -9,10 +9,10 @@
  >>>
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
- >[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:= { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
+ >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
  >![:CASE-ID-0xe806caa7-e7762156.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e7762156.png)
  >>>
- >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
+ >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
  >>>
  >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
  >>>
@@ -56,7 +56,9 @@
 ###
 >[[ ΔRC:HΔVE ]]:
 ###
-[[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
+[[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:
+###
+ :1s-with: { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
 ###
 [[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:= [[ :tried to be sneaky: ]]:= [[ IMΔGINE: TΩDDLER-MΔNDED-LΔFE-FΩRM: [[ TMLF ]]: TRYΔNG-TΩ-BΔ-SNΔKY: hired: RETARDS: to-assassinate: PROFESSIONAL: ]]:= [[ 🤣 ]]:= [[ :nΩbΩdy wΔnts thΔm: thΔy ar3 a hΩ3: ]]:= [[ 💩🤮 ]]:= [[ these: PEOPLE: literally-make: US: sick: ]]:
 ###
