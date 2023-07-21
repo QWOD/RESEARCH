@@ -9,45 +9,52 @@
 >>>
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
->
->[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ https://youtu.be/bpa2WcPOar8 ^ }:
-![:CASE-ID-0xe806caa7-3430b111.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3430b111.png)
->
+ >>>
+ >[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ https://youtu.be/bpa2WcPOar8 ^ }:
+ >![:CASE-ID-0xe806caa7-3430b111.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3430b111.png)
+ >>>
 ###
->[[ :ΩPعD: ]]:= [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
-![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
->
+ >[[ :ΩPعD: ]]:= [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
+ >![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
+ >>>
 ###
  :1s-with: { ^ https://youtu.be/-Lmd7AxWa2k ^ }:
 ###
->[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
-![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
+ >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
+ >![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
 >
 ###
->[[ ΔRC:HΔVE ]]:
+ >[[ ΔRC:HΔVE ]]:
 ###
-[[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
+ [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
+###
  :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
 ###
->[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
-![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
->
+ >[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
+ >![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
+ >>>
 ###
  :1s-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
 ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
+###
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
 ###
 [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
 ###
  :1s-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
 ###
 [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
@@ -65,6 +72,11 @@
 [[ :Quantum warfare: Operations Division: ]]:
 ###
  :1s-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
+###
+ >![:CASE-ID-0x9f82977e-83b727fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-83b727fa.png)
+ >[[ :💌😭Sunday will be very dangerous for your family...!!!!: ]]:
+###
+ :1s-with: { ^ https://youtu.be/3tQoc8b5Eus ^ }:
 ###
 [[ :Ω: ]]:
 ###
