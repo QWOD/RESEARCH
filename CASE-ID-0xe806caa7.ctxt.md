@@ -9,10 +9,11 @@
  >>>
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
- >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
- >![:CASE-ID-0xe806caa7-e7762156.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e7762156.png)
+ >![:CASE-ID-0xe806caa7-da321483.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-da321483.png)
  >>>
  >[[ :ΩPعD: ]]:= [[ :An Elder that’s crossed wants to warm u about this set up: ]]:= { ^ https://youtu.be/fAK6Ye8mF0s ^ }:
+ >>>
+ >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
  >>>
  >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
  >>>
