@@ -292,7 +292,7 @@
  ###
  :1s-with: { ^ https://rumble.com/v2yv4ah-ssp-adonna-of-sol-spaceports-phoenician-language-mary-beaver-and-tsp.html ^ }:
  ###
- >[[ :Jesus Christ Destroys Fears In Subconscious, Obsessive Thoughts and Worries ]]:= { ^ https://youtu.be/3f15ZGvLURc ^ }:
+ >[[ :Jesus Christ Destroys Fears In Subconscious, Obsessive Thoughts and Worries: ]]:= { ^ https://youtu.be/3f15ZGvLURc ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-f2eb66da.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f2eb66da.png)
  >>>
