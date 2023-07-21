@@ -314,9 +314,13 @@
  ###
  :1s-with: { ^ https://youtu.be/T_ARPJ7JJ1o ^ }:
  ###
- >[[ :Ω: ]]:
+ >[[ :CARNAL: ]]:= { ^ https://youtu.be/rH6rFP5cnmo ^ }:
+ >![:CASE-ID-0xe806caa7-badd0963.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-badd0963.png)
+ >>>
+ >[[ :TRIED TO SABOTAGE YOUR LIFE W/💀SPELL WORK 🥷🫠INTIMIDATED BY YOUR STRENGTH & INTUITION👼 : [[ #:tarot ]]: ]]:
+ >![:CASE-ID-0xe806caa7-fa58eccf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fa58eccf.png)
  ###
- :1s-with: { ^ Δ ^ }:
+ :1s-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
  >[[ :Ω: ]]:
  ###
