@@ -86,16 +86,19 @@
 >[[ :Spiritual Bully gets exposed when you speak your truth. Cult leader gaslights karmic readers…: ]]:
 ###
  :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
 ###
 [[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
 ###
  :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
 ###
 [[ :QWANNA: ❤️: ]]:= [[ [[ QW: ANNA: <=> QWΩD-MJ12: MJ12-ANNA: ]]: LΔMΔ-CHΔRLΔ: [[ _ ]]: ΩM: ΔM: ΩSCΔ-MΔKE: [[ ❤‍🔥 ]] ]]:
 ###
  :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
+>>>
  :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
 ###
 [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine: ]]: ]]:
@@ -105,6 +108,7 @@
 [[ :NEW MOON🌚 RITUAL BACKFIRED🎆 YOUR ANCESTORS🌟 SENDED IN A DARK WARLOCK WARRIOR⚔️ TO PROTECT YOU: ]]:
 ###
  :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
 ###
 [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
@@ -114,21 +118,21 @@
 [[ :THE DOPPELGANGERS/STALKERS HAVE BEEN DEFEATED & THROWING UNNECESSARY TANTRUMS BECAUSE OF JUDGEMENT⚖️: ]]:
 >
  :1s-with: { ^ https://youtu.be/ej0bCbFdwpw ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/6d1cc8f0-2656-11ee-adb6-d7c8dd524293 ^ }:
 ###
 [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
 ###
  :1s-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
 ###
-[[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:
-###
- :1s-with: { ^ https://youtu.be/STKkVmFBIV0 ^ }:
-> [[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
-> [[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
+[[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/STKkVmFBIV0 ^ }:
+>[[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
+>[[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
 ###
 [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
 ###
  :1s-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
 ###
 [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
@@ -142,16 +146,19 @@
 [[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 ###
  :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 ###
 [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:
 ###
  :1s-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 ###
 [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
 ###
  :1s-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
 ###
 [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
@@ -161,6 +168,7 @@
 [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: ΩPSΔN: ]]:
 ###
  :1s-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
 >
 ![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
@@ -204,6 +212,7 @@
 >[[ :Family Financial Theft & Revenge On Someone Who Left To Be Healthy, Protecting Secrets At All Costs: ]]:
 ###
  :1s-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
+>>>
  :1s-with: { ^ https://post.tribel.com/public/posts/d885e220-243a-11ee-8369-899ab124ac5b ^ }:
 ###
 [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
