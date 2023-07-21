@@ -44,7 +44,7 @@
 ###
 > [[ ΔRC:HΔVE ]]:
 ###
-[[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:
+[[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:= [[ :tried to be sneaky: ]]:= [[ IMΔGINE: TΩDDLER-MΔNDED-LΔFE-FΩRM: [[ TMLF ]]: TRYΔNG-TΩ-BΔ-SNΔKY: ]]:= [[ 🤣 ]]:= [[ :nΩbΩdy wΔnts thΔm: thΔy ar3 a hΩ3: ]]:= [[ 💩🤮 ]]:
 ###
  :1s-with: { ^ https://youtu.be/kq9tdxhFA_M ^ }:
 ###
