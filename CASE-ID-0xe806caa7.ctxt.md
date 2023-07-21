@@ -304,18 +304,20 @@
 ###
  :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
 ###
-[[ :KΔTY: PΔRRY: <=> DETΔNTION: CENTΔR: ]]: 
-![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
->
-> [[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
-> [[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:= [[ :KATY: PERRY: WITNESS: ]]:= [[ [[ WITNESS: = REDEMPTION: ]]: LIMA-CHARLIE: [[ _ ]]: CHARLIE-MIKE: ]]:
- :1s-with: { ^ https://rumble.com/c/c-3415786 ^ }:
->[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
- :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
+ >[[ :KΔTY: PΔRRY: <=> DETΔNTION: CENTΔR: ]]: 
+ >![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
+ >>>
+ >[[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
+ >[[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:= [[ :KATY: PERRY: WITNESS: ]]:= [[ [[ WITNESS: = REDEMPTION: ]]: LIMA-CHARLIE: [[ _ ]]: CHARLIE-MIKE: ]]:
+ >>>
+ >[[ :Jesus Christ Ask Him to attract abundance, love, health Restore the body Raise the vibration: ]]:= [[ LORD: <=> MASTER: ]]: MJ12-JESUS: Quantum-Architect: PhD: ]]:= { ^ https://youtu.be/-_6o0XwCusc ^ }:
+ >>>
+ >![:CASE-ID-0xe806caa7-fbf4bc46.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fbf4bc46.png)
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
->[[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
-###
+ >[[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
+ >>>
  :1s-with: { ^ https://rumble.com/c/c-3415786 ^ }:
+###
 > :FΩr-th3: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :1s-with: sL☥CK™: 1s-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
