@@ -193,11 +193,8 @@
 ###
  :1s-with: { ^ https://youtu.be/D7nnrZNHc2k ^ }:
 ###
->[[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥🔥🔥🔥🔥🔥🔥🔥: ]]:
-###
- :1s-with: { ^ https://youtu.be/0qE26uN5jiE ^ }:
-![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
->
+ >[[ :WHERE LIVING AMONGST THE MF WALKING ☠️💀THEY ALL GOING TO BURN IN MF🔥: ]]:= { ^ https://youtu.be/0qE26uN5jiE ^ }:
+ >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 ###
 [[ :Karmic Fem Promised Money, S*x Crimes, Married To Flee, Slander To Cover Crimes, Group BUSTED: ]]:
 
