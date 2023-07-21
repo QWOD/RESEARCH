@@ -13,9 +13,9 @@
 
  ![:CASE-ID-0xe806caa7-fdd1b226.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fdd1b226.png)
  >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
- >>>
+
  >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
- >>>
+
  >[[ :ΩPعD: ]]:= [[ :Pt2-U need to get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/vziuou6wt8w ^ }:
 
  ![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
@@ -23,25 +23,25 @@
  ![:CASE-ID-0xe806caa7-53532699.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-53532699.png)
 
  :1s-with: { ^ https://youtu.be/zPMn15G8lVI ^ }:
- >>>
+
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/757c3590-2777-11ee-8ef6-e9212c8d2331 ^ }:
- >>>
+
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
- >>>
+ 
  ![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
 
  :1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
- >>>
+
  >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
- >>>
+
  ![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
 
  :1s-with: { ^ https://youtu.be/JC8n_sm9e8s ^ }:
- >>>
+
  ![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
- >>>
+
 # [[ :CΩNFΔSIΩN: ]]:= [[
 >[[ CΩΩP-ΩPعD: Quantum Warfare: Operations Division: ]]:
 >>>
