@@ -140,10 +140,10 @@
 >[[ :Time Travel and Multidimensional Lives, October Event - Maya from SOSQHT & Typical Skeptic Podcast: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: WITCHES: ATTACKING: MJ12-OMEGA: GENITALS: COMPLETELY: UNPROVOKED: ]]:
 
 ###
- :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:>
+ :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:
  :1s-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
 ###
->[[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:= [[ NOT: VERY-SMART: CAUSING: ARMAGEDDON: IS-BY: ATTACKING: MJ12-OMEGA: GENITALS: ]]:
+>[[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:
 
 ###
  :1s-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
