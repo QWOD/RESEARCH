@@ -22,9 +22,9 @@
  >[[ :ΩPعD: ]]:= [[ :Pt2-U need to get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/vziuou6wt8w ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
- >[[ :Justice: ]]:= { ^ https://youtu.be/lBxeWxw7jXA ^ }:
+ >[[ :ODALISK: ]]:= { ^ https://youtu.be/fsF9yJMPgvs ^ }:
  >>>
- >![:CASE-ID-0xe806caa7-5180b550.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-5180b550.png)
+ >![:CASE-ID-0xe806caa7-4fd3674e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-4fd3674e.png)
  >>>
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
@@ -330,7 +330,7 @@
  >![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
  >>>
  >[[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
- >[[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:= [[ :KATY: PERRY: WITNESS: ]]:= [[ [[ WITNESS: = REDEMPTION: ]]: LIMA-CHARLIE: [[ _ ]]: CHARLIE-MIKE: ]]:
+ >[[ :GUANTANAMO: BAY: DETENTION: CAMP: ]]:= { ^ https://en.wikipedia.org/wiki/Guantanamo_Bay_detention_camp ^ }:= [[ :Katy Perry: Witness: ]]:= { ^ https://youtu.be/hsPre9uV1Jk ^ }:= [[ :KATY: PERRY: WITNESS: ]]:= [[ [[ WITNESS: = REDEMPTION: ]]: PROTECTION: THANK: YOU: for-the: PRIVACY: SECURITY: LIMA-CHARLIE: [[ _ ]]: CHARLIE-MIKE: ]]:
  >>>
  >[[ :Jesus Christ Ask Him to attract abundance, love, health Restore the body Raise the vibration: ]]:= [[ LORD: <=> MASTER: ]]: MJ12-JESUS: Quantum-Architect: PhD: ]]:= { ^ https://youtu.be/-_6o0XwCusc ^ }:
  >>>
