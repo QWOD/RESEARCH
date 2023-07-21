@@ -11,7 +11,7 @@
 ![:CASE-ID-0x9f82977e-51bbba34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-51bbba34.png)
 >
 ###
->[[ ΩPعD: ]]:= [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
+>[[ :ΩPعD: ]]:= [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
 ![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
 >
 ###
