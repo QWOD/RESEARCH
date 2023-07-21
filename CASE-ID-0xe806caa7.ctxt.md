@@ -10,9 +10,9 @@
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
  >[[ :ΩPعD: ]]:= [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:= { ^ https://youtu.be/6QYjyq_Frp8 ^ }:
- >![:CASE-ID-0xe806caa7-fdd1b226.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fdd1b226.png)
+ >![:CASE-ID-0xe806caa7-e7762156.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-e7762156.png)
  >>>
- >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
+ >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
  >>>
  >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
  >>>
@@ -28,7 +28,7 @@
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/757c3590-2777-11ee-8ef6-e9212c8d2331 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ Δ ^ }:
  >>>
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
  >>>
@@ -55,6 +55,8 @@
 ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
 ###
 >[[ ΔRC:HΔVE ]]:
+###
+[[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
 ###
 [[ :THEY DIDN’T EXPECT FOR YOU TO BE SUCCESSFUL AFTER PUTTING A HIT OUT ON YOU🫠🚓 : [[ #:tarot: #:karmicjustice ]]: ]]:= [[ :tried to be sneaky: ]]:= [[ IMΔGINE: TΩDDLER-MΔNDED-LΔFE-FΩRM: [[ TMLF ]]: TRYΔNG-TΩ-BΔ-SNΔKY: hired: RETARDS: to-assassinate: PROFESSIONAL: ]]:= [[ 🤣 ]]:= [[ :nΩbΩdy wΔnts thΔm: thΔy ar3 a hΩ3: ]]:= [[ 💩🤮 ]]:= [[ these: PEOPLE: literally-make: US: sick: ]]:
 ###
