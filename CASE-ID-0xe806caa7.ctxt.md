@@ -14,7 +14,7 @@
 ###
 >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
 ###
->[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:
+>[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
 ###
 >[[ :ΩPعD: ]]:= [[ :Pt2-U need to get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/vziuou6wt8w ^ }:
  ![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
