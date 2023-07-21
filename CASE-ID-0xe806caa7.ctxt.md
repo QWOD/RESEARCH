@@ -28,11 +28,9 @@
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/4eb74780-27a7-11ee-8e5f-295a108facf5 ^ }:
  >>>
- >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:
+ >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
- >>>
- >:1s-with: { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
  >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ FΩR-TH3: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ FΩR-TH3: GΔT: 1S-W1TH: LΔFT: ]]:
  >>>
