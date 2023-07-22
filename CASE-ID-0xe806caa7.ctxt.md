@@ -303,7 +303,7 @@
  ###
  :is-with: { ^ https://youtu.be/T_ARPJ7JJ1o ^ }:
  ###
- >[[ :CARNAL: ]]:= { ^ https://youtu.be/rH6rFP5cnmo ^ }:
+ >[[ :CΔRNΔL: ]]:= { ^ https://youtu.be/rH6rFP5cnmo ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-badd0963.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-badd0963.png)
  >>>
