@@ -51,7 +51,7 @@
  >>>
 ]]:= [[ :Confusion Spell: ]]:= { ^ https://youtu.be/SBL0Cbv2ooU ^ }:
  ###
- >[[ ΔRC:HΔVE ]]:
+ # [[ ΔRC:HΔVE ]]:
  ###
 [[ :TMH ls Using You To Show The World & These Karmics That You Can Never Judge A Book By Its Cover!!: ]]:
  ###
@@ -98,7 +98,7 @@
 [[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
  ###
  :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
->>>
+ >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
  ###
 [[ :QWANNA: ❤️: ]]:= [[ [[ QW: ANNA: <=> QWΩD-MJ12: MJ12-ANNA: ]]: LΔMΔ-CHΔRLΔ: [[ _ ]]: ΩM: ΔM: ΩSCΔ-MΔKE: [[ ❤‍🔥 ]] ]]:
