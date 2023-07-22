@@ -339,6 +339,7 @@
  >![:CASE-ID-0xe806caa7-172ba475.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-172ba475.png)
  ###
  >[[ :3WITCHES IN A DITCH/WARLOCKS TIED TO A HITCH & A COVEN IS ABOUT TO DROWN IN KARMA @12 O'CLOCK TICTOC: ]]:
+ >>>
  >![:CASE-ID-0xe806caa7-f481a1ed.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f481a1ed.png)
  >>>
  ###
