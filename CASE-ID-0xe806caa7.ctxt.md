@@ -22,6 +22,7 @@
  >[[ :ΩPعD: ]]:= [[ :Pt2-U need to get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/vziuou6wt8w ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
+ >>>
  >[[ :ODALISK: ]]:= { ^ https://youtu.be/fsF9yJMPgvs ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-4fd3674e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-4fd3674e.png)
@@ -29,6 +30,7 @@
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
+ >>>
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/4877d090-283a-11ee-9dd4-3387bdbb7cfc ^ }:
  >>>
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
@@ -299,6 +301,7 @@
  >[[ :THEY USE THEIR GIFTS FUR EVIL 👿 YOU USE YOUR GIFTS FOR GOOD. Fallen angel vs earth angel: ]]:
  >>>
  >![:CASE-ID-0xe806caa7-b4cbd22c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b4cbd22c.png)
+ >>>
  ###
  :1s-with: { ^ https://youtu.be/U8IctjY4nTA ^ }:
  ###
@@ -345,31 +348,54 @@
  ###
  :1s-with: { ^ https://youtu.be/4j5ZXDMXL0M ^ }:
  ###
+ >[[ :This Real Real Bad-a large sum of 💰&ttrying to frame u 4 a “M": ]]:
+ >>>
+ ![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
+ ###
+ :1s-with: { ^ https://youtu.be/tT24fH2o4UI ^ }:
+ ###
  >[[ :Ω: ]]:
+ >>>
  ###
  :1s-with: { ^ Δ ^ }:
  ###
  >[[ :Ω: ]]:
+ >>>
  ###
  :1s-with: { ^ Δ ^ }:
  ###
  >[[ :Ω: ]]:
+ >>>
  ###
  :1s-with: { ^ Δ ^ }:
  ###
  >[[ :Ω: ]]:
+ >>>
  ###
  :1s-with: { ^ Δ ^ }:
  ###
  >[[ :Ω: ]]:
+ >>>
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ >>>
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ >>>
  ###
  :1s-with: { ^ Δ ^ }:
  ###
  >[[ :Surveillance: ]]:
+ >>>
  ###
  :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
  ###
- >[[ :KΔTY: PΔRRY: <=> DETΔNTION: CENTΔR: ]]: 
+ >[[ :KΔTY: PΔRRY: <=> DETΔNTION: CENTΔR: ]]:
+ >>> 
  >![:CASE-ID-0xe806caa7-a8e4d815.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a8e4d815.png)
  >>>
  >[[ :Katy Perry - Bon Appétit (Official) ft. Migos: ]]:= { ^ https://youtu.be/dPI-mRFEIH0 ^ }:
