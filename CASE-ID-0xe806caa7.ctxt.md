@@ -23,15 +23,15 @@
  >>>
  >![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
  >>>
- >[[ :Gridlock: ]]:= { ^ https://youtu.be/kZeXcJ679ZM ^ }:
+ >[[ :GRIDLΩCK: ]]:= { ^ https://youtu.be/kZeXcJ679ZM ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-fa5468b5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fa5468b5.png)
  >>>
- >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
+ >[[ :DΔRKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
  >>>
- >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
+ >[[ :UNDERCΩVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
  >>>
