@@ -338,7 +338,6 @@
  >>>
  >![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
  >>>
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/313e3dd0-2888-11ee-b0d6-cb1aef03ede7 ^ }:
  ###
  :is-with: { ^ https://youtu.be/tT24fH2o4UI ^ }:
  >>>
@@ -359,10 +358,14 @@
  ###
  :is-with: { ^ https://youtu.be/GJSfEEdV76k ^ }:
  ###
- >[[ :Ω: ]]:
+![:CASE-ID-0xe806caa7-08ae07b5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-08ae07b5.png)
+ >>>
+ >[[ :Still playing n ur face Earth Angel..The best of both worlds helping 2 dismantle these karmics 4 u⚰️: ]]:
  >>>
  ###
- :is-with: { ^ Δ ^ }:
+ :is-with: { ^ https://youtu.be/NW0ir5m7AcY ^ }:
+ ###
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/313e3dd0-2888-11ee-b0d6-cb1aef03ede7 ^ }:
  ###
  >[[ :Ω: ]]:
  >>>
