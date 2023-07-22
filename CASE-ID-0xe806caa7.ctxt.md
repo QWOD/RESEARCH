@@ -331,6 +331,7 @@
  :1s-with: { ^ https://youtu.be/uwVbeQLI1XM ^ }:
  ###
  >[[ WE: are-subscribed: is-by: 0: ALL: INVESTIGATIONS: LEAD: is-by: MJ12-JESUS: ]]:
+ >>>
  >![:CASE-ID-0xe806caa7-172ba475.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-172ba475.png)
  ###
  >[[ :Ω: ]]:
