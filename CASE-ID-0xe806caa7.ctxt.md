@@ -383,6 +383,12 @@
  >>>
  ![:CASE-ID-0xe806caa7-d86d8f3f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d86d8f3f.png)
  ###
+ >[[ :A mother sold her soul 4 money-fame-power-they all mad planning a fight: ]]:
+ >![:CASE-ID-0xe806caa7-1838422e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-1838422e.png)
+ >>>
+ ###
+ :is-with: { ^ https://youtu.be/-NbrH9BqeBI ^ }:
+ ###
  >[[ :Ω: ]]:
  >>>
  ###
