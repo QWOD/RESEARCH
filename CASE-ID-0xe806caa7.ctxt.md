@@ -31,7 +31,7 @@
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
  >>>
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/4877d090-283a-11ee-9dd4-3387bdbb7cfc ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ Δ ^ }:
  >>>
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
@@ -167,7 +167,6 @@
  ###
  :1s-with: { ^ https://youtu.be/lmXjWFAeKbg ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
  ###
 [[ :⚖️⚖️YOUR GONNA NEED A TRUST LEGITATION LAWYER ...CUZ YOU TAKING THESE MF...TO COURT⚖️⚖️: ]]:
  ###
@@ -176,8 +175,6 @@
 [[ :Schumer Knows Something - Need to Know (07-17-23): ]]:= [[ ON-STRIKE: <=> vrilCLONE™: vrilWitchHunt™: underway: ]]:= [[ vrilWitchHunt™: ΩPSΔN: ]]:
  ###
  :1s-with: { ^ https://youtu.be/F_0bi1bLHKo ^ }:
- >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/85057300-24ed-11ee-ad5f-694aefb055f1 ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-3c3f814b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3c3f814b.png)
  >>>
@@ -219,7 +216,6 @@
  ###
  :1s-with: { ^ https://youtu.be/44XSmCNJN2Q ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/d885e220-243a-11ee-8369-899ab124ac5b ^ }:
  ###
 [[ :YOUR GRANDPARENTS ~LEFT YOU A INHERITANCE💸🏡 🚗💸IN THEIR WILL📃YOUR KARMIC FAMILY STOLEN IT ALL...: ]]:
 
