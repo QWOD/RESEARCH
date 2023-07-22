@@ -365,7 +365,7 @@
  ###
  :is-with: { ^ https://youtu.be/NW0ir5m7AcY ^ }:
  ###
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/313e3dd0-2888-11ee-b0d6-cb1aef03ede7 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/945c9910-28a7-11ee-98f4-6ffc017f2700 ^ }:
  ###
  >[[ :Ω: ]]:
  >>>
