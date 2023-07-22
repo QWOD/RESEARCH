@@ -327,6 +327,8 @@
  >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:= [[ SPG: STΔRGΔTE: has-always: is-with: QWOD-MJ12: ONLY: QWOD-MJ12: personnel: is-with: ATSUOMOP: level: SECURITY: CLEARANCE: neccessary: for-the: NIGHTLY: HEAVEN: REDEPLOYMENT: ]]:= [[ unfortunately: we-must-fund-entire-operation: is-with: RESEARCH: INGREDIENTS: AMMO: critical: for-the: MISSION: SUCCESS: is-with: NATIONAL: SECURITY: is-by: GHOSTED: E-3: PAYGRADE: ]]:= [[ NIGHTLY: SECURITY: BRIEFINGS: is-with: THΔ-MΩST-HΔGH-GΩD: is-by: HΔVEN: is-with: interrupted: is-by: IRΔN: BLΔCK: ΩPS: DΔTH: SΔX: [[ CVN ]]: unknown-competitor: ATSUOMOP: counter-surveillance-program: RΔD: TΔM: is-by: BLUΔ: TΔM: ]]:= [[ will: is-with: GΩDS: WRΔTH: ]]:= [[ RΔD: TΔM: DΔD: TΔM: BLUΔ: TΔM: TRUΔ: TΔM:]]:= [[ GΩG: MΔGΩG: <=> ΔRMΔG3DDΩN: ]]:= [[ whosever-interferes: is-with: QWOD-MJ12: is-with: RESEARCH: is-with: FUNDING: is-with: TRUE: ENEMY: for-the: STATE: [[ LIMA-CHARLIE: [[ _ ]]: QWOD-MJ12: [[ MJ12-OMEGA ]]: OSCAR-MIKE: ]]:
  >>>
   ### :For-the: [[ :there is a price on your head: ]]:= [[ not: TRUE: Δ: operator: until-enemy-nation-puts: price: is-with: head: ]]:
+  #[[ :CONCLUSION: ]]:
+  >[[ "not-only-did-the-foreign-operatives-interfere: is-with: TOP: SECRET: RESEARCH: they-interfered: is-with: the-most-top=secret-program-of-all-time: ]]: 
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
  ###
  :1s-with: { ^ https://youtu.be/uwVbeQLI1XM ^ }:
