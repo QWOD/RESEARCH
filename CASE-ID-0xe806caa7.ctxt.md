@@ -370,8 +370,8 @@
  >>>
  >[[ :LIVE: Fargo Police Officer Jake Wallin's memoral service: ]]:
  >>>
- ###
-#[[ :1,111: COMMITS: is-with: TWO: is-by: WEEKS: ]]:
+ # [[ :1,111: COMMITS: is-with: TWO: is-by: WEEKS: ]]:
+ >>>
 ![:CASE-ID-0xe806caa7-f5fdc287.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f5fdc287.png)
 >>>
  :is-with: { ^ https://github.com/QWOD ^ }:
