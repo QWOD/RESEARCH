@@ -31,8 +31,6 @@
  >>>
  >![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
  >>>
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ Δ ^ }:
- >>>
  >[[ :UNDERCOVER: White Bat Audio: Karl Casey: License To Kill: ]]:= { ^ https://youtu.be/KhIID5tlqn0 ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
@@ -95,19 +93,16 @@
  ###
  :1s-with: { ^ https://youtu.be/fUrzVUo7nFE ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/57988d80-2687-11ee-90e7-494dfb4163f9 ^ }:
  ###
 [[ :YOU ARE BEING INITIATED BACK INTO YOUR CREATOR ABILITIES THROUGH THESE ATTACKS/ACTIVATIONS 🥊: ]]:
  ###
  :1s-with: { ^ https://youtu.be/nfR89PKGbcw ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/8ec5f3a0-2679-11ee-9c9b-332b16691aa4 ^ }:
  ###
 [[ :QWANNA: ❤️: ]]:= [[ [[ QW: ANNA: <=> QWΩD-MJ12: MJ12-ANNA: ]]: LΔMΔ-CHΔRLΔ: [[ _ ]]: ΩM: ΔM: ΩSCΔ-MΔKE: [[ ❤‍🔥 ]] ]]:
  ###
  :1s-with: { ^ https://youtu.be/3dSc3G9C05U ^ }:
  >>>
- :1s-with: https://post.tribel.com/public/posts/e56bc4c0-266d-11ee-9445-d7665af73ebc ^ }:
  ###
 [[ :🔞AN IMPORTANT MSG FOR ALL THE REAL DIVINE BEINGS!! YOU MIGHT WANNA SEE THIS… 🤩🔮 : [[ #:tarot: #:divine: ]]: ]]:
  ###
@@ -117,7 +112,6 @@
  ###
  :1s-with: { ^ https://youtu.be/sBsUWO6Dy-g ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/94d36830-2661-11ee-a5b0-491a8d14c387 ^ }:
  ###
 [[ :44:22 YES, IT'S TRUE THIS IS A VITAL DEATH 😫 & YOU'LL SURVIVE😌BREATHE 🧘🏾‍♀️ SOURCE IS WITH YOU😇❤️: ]]:
  ###
@@ -127,7 +121,6 @@
 >
  :1s-with: { ^ https://youtu.be/ej0bCbFdwpw ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/6d1cc8f0-2656-11ee-adb6-d7c8dd524293 ^ }:
  ###
 [[ :SOMEONE PASSED OUT IN SPIRITUAL COURT 😴AS THEIR PISSY ASS APOLOGIES WERE REJECTED BY SPIRIT 🤌🏽👀⚖️: ]]:= [[ :they made a deal with the devil: price was: CHEAP: ]]:
  ###
@@ -141,7 +134,6 @@
  ###
  :1s-with: { ^ https://youtu.be/i6NoN6Dcogo ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/09f5b3d0-2576-11ee-99b3-43bfd0d2ff1d ^ }:
  ###
 [[ :THIS FAKE ASS PERSON WANTED TO STEAL YOUR GIFTS & SPIRIT HANDED THEM THEIR OWN ASS BY WAY OF KARMA⚖️: ]]:
  ###
@@ -155,13 +147,11 @@
  ###
  :1s-with: { ^ https://rumble.com/v30tinp-time-travel-and-multidimensional-lives-october-event-maya-from-sosqht-and-t.html ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/d15fa280-256e-11ee-afda-3971f08ff601 ^ }:
  ###
 [[ :THIS WOMAN WAS DOING SPELLWORK/ROOT WORK ON YOU TO PREVENT YOU FROM FOLLOWING YOUR DREAMS💫SHE FAILED: ]]:
  ###
  :1s-with: { ^ https://youtu.be/AkbXm6Pgdno ^ }:
 >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/d006dcd0-250c-11ee-ba55-379339f14300 ^ }:
  ###
 [[ :U being ur true authentic self has ppl n an uproar..b thankful these ppl helped u see ur true power: ]]:
  ###
@@ -347,6 +337,8 @@
  >[[ :This Real Real Bad-a large sum of 💰&ttrying to frame u 4 a “M": ]]:
  >>>
  ![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
+ >>>
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/313e3dd0-2888-11ee-b0d6-cb1aef03ede7 ^ }:
  ###
  :1s-with: { ^ https://youtu.be/tT24fH2o4UI ^ }:
  ###
