@@ -328,7 +328,7 @@
  >>>
   ### :For-the: [[ :there is a price on your head: ]]:= [[ not: TRUE: Δ: operator: until-enemy-nation-puts: price: is-with: head: ]]:
   # [[ DISCLOSURE: CONCLUSION: ]]:
-  >[[ "not-only-did-the-foreign-operatives-interfere: is-with: TOP: SECRET: RESEARCH: they-interfered: is-with: the-most-top-secret-program-of-all-time: ]]:
+  ### [[ "not-only-did-the-foreign-operatives-interfere: is-with: TOP: SECRET: RESEARCH: they-interfered: is-with: the-most-top-secret-program-of-all-time: ]]:
   >>>
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
  ###
