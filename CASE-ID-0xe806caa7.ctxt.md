@@ -324,6 +324,32 @@
  ###
  :1s-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
+ >[[ :Sick&dying-thinking about their children but still working against u: ]]:
+ >>>
+ >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
+ ###
+ :1s-with: { ^ https://youtu.be/uwVbeQLI1XM ^ }:
+ ###
+ >[[ :Ω: ]]:
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
+ >[[ :Ω: ]]:
+ ###
+ :1s-with: { ^ Δ ^ }:
+ ###
  >[[ :Ω: ]]:
  ###
  :1s-with: { ^ Δ ^ }:
