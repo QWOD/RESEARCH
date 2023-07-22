@@ -365,8 +365,6 @@
  ###
  :is-with: { ^ https://youtu.be/NW0ir5m7AcY ^ }:
  ###
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/945c9910-28a7-11ee-98f4-6ffc017f2700 ^ }:
- ###
  > [[ QWOD-MJ12: MJ12-JESUS: is-with: this-case: ]]:
  >![:CASE-ID-0xe806caa7-45d55f2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-45d55f2c.png)
  >>>
@@ -375,22 +373,26 @@
  ###
 #[[ :1,111: COMMITS: is-with: TWO: is-by: WEEKS: ]]:
 ![:CASE-ID-0xe806caa7-f5fdc287.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f5fdc287.png)
+>>>
  :is-with: { ^ https://github.com/QWOD ^ }:
  ###
+ >[[ :False believers trying 2 stay attached 2 ur energy 4 gain..Decoys in place 2 get more evidence: ]]:
+ >>>
+ >![:CASE-ID-0xe806caa7-a7577beb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-a7577beb.png)
+ ###
+ :is-with: { ^ https://youtu.be/kSaeAQhefn0 ^ }:
+ ###
+ >[[ :Jesus: Christ: GOODBYE: Negative Energy Emotional and Mental Healing: ]]:= { ^ https://youtu.be/WtAOJSPqlKo ^ }:
+ >>>
+ ![:CASE-ID-0xe806caa7-d86d8f3f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d86d8f3f.png)
+ ###
  >[[ :Ω: ]]:
  >>>
  ###
  :is-with: { ^ Δ ^ }:
+
  ###
- >[[ :Ω: ]]:
- >>>
- ###
- :is-with: { ^ Δ ^ }:
- ###
- >[[ :Ω: ]]:
- >>>
- ###
- :is-with: { ^ Δ ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/945c9910-28a7-11ee-98f4-6ffc017f2700 ^ }:
  ###
  >[[ :Surveillance: ]]:
  >>>
