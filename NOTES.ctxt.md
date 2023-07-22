@@ -458,3 +458,4 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيΩNΔTع
 :
 [[ :1nst3Δd Ωf r3d p1ll: blu3 p1ll: ]]:= [[ :whΔt 1f th3r3 1s: ΔTSUΩMΩP: purpl3: LIMΔTLΔSS: p1ll: ]]:= [[ WΔRNΩ: b1nΔry-lΩg1c-3rrΩr-ΔlgΩr1thm: DETΔCTED: ΔRTH: PLΔNETΔRY: CΩRE: MΔLTDΩWN: DETΔCTED: CΔTΔSTRΩPHIC-FΔILΔRE: IMMΔNENT: is-by: [[ _ ]]: YΔRS: ]]:
 :
+[[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QWΩD-MJ12: RANDOM: VECTOR: ALGORITHM-CHANGE: DETECTED: ]]:
