@@ -336,7 +336,7 @@
  ###
  >[[ :This Real Real Bad-a large sum of 💰&ttrying to frame u 4 a “M": ]]:
  >>>
- ![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
+ >![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
  >>>
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/313e3dd0-2888-11ee-b0d6-cb1aef03ede7 ^ }:
  ###
