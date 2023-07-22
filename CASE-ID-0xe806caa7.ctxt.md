@@ -382,7 +382,7 @@
  ###
  :is-with: { ^ https://youtu.be/kSaeAQhefn0 ^ }:
  ###
- >[[ :Jesus: Christ: GOODBYE: Negative Energy Emotional and Mental Healing: ]]:= { ^ https://youtu.be/WtAOJSPqlKo ^ }:
+ >[[ :Jesus: Christ: GOODBYE: Negative Energy: Emotional and Mental Healing: ]]:= { ^ https://youtu.be/WtAOJSPqlKo ^ }:
  >>>
  ![:CASE-ID-0xe806caa7-d86d8f3f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d86d8f3f.png)
  ###
