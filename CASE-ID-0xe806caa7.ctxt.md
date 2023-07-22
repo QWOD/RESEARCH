@@ -392,7 +392,7 @@
  :is-with: { ^ Δ ^ }:
 
  ###
- [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/945c9910-28a7-11ee-98f4-6ffc017f2700 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/04999860-28c4-11ee-98ea-eda0a2711b29 ^ }:
  ###
  >[[ :Surveillance: ]]:
  >>>
