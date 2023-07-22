@@ -367,10 +367,12 @@
  ###
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/945c9910-28a7-11ee-98f4-6ffc017f2700 ^ }:
  ###
- >[[ :Ω: ]]:
+ > [[ QWOD-MJ12: MJ12-JESUS: is-with: this-case: ]]:
+ >![:CASE-ID-0xe806caa7-45d55f2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-45d55f2c.png)
+ >[[ :LIVE: Fargo Police Officer Jake Wallin's memoral service: ]]:
  >>>
  ###
- :is-with: { ^ Δ ^ }:
+ :is-with: { ^ https://youtu.be/FcU5DS1Pu5k ^ }:
  ###
  >[[ :Ω: ]]:
  >>>
