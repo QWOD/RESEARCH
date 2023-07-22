@@ -324,7 +324,7 @@
  ###
  :1s-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
- >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: for-the: surveillance: program: ]]:
+ >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: surveillance: program: ]]:
  >>>
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
  ###
