@@ -353,6 +353,7 @@
  [[ MJ12-JESUS: Δ: Eternal-Life: Warfare-Program: <=> "some soldiers have better luck than others as these are clones taken from their respective ascended master counterparts. These undercover Δ operators are strategically deployed all over the world in service to GOD The Father. Most of these soldiers have no idea they are involved in a top secret program and will never discover their own true BORN IDENTITY as they DO NOT OFFICIALLY EXIST therefore they have none." ]]:
  >>>
  >![:CASE-ID-0xe806caa7-062798de.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-062798de.png)
+ >>>
  >[[ :Complete GoPro of a Terrible Recon Mission in Ukraine: ]]:
  >>>
  ###
