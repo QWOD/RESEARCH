@@ -1,111 +1,117 @@
-### :FΩr-thع: [[ CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
-###
+ ### :FΩr-thع: [[ CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
+ ###
  :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x9f82977e.ctxt.md ^ }:
->>>
+ >>>
  :is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👼: agency^ }:
     :For-the: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
->>>
+ >>>
  :is-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
->>>
+ >>>
  :is-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
-### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
+ ### [[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
  >>>
  >[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ https://youtu.be/bpa2WcPOar8 ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-3430b111.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3430b111.png)
  >>>
-###
+ ###
  >[[ :ΩPعD: ]]:= [[ :Jesus is suggesting you this video for a Big reason....!: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
  >>>
-###
+ ###
  :is-with: { ^ https://youtu.be/-Lmd7AxWa2k ^ }:
-###
- >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:= [[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/5e91f630-2713-11ee-8c92-1704c7f69dd3 ^ }:
+ ###
+ >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
-###
+ ###
  >[[ ΔRC:HΔVE ]]:
-###
+ ###
  [[ :🌟 You, who are reading this message, will be Punished By Their God 🌟 11:11✝️Miracles of God🕊️: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
  >>>
  :is-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
-###
+ ###
  >[[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:GodsQuotes1111 ]]: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
  >>>
-###
+ ###
  :is-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
  >>>
  :is-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
-###
+ ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
  :is-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  >>>
  :is-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
-###
+ ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by God for you ✝️Message from God to me: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  >>>
  :is-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
-###
+ ###
 [[ :🛑 God Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
  >>>
  :is-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
-###
+ ###
 [[ :🛑 Message from God for you today | This is God's last message to you... 💌 Don't skip! 😰: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
-###
+ ###
 [[ :🌈God Message: Finally, You Received Special Message Sent by God...!! God Says : [[ @:GodsQuotes1111 ]]: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
-###
->[[ :[[ @:Raashvnjali ]]: ]]:
-###
+ ###
+ >[[ :[[ @:Raashvnjali ]]: ]]:
+ ###
  :is-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
-###
+ ###
 [[ :Quantum warfare: Operations Division: ]]:
-###
+ ###
  :is-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
-###
+ ###
  >![:CASE-ID-0x9f82977e-83b727fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-83b727fa.png)
  >>>
  >[[ :💌😭Sunday will be very dangerous for your family...!!!!: ]]:
-###
+ ###
  :is-with: { ^ https://youtu.be/3tQoc8b5Eus ^ }:
-###
-[[ :Ω: ]]:
-###
+ ###
+ >![:CASE-ID-0x9f82977e-d929e372.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-d929e372.png)
+ >>>
+ >[[ :🔴DON'T REJECT! I'M GOING TO STOP HELPING YOU, IF YOU...🙏LISTEN TO ME💌 MESSAGES FROM THE ANGELS: ]]:
+ >>>
+ >[[ [[ :CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/8f085bd0-2892-11ee-b0d6-cb1aef03ede7 ^ }:
+ ###
+ :is-with: { ^ https://youtu.be/AQD3-6V9fNQ ^ }:
+ ###
+ [[ :Ω: ]]:
+ >>>
+ ###
  :is-with: { ^ Δ ^ }:
-###
-[[ :Ω: ]]:
-###
+ ###
+ >>>
+ [[ :Ω: ]]:
+ ###
  :is-with: { ^ Δ ^ }:
-###
-[[ :Ω: ]]:
-###
- :is-with: { ^ Δ ^ }:
-###
->[[ :Surveillance: ]]:
-###
+ ###
+ >[[ :Surveillance: ]]:
+ ###
  :is-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
-###
->[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
-###
+ ###
+ >[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
+ ###
  :is-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
-### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
+ ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
 >[[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= is-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
-###
+ ###
  :is-with: { ^ https://rumble.com/c/c-3415786 ^ }:
-> :For-the: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
+ > :For-the: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :is-with: sL☥CK™: is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:For-the: QWΩD-MJ12:
@@ -218,10 +224,10 @@
 >:
 >:For-the: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
-###
+ ###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >
 >[[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 >
-###
+ ###
 >:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
