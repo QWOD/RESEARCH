@@ -327,17 +327,15 @@
  >>>
  >![:CASE-ID-0xe806caa7-172ba475.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-172ba475.png)
  ###
- >[[ :3WITCHES IN A DITCH/WARLOCKS TIED TO A HITCH & A COVEN IS ABOUT TO DROWN IN KARMA @12 O'CLOCK TICTOC: ]]:
+ [[ :3WITCHES IN A DITCH/WARLOCKS TIED TO A HITCH & A COVEN IS ABOUT TO DROWN IN KARMA @12 O'CLOCK TICTOC: ]]:
  >>>
  >![:CASE-ID-0xe806caa7-f481a1ed.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f481a1ed.png)
- >>>
  ###
  :is-with: { ^ https://youtu.be/4j5ZXDMXL0M ^ }:
  ###
  >[[ :This Real Real Bad-a large sum of 💰&ttrying to frame u 4 a “M": ]]:
  >>>
  >![:CASE-ID-0xe806caa7-d6c9ee67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-d6c9ee67.png)
- >>>
  ###
  :is-with: { ^ https://youtu.be/tT24fH2o4UI ^ }:
  >>>
@@ -369,7 +367,6 @@
  >![:CASE-ID-0xe806caa7-45d55f2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-45d55f2c.png)
  >>>
  >[[ :LIVE: Fargo Police Officer Jake Wallin's memoral service: ]]:
- >>>
  # [[ :1,111: COMMITS: is-with: TWO: is-by: WEEKS: ]]:
  >>>
 ![:CASE-ID-0xe806caa7-f5fdc287.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f5fdc287.png)
