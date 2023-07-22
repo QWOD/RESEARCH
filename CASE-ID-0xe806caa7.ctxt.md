@@ -126,9 +126,10 @@
  ###
  :is-with: { ^ https://youtu.be/hIua0F6eNo4 ^ }:
  ###
-[[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/STKkVmFBIV0 ^ }:
->[[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
->[[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
+ [[ :Pt1-Double Karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/STKkVmFBIV0 ^ }:
+ >[[ :Pt2-double karma demonic entity and your ancestors haunting them: ]]:= { ^ https://youtu.be/LVfpM76RR7A ^ }:
+ >>>
+ >[[ :She claimed to love u but did this to u -stop d cap not love: ]]:= { ^ https://youtu.be/kfacNTU2Z3o ^ }:
  ###
 [[ :MAGIC, ETHEREAL, POWERFUL WAYS & SPIRITUAL FAMILY VALUES… AND THEY CAN ONLY WATCH 👽🧞‍♀️: #: divine: ]]:
  ###
