@@ -324,7 +324,7 @@
  ###
  :1s-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
- >[[ :Sick&dying-thinking about their children but still working against u: ]]:
+ >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:
  >>>
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
  ###
