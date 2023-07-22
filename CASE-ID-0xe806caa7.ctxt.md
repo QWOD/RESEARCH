@@ -23,9 +23,9 @@
  >>>
  >![:CASE-ID-0xe806caa7-0111aa8b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-0111aa8b.png)
  >>>
- >[[ :ODALISK: ]]:= { ^ https://youtu.be/fsF9yJMPgvs ^ }:
+ >[[ :Gridlock: ]]:= { ^ https://youtu.be/kZeXcJ679ZM ^ }:
  >>>
- >![:CASE-ID-0xe806caa7-4fd3674e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-4fd3674e.png)
+ >![:CASE-ID-0xe806caa7-fa5468b5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-fa5468b5.png)
  >>>
  >[[ :DARKTIDE: ]]:= { ^ https://youtu.be/GSOrsHB8tEQ ^ }:
  >>>
