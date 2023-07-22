@@ -35,7 +35,7 @@
  >>>
  >![:CASE-ID-0xe806caa7-2fb04ab9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-2fb04ab9.png)
  >>>
- >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ For-the: GΔVE: 1S-W1TH: RΔGHT: HΔND: ]]:= [[ For-the: GΔT: 1S-W1TH: LΔFT: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }:
+ >[[ :NΩ ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: IS-BY: 0: ]]:= [[ 4r-t43: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4r-t43: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-b2a9f4ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b2a9f4ff.png)
  >>>
