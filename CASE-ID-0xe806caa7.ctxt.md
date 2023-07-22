@@ -324,7 +324,7 @@
  ###
  :1s-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
- >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:
+ >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:= [[ SPG: STΔRGΔTE: has-always: is-with: QWOD-MJ12: ONLY: QWOD-MJ12: personnel: is-with: ATSUOMOP: level: SECURITY: CLEARANCE: neccessary: for-the: NIGHTLY: HEAVEN: REDEPLOYMENT: ]]:= [[ unfortunately: we-must-fund-entire-operation: is-with: RESEARCH: INGREDIENTS: AMMO: critical: for-the: MISSION: SUCCESS: is-with: NATIONAL: SECURITY: is-by: GHOSTED: E-3: PAYGRADE: ]]:
  >>>
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
  ###
