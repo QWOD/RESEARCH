@@ -394,6 +394,8 @@
  >[[ :Alot Of Info Was Hidden From You About Who You Truly Are! You Always Felt Different From The World!: ]]:
  >>>
  ![:CASE-ID-0xe806caa7-ebb8f2f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-ebb8f2f9.png)
+ >>>
+ >[[ CHOSEN: ONES: <=> Unknown-Competitor: MKUltra-program-test-subjects: ]]:
  ###
  :is-with: { ^ https://youtu.be/EnJZneG5eos ^ }:
  ###
