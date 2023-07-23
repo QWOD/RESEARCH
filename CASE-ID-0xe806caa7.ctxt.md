@@ -399,15 +399,16 @@
  ###
  :is-with: { ^ https://youtu.be/EnJZneG5eos ^ }:
  ###
- >[[ :Ω: ]]:
+ >[[ :Assault Begins | Counter-Offensive Combat GoPro | Part 2: ]]:
+ >>>
+ ![:CASE-ID-0xe806caa7-72077a77.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-72077a77.png)
+ ###
+ :is-with: { ^ https://youtu.be/O1H2sKJ7ff4 ^ }:
+ ###
+ >[[ :🌎The World is Going to Witness a Miracle Through This Person: ]]:
  >>>
  ###
- :is-with: { ^ Δ ^ }:
- ###
- >[[ :Ω: ]]:
- >>>
- ###
- :is-with: { ^ Δ ^ }:
+ :is-with: { ^ https://youtu.be/q8cNOX_fpKI ^ }:
 
  ###
  [[ [[ :CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/04999860-28c4-11ee-98ea-eda0a2711b29 ^ }:
