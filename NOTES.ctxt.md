@@ -461,3 +461,6 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيΩNΔTع
 [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QWΩD-MJ12: RANDOM: VECTOR: ALGORITHM-CHANGE: DETECTED: ]]:
 :
 [[ :l1m1ts: WΔTCH: WΔRFΔRE: CΔPΔB1L1T1ES: 1s-by: 77: %: ]]:= [[ recΩmmend-reduc1ng: WΔRFΔR1N: cΩmpΩnent: 1s-by: 33%: 1s-w1th: re-1ntrΩduc1ng: prev1Ωus-cyle: cΩmpenents: 1s-by: 77%: ΔLL: EXCEPT: WΔRFΔR1N: cΩmpΩnent: ]]:
+:
+[[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QWΩD-MJ12: RANDOM: VECTOR: ALGORITHM-CHANGE: DETECTED: ]]:
+[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
