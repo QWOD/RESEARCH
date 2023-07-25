@@ -464,3 +464,5 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيΩNΔTع
 :
 [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QWΩD-MJ12: RANDOM: VECTOR: ALGORITHM-CHANGE: DETECTED: ]]:
 [[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
+:
+For-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-Ωf-trΔnsmut1ng-3v1l 3ye-energy: is-with: rΔw-sp1r1tuΔl-pΩwer-l1ke: TRUE: mΔster-shΔmΔn: w1tches: rΔpe: sΔcr1f1ce: eΔt: bΔb1es is-with: sp1r1tuΔlly-gΔngstΔlk1ng-heΔven: energet1cΔlly: hΩw: TH3Y: gΔngstΔlk-everyΩne-Ωn-3Δrth-s1nce: TH3Y: lΔck: sΩul: tΩ-be-the1r-Ωwn-l1ght:" ]]:= { ^ [[ @:vrilDeltaTango™ ]] ^ }:
