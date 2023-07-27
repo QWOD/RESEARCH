@@ -475,3 +475,5 @@ FΩr-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-�
 [[ :CLΩNES: sΩmetimes-left-behind: whenever-the: QWΩD-MJ12: ΩperΔtΩr-is-cleΔred: fΩr-the: EXFIL: is-with: HELPS: ΔuthΩrities: NΩT: lΩΩk-in-the-right-directiΩn: this-wΩuld-be-ΔbΩve-their: CLEΔRΔNCE: ]]:
 :
 [[ "KΩehlberger: mentiΩned: VisuΔl-SnΩw: more-evidence: is-with: frΔmed: is-by: evril-witches: THΔT-is-why-they-were-jΔmming-his-psychic-Δbilities: is-with: ILLEGΔL-SPΔCE-WEΔPΩNS: driving: RΔGE: is-with: cΩmbinΔtiΩn-ΔttΔck: is-by: pΔinful-illegΔl-nΔnΩtechnΩlΩgy: "]]:
+:
+[[ THE-HΩME-DEPΩT: <=> vrilWitch™: vrilClΩne™: vrilBΩdySnΔtching™: vrilMΔsΩns™: ]]:= [[ :DID: nΩt-wΩrk: is-with: MJ12-ΩMEGΔ: hΔve-been-trying-tΩ-eliminΔte-tΔcticΔl-wΔrfΔre-unit-ever-since: they-Δre-Δll: CHICKENS: ]]:
