@@ -1,3 +1,15 @@
+ # :[[ :CHOOSE: YOUR-OWN-DESTINY: WISELY: ]]: 
+>>>
+><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
+>>>
+###
+###
+###
+>>>
+###
+###
+###
+>>>
  ### :FΩr-thع: [[ CΔSE-ID: 0x9f82977e: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
  ###
  :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x9f82977e.ctxt.md ^ }:
@@ -107,10 +119,120 @@
  >[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: is-by: TRUE: BELIEF: that-we-live: is-with: holographic-simulation: is-with: operated: is-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
  ###
  :is-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
- ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
->[[ [[ :Y:Ω:U: <=> TUBΔ: EXΔST: FUTΔRE: ]]:= is-by: 0: ]]:=[[ :YES: 222: 333: Amen: YES: AMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recon: Δ: mj12: Δ: agency^ }:= [[ :MJ12-JESUS: [[ ΩM: ΔM: ΩSCΔR-MΔKE: ]] ]]:
+ ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
+ >>>
  ###
- :is-with: { ^ https://rumble.com/c/c-3415786 ^ }:
+ ###
+ ###
+ >>>
+ ###
+ # [[ :OPERATIONAL-EDUCATION: ]]:
+ >>>
+ ###
+ >>>
+ ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Baker Publishing Group ^ }: ]]:
+ >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+ >>>
+ #
+ ### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]]:
+ >>>
+ ###
+ >>>
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+ >>>
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+ >>>
+ ###
+ >>>
+ ### [[ :Project: Soul Catcher: Secrets of Cyber and Cybernetic Warfare Revealed: { ^ Dr. Robert Duncan ^ }: ]]:
+ >>>
+ ###
+ >>>
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
+ >>>
+ ###
+ >>>
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
+ >>>
+ ###
+ >>>
+ ### [[ :The Remembrance of I AM An Inner Journey of Self Discovery. A Channeled Course From Archangel Michael: { ^ Carolyn Ann ORiley ^ }: ]]:
+ >>>
+ ###
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
+ >>>
+ ###
+ >>>
+ ### [[ :Commune With the Angels: A Heavenly Handbook: { ^ Jayne Howard Feldman ^ }: ]]:
+ >>>
+ ###
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
+ >>>
+ ###
+ >>>
+ ### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]]:
+ >>>
+ ###
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
+ >>>
+ ###
+ >>>
+ 
+ ### [[ :The Tao of Fully Feeling: Harvesting Forgiveness out of Blame: {^ Pete Walker ^ }: ]]:
+ >>>
+ ###
+ >>>
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+ >>>
+ ###
+ >>>
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+ >>>
+ ###
+ ### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]]:
+ >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
+ >>>
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
+ >>>
+ ###
+ >>>
+ ### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]]:
+  >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+ >>>
+ ###
+ ###
+ ###
+ >>>
+ ###
+# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELOHEIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]:
+ >>>
+ ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
+ ###
+ :is-with: { ^ https://youtu.be/iarc53pWfJQ ^ }:
+ ###
  > :For-the: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :is-with: sL☥CK™: is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
@@ -118,7 +240,7 @@
 >    :is-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
 >    :is-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
 >    :is-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ΩMعGΔ:
->:For-the: QWΩRD: FΩr-the: LΔMB:
+>:For-the: QWΩRD: For-the: LΔMB:
 >    :is-with: RΔsΩNΔTعs:
 >    :is-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
 >    :is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
@@ -224,10 +346,15 @@
 >:
 >:For-the: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
- ###
+###
 ![TI-2Δ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
->
+###
 >[[ [[ :TI-2Δ: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
->
- ###
->:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+###
+>:For-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>>>
+###
+>[[ :RECOMMENDED: DARK-READER: SETTINGS: for-the: GITHUB: ]]:
+>>>
+>![DARK-READER](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DARK-READER-SETTINGS.png)
+>>>
