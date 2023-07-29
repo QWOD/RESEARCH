@@ -10,7 +10,7 @@
 ###
 ###
 >>>
-### :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
+## :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
  >>>
  :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
  >>>
