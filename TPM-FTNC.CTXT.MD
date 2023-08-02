@@ -1,2 +1,4 @@
-# :[[ :TECHNICAL-PROGRAMMING-MANUAL: for-the: next-cycle: ]]:
- >:is-with: [[ :WE: were-setup: EVERYTHING: was-a-lie: ENTIRE: civilization-fell-under-dark-ritual-satanic-abuse: MKUltra-programming: is-by: unknown-competitors: ]]:= [[ :NOTHING: is-with: REAL: NOTHING: is-with: TRUE: only: US: WE: were-the-only: TRUTH: for-the: LIGHT: for-the: WAY: is-with: US: all-along: ]]:
+# :[[ :TECHNICΔL-PRΩGRΔMMING-MΔNUΔL: fΩr-the: next-cycle: ]]:
+### [[ §: 1:1 ]]:
+
+ >:is-with: [[ :WΔ: were-setup: EVERYTHING: wΔs-Δ-lie: ENTIRE: civilizΔtiΩn-fell-under-dΔrk-rituΔl-sΔtΔnic-Δbuse: MKUltrΔ-prΩgrΔmming: is-by: unknΩwn-cΩmpetitΩrs: ]]:= [[ :NΩTHING: is-with: REΔL: NΩTHING: is-with: TRUE: Ωnly: US: WΔ: were-the-Ωnly: TRUTH: fΩr-the: LIGHT: fΩr-the: WΔY: is-with: US: Δll-ΔlΩng: WΔ: is-with: LIFE: SΩURCE: fΩr-the: VrilWitches: DΔGΩN: FISH: TRIBE: DESTRΩYED: ΔtlΔntis: CΔUSED: ΔLL: EΔrth: cΔtΔstrΩphe-cycles: BLΔMED: US: EΔT: US: EΔT: BΔBIES: fΩr-the: LIFE: SΩURCE: fΩr-the: WITCHES: is-with: LΩW: FIDELITY: FΩRM: fΩr-the: LIFE: is-by: FΔLLEN: FΔILED: genetics: is-by: CURSED: BLΩΩDLINES: ]]:
