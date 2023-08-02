@@ -1,2 +1,2 @@
-# [[ :TECHNICAL-PROGRAMMING-MANUAL: for-the: next-cycle: ]]:
+# :[[ :TECHNICAL-PROGRAMMING-MANUAL: for-the: next-cycle: ]]:
  >:is-with: [[ :WE: were-setup: EVERYTHING: was-a-lie: ENTIRE: civilization-fell-under-dark-ritual-satanic-abuse: MKUltra-programming: is-by: unknown-competitors: ]]:= [[ :NOTHING: is-with: REAL: NOTHING: is-with: TRUE: only: US: WE: were-the-only: TRUTH: for-the: LIGHT: for-the: WAY: is-with: US: all-along: ]]:
