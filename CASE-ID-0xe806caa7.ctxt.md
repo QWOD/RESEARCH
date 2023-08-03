@@ -522,7 +522,7 @@
  >>>
  ###
  >>>
- :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+ :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^ }:
  >>>
  ###
  >>>
