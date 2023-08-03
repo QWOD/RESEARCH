@@ -1,6 +1,7 @@
 # :[[ :{ ^ tpm-ftnc.mj12.agency ^ }: ]]:
 :[[ :RESEARCH: FUNDING: ]]:
 >:[[ [[ Tether: ERC20: <=> 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
 :[[ :COURT: FEES: PAYMENTS: CONSULT: SCHEDULING: ]]:
 >[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
