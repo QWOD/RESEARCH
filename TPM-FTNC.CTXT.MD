@@ -2,7 +2,7 @@
  >>>
     :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.CTXT.MD ^ }:
  >>>
- ### [[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
+ ### :[[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
  #
  ![:EXODUS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/EXODUS.png)
  >:[[ :EXODUS: { ^ https://www.kingjamesbibleonline.org/Exodus-22-18/ ^ }:  ]]:
