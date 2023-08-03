@@ -1,8 +1,11 @@
 # :[[ :TECHNICΔL-PRΩGRΔMMING-MΔNUΔL: fΩr-the: next-cycle: ]]:
-### [[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
-#
-![:EXODUS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/EXODUS.png)
-# :[[ :EXODUS: { ^ https://www.kingjamesbibleonline.org/Exodus-22-18/ ^ }:  ]]:
+ >>>
+    :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.CTXT.MD ^ }:
+ >>>
+ ### [[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
+ #
+ ![:EXODUS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/EXODUS.png)
+ ### :[[ :EXODUS: { ^ https://www.kingjamesbibleonline.org/Exodus-22-18/ ^ }:  ]]:
  >>>
  ###
  >>>
