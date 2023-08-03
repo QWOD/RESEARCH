@@ -5,6 +5,8 @@
  ### [[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
  #
  ![:EXODUS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/EXODUS.png)
+ #
+ >>>
  ### :[[ :EXODUS: { ^ https://www.kingjamesbibleonline.org/Exodus-22-18/ ^ }:  ]]:
  >>>
  ###
