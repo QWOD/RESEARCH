@@ -30,7 +30,7 @@
  >>>
  ###
  >>>
- ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Baker Publishing Group ^ }: ]]:
+ ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]]:
  >>>
  ###
  >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
@@ -39,7 +39,7 @@
     :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
  >>>
  ###
- ### [[ :The Study Quran: A New Translation and Commentary: ]]:
+ ### [[ :The Study Quran: A New Translation and Commentary: { ^ Cambridge University Press ^ }: ]]:
  >>>
  ###
     :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
@@ -48,7 +48,7 @@
  >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
  >>>
  ###
- ### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: ]]:
+ ### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: { ^  :Marvin W. Meyer (Editor): Elaine H. Pagels (Introduction): James M. Robinson (Contributor): Wolf-Peter Funk (Contributor): Paul-Hubert Poirier (Contributor): ^ } ]]:
  >>>
  ###
     :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
@@ -57,7 +57,7 @@
  >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
  >>>
  ###
- ### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: ]]:
+ ### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: { ^  Rabbi Nosson Scherman (Author) ^ }: ]]:
  >>>
  ###
     :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
