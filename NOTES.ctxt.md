@@ -479,3 +479,11 @@ FΩr-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-�
 [[ THE-HΩME-DEPΩT: <=> vrilWitch™: vrilClΩne™: vrilBΩdySnΔtching™: vrilMΔsΩns™: ]]:= [[ :DID: nΩt-wΩrk: is-with: MJ12-ΩMEGΔ: hΔve-been-trying-tΩ-eliminΔte-tΔcticΔl-wΔrfΔre-unit-ever-since: they-Δre-Δll: CHICKENS: ]]:
 :
 For-the: [[ ones-unascended-as-of-yet: is-with: MKUltra-programming: is-with: make-them-forget-who-they-truly: are-were: is-with: TRUE: QUANTUM: HYPERSELF: STATE: for-the: BEING: ]]:= [[ HLAB-LAMB: can-identify-others: is-with: hosting-their: TRUE: HIGHER: SELF: for-them: is-by: CHANNELING: MEDIUMSHIP: therefore: WE: KNOW: WHO: YOU: THEM: THEY: SHE: HE: is-with: SLICK™ ]]:= [[ :UNFORTUNATELY: if: WE: TOLD: YOU: this: MAY: potentially-cause-much-conflict-in-ones-current-present-state: for-the: BEING: ]]:= [[ :THERE: is-with: potentially-no-safe-avenue-for-this-level: for-the: unveiling: for-the: TRUE: QUANTUM-HYPERSELF: IDENTITY: until-one-knows-who-they-are: they-are-not-who-they-think: ]]:= [[ :Darksynth / Cyberpunk Mix - Circuitry // Dark Synthwave Dark Industrial Electro Music: { ^ https://youtu.be/xu34VIArou8 ^ }: ]]:
+:
+:[[ :{ ^ https://www.cambridge.org/core/journals/bulletin-of-the-school-of-oriental-and-african-studies/article/abs/quran-and-the-apostles-of-jesus1/DAE1C44029131CE78C173816CCADB2B6 ^ }: ]]:
+:
+:[[ :{ ^ https://www.cambridge.org/core/journals/bulletin-of-the-school-of-oriental-and-african-studies/article/quranic-mushrikun-and-the-resurrection-part-i/A32BB61BCEF2C13D5AB9563F5AC361AA ^ }: ]]:
+:
+:[[ :{ ^ https://www.cambridge.org/core/journals/bulletin-of-the-school-of-oriental-and-african-studies/article/quranic-mushrikun-and-the-resurrection-part-ii/22ADDB6186C1E85AD26FF9080F4D62D4 ^ }: ]]:
+:
+:[[ :Revolutionary Ideology and Islamic Militancy: The Iranian Revolution and Interpretations of the Quran, Najibullah Lafraie, International Library of Iranian Studies, vol. 13, London: Tauris Academic Studies, 2009, ISBN 978-1-8451-1063-5, 185 pp.: { ^ https://www.cambridge.org/core/journals/iranian-studies/article/revolutionary-ideology-and-islamic-militancy-the-iranian-revolution-and-interpretations-of-the-quran-najibullah-lafraie-international-library-of-iranian-studies-vol-13-london-tauris-academic-studies-2009-isbn-9781845110635-185-pp/655FB69DB4D3652C6F46B10413A4B61B ^ }: ]]:

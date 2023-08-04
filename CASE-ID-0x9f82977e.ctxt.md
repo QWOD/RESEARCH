@@ -1,4 +1,4 @@
- # :[[ :CHOOSE: YOUR-OWN-DESTINY: WISELY: ]]: 
+### <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">:[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: is-with: Amazon-Associates: ]]:</a>
 >>>
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
@@ -137,6 +137,33 @@
  >>>
  ###
     :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+ >>>
+ ###
+ ### [[ :The Study Quran: A New Translation and Commentary: ]]:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
+ >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
+ >>>
+ ###
+ ### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: ]]:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
+ >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
+ >>>
+ ###
+ ### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: ]]:
+ >>>
+ ###
+    :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
+ >>>
+ ###
+ >:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
  >>>
  #
  ### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]]:
