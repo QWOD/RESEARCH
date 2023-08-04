@@ -487,3 +487,5 @@ For-the: [[ ones-unascended-as-of-yet: is-with: MKUltra-programming: is-with: ma
 :[[ :{ ^ https://www.cambridge.org/core/journals/bulletin-of-the-school-of-oriental-and-african-studies/article/quranic-mushrikun-and-the-resurrection-part-ii/22ADDB6186C1E85AD26FF9080F4D62D4 ^ }: ]]:
 :
 :[[ :Revolutionary Ideology and Islamic Militancy: The Iranian Revolution and Interpretations of the Quran, Najibullah Lafraie, International Library of Iranian Studies, vol. 13, London: Tauris Academic Studies, 2009, ISBN 978-1-8451-1063-5, 185 pp.: { ^ https://www.cambridge.org/core/journals/iranian-studies/article/revolutionary-ideology-and-islamic-militancy-the-iranian-revolution-and-interpretations-of-the-quran-najibullah-lafraie-international-library-of-iranian-studies-vol-13-london-tauris-academic-studies-2009-isbn-9781845110635-185-pp/655FB69DB4D3652C6F46B10413A4B61B ^ }: ]]:
+
+https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1
