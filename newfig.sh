@@ -13,6 +13,6 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   for fig in `ls`; do
     git add $fig
   done
-  git commit -m $(passworder -uuid)
+  git commit -a -m $(passworder -uuid)
   git push
 fi
