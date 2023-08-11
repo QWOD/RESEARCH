@@ -17,7 +17,7 @@
 ###
 # :[[ :TECHNICΔL-PRΩGRΔMMING-MΔNUΔL: fΩr-the: next-cycle: ]]:
  >>>
-    :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.CTXT.MD ^ }:
+    :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.ctxt.md ^ }:
  >>>
  ### :[[ §: 1:1 ]]:= [[ EXODUS: <=> OP: EXFIL: ]]:
  #
