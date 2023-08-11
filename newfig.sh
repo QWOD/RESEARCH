@@ -9,11 +9,11 @@ if [[ $* == "-r" ]] && [[ $* != "-p" ]]; then
 fi
 if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   git config --global pull.rebase false
+  git merge --no-ff
   git pull
   for fig in `ls`; do
     git add $fig
   done
-  git merge --no-ff
   git commit -a -m $(passworder -uuid)
   git push
 fi
