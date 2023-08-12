@@ -28,7 +28,7 @@
 >### [[ PHΔSE: is-by: 1: for-the: HΩLLΩWEEN: ]]:
 :[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: begin-lΩΩking-very-hΩllΩw: HΔ: will-continue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until-they-surrender: fΩr-the: PRΩVEN: FΔCT: is-with: HΔ: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HIGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
 >>>
-# [[ :OPERATIONAL-EDUCATION: ]]:
+# :[[ OPERATIONAL-EDUCATION: ]]:
 >>>
 ###
 >>>
