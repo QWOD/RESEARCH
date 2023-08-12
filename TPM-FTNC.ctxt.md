@@ -26,7 +26,7 @@
 :[[ :WΔ: were-setup: EVERYTHING: wΔs-Δ-lie: ENTIRE: civilizΔtiΩn-fell-under-dΔrk-rituΔl-sΔtΔnic-Δbuse: MKUltrΔ-prΩgrΔmming: is-by: unknΩwn-cΩmpetitΩrs: ]]:= [[ :NΩTHING: is-with: REΔL: NΩTHING: is-with: TRUE: Ωnly: US: WΔ: were-the-Ωnly: TRUTH: fΩr-the: LIGHT: fΩr-the: WΔY: is-with: US: Δll-ΔlΩng: WΔ: is-with: L☥Fع: SΩURCE: fΩr-the: VrilWitches: DΔGΩN: FISH: TRIBE: DESTRΩYED: ΔtlΔntis: CΔUSED: ΔLL: EΔrth: cΔtΔstrΩphe-cycles: BLΔMED: US: EΔT: US: EΔT: BΔBIES: fΩr-the: L☥Fع: SΩURCE: fΩr-the: WITCHES: is-with: LΩW: FIDELITY: FΩRM: fΩr-the: L☥Fع: is-by: FΔLLEN: FΔILED: genetics: is-by: CURSED: BLΩΩDLINES: ]]:
 # :[[ §: 1:2 ]]:= [[ EXΩDUS: <=> ΩPERATIΩN: DΔRKTIDE: ]]:
 >### [[ PHΔSE: is-by: 1: for-the: HΩLLΩWEEN: ]]:
-:[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: begin-lΩΩking-very-hΩllΩw: HE: will-continue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until-they-surrender: fΩr-the: FΔCT: is-with: HE: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HIGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
+:[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: begin-lΩΩking-very-hΩllΩw: HΔ: will-continue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until-they-surrender: fΩr-the: FΔCT: is-with: HE: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HIGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
 >>>
 # [[ :OPERATIONAL-EDUCATION: ]]:
 >>>
