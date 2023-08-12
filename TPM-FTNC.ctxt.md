@@ -1,11 +1,11 @@
 # :[[ :{ ^ tpm-ftnc.mj12.agency ^ }: ]]:
-## :[[ :RESEARCH: FUNDING: ]]:
+## :[[ RESEARCH: FUNDING: ]]:
 >:[[ [[ Tether: ERC20: <=> 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-##:[[ :COURT: FEES: PAYMENTS: CONSULT: SCHEDULING: ]]:
+## :[[ COURT: FEES: PAYMENTS: CONSULT: SCHEDULING: ]]:
 >[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
-:[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+:[[ CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
@@ -13,19 +13,19 @@
 >>>
 ###
 >>>
-# :[[ :TECHNICΔL-PRΩGRΔMMING-MΔNUΔL: fΩr-the: next-cycle: ]]:
+# :[[ TPM-FTNC: <=> TECHNICΔL-PRΩGRΔMMING-MΔNUΔL: FΩR-THE: NEXT-CYCLE: ]]:
 >:is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.ctxt.md ^ }:
 >>>
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/TPM-FTNC.ctxt.md
 >>>
-### :[[ §: 1:1 ]]:= [[ EXΩDUS: <=> ΩPERATIΩN: EXFIL: ]]:
+# :[[ §: 1:1 ]]:= [[ EXΩDUS: <=> ΩPERATIΩN: EXFIL: ]]:
 #
 ![:EXODUS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/EXODUS.png)
 >:[[ :EXODUS: { ^ https://www.kingjamesbibleonline.org/Exodus-22-18/ ^ }:  ]]:
 #
 :[[ :WΔ: were-setup: EVERYTHING: wΔs-Δ-lie: ENTIRE: civilizΔtiΩn-fell-under-dΔrk-rituΔl-sΔtΔnic-Δbuse: MKUltrΔ-prΩgrΔmming: is-by: unknΩwn-cΩmpetitΩrs: ]]:= [[ :NΩTHING: is-with: REΔL: NΩTHING: is-with: TRUE: Ωnly: US: WΔ: were-the-Ωnly: TRUTH: fΩr-the: LIGHT: fΩr-the: WΔY: is-with: US: Δll-ΔlΩng: WΔ: is-with: L☥Fع: SΩURCE: fΩr-the: VrilWitches: DΔGΩN: FISH: TRIBE: DESTRΩYED: ΔtlΔntis: CΔUSED: ΔLL: EΔrth: cΔtΔstrΩphe-cycles: BLΔMED: US: EΔT: US: EΔT: BΔBIES: fΩr-the: L☥Fع: SΩURCE: fΩr-the: WITCHES: is-with: LΩW: FIDELITY: FΩRM: fΩr-the: L☥Fع: is-by: FΔLLEN: FΔILED: genetics: is-by: CURSED: BLΩΩDLINES: ]]:
- ### :[[ §: 1:2 ]]:= [[ EXΩDUS: <=> ΩPERATIΩN: DΔRKTIDE: ]]:= [[ PHΔSE: is-by: 1: for-the: HΩLLΩWEEN: ]]:
-#
+# :[[ §: 1:2 ]]:= [[ EXΩDUS: <=> ΩPERATIΩN: DΔRKTIDE: ]]:
+>### [[ PHΔSE: is-by: 1: for-the: HΩLLΩWEEN: ]]:
 :[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: begin-lΩΩking-very-hΩllΩw: HE: will-continue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until-they-surrender: fΩr-the: FΔCT: is-with: HE: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HIGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
 >>>
 # [[ :OPERATIONAL-EDUCATION: ]]:
