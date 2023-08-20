@@ -1,3 +1,6 @@
+# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: is-with: [[ fΩr-the: PEΩPLE: is-by: THE-PEΩPLE: ]] ]]:
+###
+>>>
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRΔT: <=> [[ LΔFE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 >:is-by: [[ TRUE | FΔLSE ]]: is-by: [[ _ ]]: For-the: [[ EternΔl: SECRET: <=> "is-with: vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
