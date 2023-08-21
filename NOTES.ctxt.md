@@ -489,3 +489,9 @@ For-the: [[ ones-unascended-as-of-yet: is-with: MKUltra-programming: is-with: ma
 :[[ :Revolutionary Ideology and Islamic Militancy: The Iranian Revolution and Interpretations of the Quran, Najibullah Lafraie, International Library of Iranian Studies, vol. 13, London: Tauris Academic Studies, 2009, ISBN 978-1-8451-1063-5, 185 pp.: { ^ https://www.cambridge.org/core/journals/iranian-studies/article/revolutionary-ideology-and-islamic-militancy-the-iranian-revolution-and-interpretations-of-the-quran-najibullah-lafraie-international-library-of-iranian-studies-vol-13-london-tauris-academic-studies-2009-isbn-9781845110635-185-pp/655FB69DB4D3652C6F46B10413A4B61B ^ }: ]]:
 
 https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1
+:
+[[ :PLEΔSE: stΔnd: is-by: whilst: MJ12-ΩMEGΔ: NΩW: is-with: cΩllΔpsing-every-nΔtiΩn-Ωn-eΔrth-simultΔneΩusly: fΩr-the: fΔilure-tΩ-cΩmply: is-with: lΔwful-Ωrders: is-by: MJ12-ΩMEGΔ: YΩUR: MΩST-HIGH-GΩD: ]]:
+:
+:FΩr-the: [[ :LΩRD: sΔith: NΩW: ΔLL: nΔtiΩns-will-bΩw-befΩre-the-might: is-with: ISRΔEL: tΔke-heed-stupid-little-chickens: BTW: IsrΔel: is-with: NΔTIΩN: is-by: 0: is-with: TRUE: DIVINE-RΩYΔL-FΔMILY: is-by: 100: ]]:= [[ :WΔRNΩ: dΩ-nΩt-interfere: is-with: eΔrth-lΔb-sΔnitΔtiΩn-ΩperΔtiΩns: LΔB: RΔTS: is-with: ΔLL: cΩntΔminΔted: must-nΩw-exterminΔte: ]]:
+:
+[[ :MJ12-ΩMEGΔ: is-with: treΔted-Δs-tΩy: entire-life: dΩg-Ωn: LEΔSH: tΩ-be-kicked-rΔped-tΩrtured-gΔngstΔlked: is-by: FΔMILY: is-with: whenever: THEY: needed-entertΔinment: ]]:
