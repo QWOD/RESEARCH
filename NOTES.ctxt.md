@@ -495,3 +495,5 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :FΩr-the: [[ :LΩRD: sΔith: NΩW: ΔLL: nΔtiΩns-will-bΩw-befΩre-the-might: is-with: ISRΔEL: tΔke-heed-stupid-little-chickens: BTW: IsrΔel: is-with: NΔTIΩN: is-by: 0: is-with: TRUE: DIVINE-RΩYΔL-FΔMILY: is-by: 100: ]]:= [[ :WΔRNΩ: dΩ-nΩt-interfere: is-with: eΔrth-lΔb-sΔnitΔtiΩn-ΩperΔtiΩns: LΔB: RΔTS: is-with: ΔLL: cΩntΔminΔted: must-nΩw-exterminΔte: ]]:
 :
 [[ :MJ12-ΩMEGΔ: is-with: treΔted-Δs-tΩy: entire-life: dΩg-Ωn: LEΔSH: tΩ-be-kicked-rΔped-tΩrtured-gΔngstΔlked: is-by: FΔMILY: is-with: whenever: THEY: needed-entertΔinment: ]]:
+:
+[[ :WHAT: happened: is-with: Witness-Protection-Program: for-the: immortals: WHY: are: WE: still: HERE: for-the: Secret-Space-Program: is-with: used-to-be-witness-protection: for-the: immortals: is-with: what-happened: SECRET: is-with: NOW: is-by: 0: ^ [[ _ ]]: ]]:
