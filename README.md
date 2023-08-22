@@ -14,7 +14,8 @@
 >:1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: ΩUT ]] ]]:
 ###
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: FעִN:ΔNG: ]]:
-    :For-the: Tether: ERC20: [[ 0xb337572f45FEa5C3603E873D4F8398795689BB2e ]]: 1s-by: { ^crypto: Δ: cΩm: app: rh5gbrhfew^ }:
+    :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
