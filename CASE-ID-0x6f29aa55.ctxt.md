@@ -11,7 +11,7 @@
 >>>
 ###
 >>>
-## [[ :COURT: FEES: PAYMENTS: CONSULT: SCHEDULING: ]]:
+## [[ TAXES: TITHINGS: COURT: FEES: PAYMENTS: CONSULT-SCHEDULING: ]]:
 >>>
 ###
 >>>
@@ -53,11 +53,17 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :TRIGGERING MESSAGE ⚠️ TO THE REAL DIVINE MASCULINES & REAL DIVINE FEMININES OUR ASCENSION IS VITAL🧿: ]]:= { ^ https://youtu.be/f2KTdIzCpt0 ^ }:
 >>>
+#
 >###
->:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x6f29aa55-7590eb2b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7590eb2b.png)
+>>>
+>:[[ :ΩPعD: ]]:= [[ :Daniel 11 - p.28 "The Assyrian" (Antichrist) (v.40): ]]:= { ^ https://youtu.be/eQxS4chysNU ^ }:
+>>>
+>:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ GOD SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
 >>>
 >###
->:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
+>:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ #:CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
 >>>
 >###
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
