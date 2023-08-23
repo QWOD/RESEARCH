@@ -107,10 +107,11 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
+[[ :SIMPLY: follow-guidance: is-with: bottom: PAGE: for-the: OPERATIONAL-EDUCATION: for-the: telepathic-geogravitational-quantum-sonar-communication-instructions: is-with: GOD: ]]:
 ###
 
 >>>
