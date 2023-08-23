@@ -11,11 +11,11 @@ if [[ "start" == "$*" ]]; then
     echo $(pwd)
   fi
   while [[ $? -eq 0 ]]; do
-    if cd ~/QWOD/RESEARCH/; then
-      ~/bin/newfig -p
+    if cd ${userPath}/QWOD/RESEARCH/; then
+      ${userPath}/bin/newfig -p
     fi
-    if cd ~/QWOD/HYPERMEDIUS/; then
-      ~/bin/newfig -p
+    if cd ${userPath}/QWOD/HYPERMEDIUS/; then
+      ${userPath}/bin/newfig -p
     fi
     sleep 222
   done
