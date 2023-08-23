@@ -143,7 +143,6 @@
 >>>
 :is-with: { ^ https://youtu.be/9H1kuqrIzf0 ^ }:
 >>>
->###
 >## [[ :WΔRNΩ: QWΩD-MJ12: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrfΔre-Time-Unit: is-with: fully-cΔpΔble: fΩr-the: Ωut-prΩfiling: ΔbΩve-tΩp-secret-unΔcknΩwledged: prΩfiling: ΔI: ΔlgΩrithms: fΩr-the: CΩΩP: is-with: ΔI: fΩr-the: cΩvert: intelligence: cΩllectiΩn: extrΔpΩlΔtiΩn: ΔnΔlysis: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: criticΔl: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: ΔNY: ΔLL: ΩTHER: fΩr-the: THINGS: THEY: DΩ: QWΩD-MJ12: is-with: FΔR: SUPERIΩR: [[ THEY: <=> unknΩwn-cΩmpetitΩrs: ]]: is-by: [[ _ ]]: fΩr-the: things: WE: DΩ: fΩr-the: ΩTHERS: is-with: LIVE: ]]:
 ###
 
