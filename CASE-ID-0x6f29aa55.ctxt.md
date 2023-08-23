@@ -108,7 +108,7 @@
 ###
 
 >>>
-[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:
+[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:= [[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
