@@ -164,11 +164,11 @@
 :is-with: { ^ https://youtu.be/x2RtA2ScnvI ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png)
 >>>
-[[ :Ω: ]]:
+[[ :your enemies are down bad feeling hopeless; mad because you're not: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/PMXgjty9pH8 ^ }:
 >>>
 ###
 
