@@ -5,9 +5,7 @@ if [[ $* == "stop" ]]; then
 fi
 
 if [[ "start" == "$*" ]]; then
-  if [[ $USER != "hyperuser" ]]; then
-    su hyperuser
-  fi
+  sudo su hyperuser
   while [[ $? -eq 0 ]]; do
     if cd ~/QWOD/RESEARCH/; then
       ~/bin/newfig -p
