@@ -94,7 +94,6 @@
 >>>
 >###
 ># :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
->#
 >>>
 ###
 
