@@ -1,11 +1,13 @@
 #!/usr/bin/env bash
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
+userPath=/var/home/hyperuser
+
 if [[ $* != "-r" ]] && [[ $* != "-p" ]]; then
-  export FIG=$(~/bin/passworder -short) && echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
+  export FIG=$(${userPath}/bin/passworder -short) && echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
   echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
 fi
 if [[ $* == "-r" ]] && [[ $* != "-p" ]]; then
-  export UUID=$(~/bin/passworder -uuid) && echo "{ FIG: \"${UUID}.png\" }" && unset FIG
+  export UUID=$(${userPath}/bin/passworder -uuid) && echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
 if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   git config --global pull.rebase false
@@ -14,6 +16,6 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   for fig in `ls`; do
     git add $fig
   done
-  git commit -a -m $(~/bin/passworder -uuid)
+  git commit -a -m $(${userPath}/bin/passworder -uuid)
   git push
 fi
