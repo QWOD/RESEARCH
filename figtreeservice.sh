@@ -1,6 +1,8 @@
 #!/usr/bin/env bash
 userPath=/var/home/hyperuser
 
+[[ $* == "start" || $* == "stop" ]] || exit 0
+
 if [[ $* == "stop" ]]; then
   exit 0
 fi
