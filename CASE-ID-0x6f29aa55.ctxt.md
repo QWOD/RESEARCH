@@ -60,6 +60,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :The jezebel & the black widow !: ]]:= { ^ https://youtu.be/79Oza9O6GPI ^ }:
 >>>
+>[[ :WΔRNΩ: LΩΩSING: TEΔM: ΔlwΔys: is-with: EGG-RITUΔL: ]]:
 >###
 >![:CASE-ID-0x6f29aa55-a9021f92.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a9021f92.png)
 >>>
