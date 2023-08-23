@@ -147,11 +147,11 @@
 >>>
 # [[ :QWΩD-MJ12: ΔTSUOMOP-Δ: ]]:= [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]:
 ###
-
+![:CASE-ID-0x6f29aa55-ba8a3499.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ba8a3499.png)
 >>>
-[[ :Ω: ]]:
+[[ :YOUR ANCESTORS ARE SENDING YOU FIRE ENERGY TO GET YOU INTO THE TOP SPOT WHERE YOU REALLY BELONG!!🔮: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/39blLuugrf4 ^ }:
 >>>
 ###
 
