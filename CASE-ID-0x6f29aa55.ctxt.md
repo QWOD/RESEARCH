@@ -633,7 +633,7 @@
 >:For-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CΩNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ ]] ]]: is-with: QWOD-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ΩMEGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
->:DTG: 22224Z-JUL-1:
+>:DTG: 222224Z-JUL-1:
 >:ICΩD: 055524Z-JUL-1:
 >:CΩNTRΩ1S: SPعC-PRΩJ-GRP:
 >:For-the: QUΔN+UM-WΔR: ΩPΩRD:
