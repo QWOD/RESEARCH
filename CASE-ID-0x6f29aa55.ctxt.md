@@ -157,11 +157,11 @@
 >>>
 ## [[ :fΩr-the: THEY: [[ :think they cΔn keep peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :CHICKENS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: fΩr-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]] ]]:
 ###
-
+![:CASE-ID-0x6f29aa55-fe267d91.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fe267d91.png)
 >>>
-[[ :Ω: ]]:
+[[ :Psychic Readings by Aralamb Channeled by Melissa Gates Perry, TSP : [[ _: 776 ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/x2RtA2ScnvI ^ }:
 >>>
 ###
 
