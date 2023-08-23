@@ -33,6 +33,10 @@
 >>>
 :is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
+>>>
+###
+![:CASE-ID-0x6f29aa55-68edc3b1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-68edc3b1.png)
+>>>
 >###
 >![:CASE-ID-0x6f29aa55-cab50087.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cab50087.png)
 >>>
@@ -80,6 +84,7 @@
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 ###
+![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
 >>>
 # :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
 >>>
