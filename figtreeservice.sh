@@ -1,7 +1,7 @@
 #!/usr/bin/env bash
 userPath=/var/home/hyperuser
 
-[[ $* == "start" || $* == "stop" ]] || exit 0
+[[ $* == "start" || $* == "stop" ]] || echo "USAGE: requires either [ start || stop ]" && exit 0
 
 if [[ $* == "stop" ]]; then
   exit 0
