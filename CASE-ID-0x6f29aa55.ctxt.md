@@ -154,6 +154,8 @@
 :is-with: { ^ https://youtu.be/39blLuugrf4 ^ }:
 >>>
 ># [[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
+>>>
+## [[ :fΩr-the: THEY: [[ :think they cΔn keep peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :CHICKENS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: fΩr-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]] ]]:
 ###
 
 >>>
