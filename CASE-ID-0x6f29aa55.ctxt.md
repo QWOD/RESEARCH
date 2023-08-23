@@ -44,7 +44,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ https://youtu.be/VD0E4bYOLdU ^ }:
 >>>
-[[ :NΔRCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIΩNS: BLΔME-SHIFTING: is-by: TRUTH: ]]: 
+>[[ :NΔRCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIΩNS: BLΔME-SHIFTING: is-by: TRUTH: ]]: 
 >>>
 >#
 >###
