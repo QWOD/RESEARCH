@@ -127,11 +127,11 @@
 :is-with: { ^ https://youtu.be/4VSmH1cpuxc ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-c21af5cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c21af5cb.png)
 >>>
-[[ :Ω: ]]:
+[[ :THE SAME SPIRIT THEY LIED TO ABOUT YOU ⚠️ IS THE SAME ONE BEING DIVINELY ORDERED TO TAKE THEM OUT 👀: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/2q9dZPgqF5w ^ }:
 >>>
 ###
 
