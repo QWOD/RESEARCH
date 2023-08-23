@@ -76,7 +76,9 @@
 >:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ #:CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
 >>>
 >###
->:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+![:CASE-ID-0x6f29aa55-b2092996.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b2092996.png)
+>>>
+>:[[ :ΩPعD: ]]:= [[ :ancestral council messages about spiritual mafia + judgement: ]]:= { ^ https://youtu.be/zC9eDAC72qQ ^ }:
 >>>
 >###
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
