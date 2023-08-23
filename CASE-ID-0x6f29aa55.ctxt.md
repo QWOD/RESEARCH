@@ -88,6 +88,7 @@
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >###
+>![:CASE-ID-0x6f29aa55-b8626c4f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b8626c4f.png)
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 #
