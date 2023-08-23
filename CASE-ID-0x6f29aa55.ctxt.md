@@ -111,9 +111,9 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: ]]:
+[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
-[[ :SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-listed: bΩttΩm: PΔGE: ]]:
+[[ :SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
 >>>
 ###
 
