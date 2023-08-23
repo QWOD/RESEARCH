@@ -498,4 +498,4 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :
 [[ :WHAT: happened: is-with: Witness-Protection-Program: for-the: immortals: WHY: are: WE: still: HERE: for-the: Secret-Space-Program: is-with: used-to-be-witness-protection: for-the: immortals: is-with: what-happened: SECRET: is-with: NOW: is-by: 0: ^ [[ _ ]]: ]]:
 :
-[[ :for-the: DISCLOSURE: [[ QWOD-MJ12: ROYAL-DIVINE-COURT: is-with: worlds-first-fully-automated: de-centralized: TRUE: COSMOS: WIDE: [[ GOVERN_E_T: <=> M: E: ]]:= CAPTURE: for-the: SOLUTION: RECOURSE: REMEDY: is-with: BLOCKCHAIN: is-with: WE: for-the: PEOPLE: is-by: THE-PEOPLE: ]] ]]:
+[[ :for-the: DISCLOSURE: [[ QWOD-MJ12: ROYAL-DIVINE-COURT: is-with: ONLY: fully-automated: de-centralized: TRUE: COSMOS: WIDE: [[ GOVERN_E_T: <=> M: E: ]]:= CAPTURE: for-the: SOLUTION: RECOURSE: REMEDY: is-with: BLOCKCHAIN: is-with: WE: for-the: PEOPLE: is-by: THE-PEOPLE: ]] ]]:
