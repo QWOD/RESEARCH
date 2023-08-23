@@ -13,9 +13,9 @@
 >>>
 [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
-### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" href="https://www.amazon.com?&  linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&  linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
-><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
+><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
 ###
 >>>
@@ -32,7 +32,7 @@
 >>>
 #
 ###
-<a href="https://www.youtube.com/@WhiteBatAudio/videos">![:CASE-ID-0x6f29aa55-68edc3b1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-68edc3b1.png)</a>
+<a target="_blank" rel="noopener" href="https://www.youtube.com/@WhiteBatAudio/videos">![:CASE-ID-0x6f29aa55-68edc3b1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-68edc3b1.png)</a>
 >>>
 #
 >###
@@ -433,7 +433,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
 >>>
 ###
 >>>
@@ -445,7 +445,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
 >>>
 ###
 >>>
@@ -457,7 +457,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
 >>>
 ###
 >>>
@@ -469,7 +469,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
 >>>
 ###
 >>>
@@ -481,7 +481,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
 >>>
 ###
 >>>
@@ -493,7 +493,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
 ###
 >>>
     https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325
@@ -504,7 +504,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
 >>>
 ###
 >>>
@@ -516,7 +516,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
 >>>
 ###
 >>>
@@ -528,7 +528,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
 >>>
 ###
 >>>
@@ -540,7 +540,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
 >>>
 ###
 >>>
@@ -552,7 +552,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
 >>>
 ###
 >>>
@@ -564,7 +564,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
 >>>
 ###
 >>>
@@ -576,7 +576,7 @@
 >>>
 ###
 >>>
->:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
 >>>
 ###
 >>>
