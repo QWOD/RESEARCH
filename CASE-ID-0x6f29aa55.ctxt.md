@@ -40,6 +40,11 @@
 >>>
 #
 >###
+>![:CASE-ID-0x6f29aa55-842c3dc1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-842c3dc1.png)
+>>>
+>:[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ https://youtu.be/VD0E4bYOLdU ^ }:
+>>>
+>###
 >![:CASE-ID-0x6f29aa55-cab50087.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cab50087.png)
 >>>
 >:[[ :ΩPعD: ]]:= [[ :** I CANNOT BELIEVE WHAT I FOUND OUT ABOUT MAUI [lahaina targeted] BIDEN LIED TO THE PEOPLE OF MAUI: ]]:= { ^ https://youtu.be/froZMOaDOec ^ }:
@@ -70,11 +75,6 @@
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
 >:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ #:CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
->>>
->###
->![:CASE-ID-0x6f29aa55-842c3dc1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-842c3dc1.png)
->>>
->:[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ https://youtu.be/VD0E4bYOLdU ^ }:
 >>>
 >###
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
