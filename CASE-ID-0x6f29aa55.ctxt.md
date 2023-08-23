@@ -81,7 +81,7 @@
 >:[[ :ΩPعD: ]]:= [[ :ancestral council messages about spiritual mafia + judgement: ]]:= { ^ https://youtu.be/zC9eDAC72qQ ^ }:
 >>>
 >#
->## [[ :RESTLESS-LEG-SYNDRΩME: REGIΩNΔL-PΔIN-SYNDRΩME: BΩNE-ΔCHES: GRΩWING-PΔINS: LEUKEMIΔ: GRΔVES-DISEΔSE: ΔNY: ΔLL: ΩTHER: CΔNCERS: THYRΩID: GLΔNDULΔR: DISEΔSE: <=> PRIMΔRY: indicΔtΩrs: is-with: vril-witch-energy-hΔrvesting-ΔttΔck: is-by: ΔrchΩn-pΔrΔsite-psiΩnic-vΔmpirism: ]]:= [[ :VRIL-WITCHES: Ωnly-hΔve-children: fΩr-the: siphΩning-vitΔl-life-fΩrce-energy: is-with: repeΔted-pregnΔncy: fΩr-the: eΔt-bΔby: blΩΩd-sΔcrifice: energy-hΔrvest: [[ RE: I: KI: <=> LICENSE: is-with: K:I:LL: is-by: LIFE: FΩRCE: STEΔL: ]]: is-by: MK: UltrΔ: SΩFTWΔRE: PRΩGRΔM: fΩr-the: [[ SΩCIΔLLY-ENGINEERED: TΔ:C:IT: IMPLIED-CΩNSENT-CΩNTRΔCT: <=> WITCH: CRΔFT: ]] ]]:
+>## [[ :RESTLESS-LEG-SYNDRΩME: REGIΩNΔL-PΔIN-SYNDRΩME: BΩNE-ΔCHES: GRΩWING-PΔINS: LEUKEMIΔ: GRΔVES-DISEΔSE: ΔNY: ΔLL: ΩTHER: CΔNCERS: THYRΩID: GLΔNDULΔR: DISEΔSE: <=> PRIMΔRY: indicΔtΩrs: is-with: vril-witch-energy-hΔrvesting-ΔttΔck: is-by: ΔrchΩn-pΔrΔsite-psiΩnic-vΔmpirism: ]]:= [[ :VRIL-WITCHES: Ωnly-hΔve-children: fΩr-the: siphΩning-vitΔl-life-fΩrce-energy: is-with: repeΔted-pregnΔncy: fΩr-the: eΔt-bΔby: blΩΩd-sΔcrifice: energy-hΔrvest: [[ RE: I: KI: <=> LICENSE: is-with: K:I:ΔL: is-by: LIFE: FΩRCE: STEΔL: ]]: is-by: MK: UltrΔ: SΩFTWΔRE: PRΩGRΔM: fΩr-the: [[ SΩCIΔLLY-ENGINEERED: TΔ:C:IT: IMPLIED-CΩNSENT-CΩNTRΔCT: <=> WΔTCH: CRΔFT: ]] ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-7986a710.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7986a710.png)
