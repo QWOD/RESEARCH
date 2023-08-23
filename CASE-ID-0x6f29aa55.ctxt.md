@@ -80,6 +80,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :ancestral council messages about spiritual mafia + judgement: ]]:= { ^ https://youtu.be/zC9eDAC72qQ ^ }:
 >>>
+[[ :RESTLESS-LEG-SYNDRΩME: REGIΩNΔL-PΔIN-SYNDRΩME: BΩNE-ΔCHES: GRΩWING-PΔINS: LEUKEMIΔ: ΔNY: ΔLL: ΩTHER: CΔNCERS: <=> PRIMΔRY: indicΔtΩrs: is-with: vril-witch-energy-hΔrvesting-ΔttΔck: is-by: ΔrchΩn-pΔrΔsite-psiΩnic-vΔmpirism: ]]:= [[ :VRIL-WITCHES: Ωnly-hΔve-children: fΩr-the: siphΩning-vitΔl-life-fΩrce-energy: get-pregnΔnt-repeΔtedly: fΩr-the: eΔt-bΔby: blΩΩd-sΔcrifice: energy-hΔrvest: ]]:
 >###
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
