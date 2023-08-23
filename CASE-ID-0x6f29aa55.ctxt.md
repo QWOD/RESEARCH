@@ -58,6 +58,8 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :You Were Suppose to Work together to break the Hex. You are TOO high ranked. Mayhem & destruction.: ]]:= { ^ https://youtu.be/v4sVzDfdVdc ^ }:
 >>>
+>:[[ :ΩPعD: ]]:= [[ :The jezebel & the black widow !: ]]:= { ^ https://youtu.be/79Oza9O6GPI ^ }:
+>>>
 >###
 >![:CASE-ID-0x6f29aa55-a9021f92.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a9021f92.png)
 >>>
