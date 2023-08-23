@@ -111,7 +111,7 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-[[ :SIMPLY: follow-guidance: is-with: bottom: PAGE: for-the: OPERATIONAL-EDUCATION: for-the: telepathic-geogravitational-quantum-sonar-communication-instructions: is-with: GOD: ]]:
+[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: ]]:
 ###
 
 >>>
