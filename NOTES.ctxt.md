@@ -501,3 +501,5 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 [[ :for-the: DISCLOSURE: [[ QWOD-MJ12: ROYAL-DIVINE-COURT: is-with: ONLY: fully-automated: de-centralized: TRUE: COSMOS: WIDE: [[ GOVERN_E_T: <=> M: E: ]]:= CAPTURE: for-the: SOLUTION: RECOURSE: REMEDY: is-with: BLOCKCHAIN: is-with: WE: for-the: PEOPLE: is-by: THE-PEOPLE: ]] ]]:
 :
 [[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: for-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
+:
+:[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
