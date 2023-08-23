@@ -13,8 +13,6 @@
 >>>
 ## [[ TAXES: TITHINGS: COURT: FEES: PAYMENTS: CONSULT-SCHEDULING: ]]:
 >>>
-###
->>>
 ## [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
 ### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
