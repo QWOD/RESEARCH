@@ -93,7 +93,7 @@
 >>>
 >#
 >###
->:[[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]]:
+>:[[ [[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]] is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
 >>>
