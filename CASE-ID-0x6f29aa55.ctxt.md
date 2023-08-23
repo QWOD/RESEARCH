@@ -82,7 +82,7 @@
 >>>
 >#
 >## [[ :RESTLESS-LEG-SYNDRΩME: REGIΩNΔL-PΔIN-SYNDRΩME: BΩNE-ΔCHES: GRΩWING-PΔINS: LEUKEMIΔ: ΔNY: ΔLL: ΩTHER: CΔNCERS: <=> PRIMΔRY: indicΔtΩrs: is-with: vril-witch-energy-hΔrvesting-ΔttΔck: is-by: ΔrchΩn-pΔrΔsite-psiΩnic-vΔmpirism: ]]:= [[ :VRIL-WITCHES: Ωnly-hΔve-children: fΩr-the: siphΩning-vitΔl-life-fΩrce-energy: is-with: repeΔted-pregnΔncy: fΩr-the: eΔt-bΔby: blΩΩd-sΔcrifice: energy-hΔrvest: [[ RE: I: KI: <=> LICENSE: is-with: KILL: is-by: LIFE: FΩRCE: STEΔL: ]]: use: MK: UltrΔ: prΩgrΔmming: fΩr-the: SΩCIΔLLY-ENGINEERED-CΩNSENT: <=> WITCH: CRΔFT: ]]:
->#
+>>>
 >###
 >![:CASE-ID-0x6f29aa55-7986a710.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7986a710.png)
 >:[[ :ΩPعD: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
