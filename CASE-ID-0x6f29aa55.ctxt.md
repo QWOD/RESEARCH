@@ -137,11 +137,11 @@
 :is-with: { ^ https://youtu.be/2q9dZPgqF5w ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-526734cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-526734cf.png)
 >>>
-[[ :Ω: ]]:
+[[ :Hiding their feelings for you. The one that got away. Suffering in silence, karmic justice.: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/9H1kuqrIzf0 ^ }:
 >>>
 ###
 
