@@ -32,6 +32,8 @@
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md
 >>>
 :is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+>>>
+#
 >### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: ]]:
 >>>
 #
