@@ -44,6 +44,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ https://youtu.be/VD0E4bYOLdU ^ }:
 >>>
+[[ :NARCISSISTIC-INJURY: is-with: FALSE-PROJECTIONS: BLAME-SHIFTING: is-by: TRUTH: ]]: 
 >###
 >![:CASE-ID-0x6f29aa55-cab50087.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cab50087.png)
 >>>
@@ -706,7 +707,7 @@
 >>>
 >:For-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >>>
-###
+>###
 >[[ :RECOMMENDED: DARK-READER: SETTINGS: for-the: GITHUB: ]]:
 >>>
 >![DARK-READER](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DARK-READER-SETTINGS.png)
