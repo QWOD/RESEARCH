@@ -108,9 +108,11 @@
 ###
 
 >>>
-[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:= [[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:
+[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
+>>>
+[[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:= [[ :ΔNYTHING: thΔt-hΔppens-from-here-Ωn-Ωut: ΔLL: FΔULT: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
 >>>
 [[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
