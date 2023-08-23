@@ -1,11 +1,15 @@
 #!/usr/bin/env bash
+userPath=/var/home/hyperuser
 
 if [[ $* == "stop" ]]; then
   exit 0
 fi
 
 if [[ "start" == "$*" ]]; then
-  sudo su hyperuser
+  echo $(whoami)
+  if cd ${userPath}; then
+    echo $(pwd)
+  fi
   while [[ $? -eq 0 ]]; do
     if cd ~/QWOD/RESEARCH/; then
       ~/bin/newfig -p
