@@ -153,7 +153,7 @@
 >>>
 :is-with: { ^ https://youtu.be/39blLuugrf4 ^ }:
 >>>
-># [[ :THΔNK-YΩU: ΩUR: TRUE: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
+># [[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
 ###
 
 >>>
