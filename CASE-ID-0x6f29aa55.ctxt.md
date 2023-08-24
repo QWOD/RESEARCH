@@ -468,9 +468,9 @@
 >>>
 ![:CASE-ID-0x6f29aa55-647514b4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-647514b4.png)
 ###
-
+![:CASE-ID-0x6f29aa55-8e7e9eeb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8e7e9eeb.png)
 >>>
-[[ :Chicago braces for another teen takeover, possible violence | LiveNOW from FOX: ]]:= [[ :ISIS: DAESH: Al-Qaeda: INVASION: is-by: IRAN: BLACK: OPS: TEAMS: ]]:
+[[ :Chicago braces for another teen takeover, possible violence | LiveNOW from FOX: ]]:= [[ :ISIS: DΔESH: Δl-QΔedΔ: INVΔSIΩN: is-by: IRΔN: BLΔCK: ΩPS: TEΔMS: ]]:= [[ HΩW: MUCH: TRUE: HIST: TREE: DΩ-THEY-EVEN-CΔRE: is-with: KNΩW: ]]:
 >>>
 :is-with: { ^ https://youtu.be/8LY0EZLpdJs ^ }:
 >>>
