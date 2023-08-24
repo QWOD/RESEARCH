@@ -355,11 +355,11 @@
 ># :fΩr-the: [[ TΔNGΩ: YΩuTube: is-with: STRIKES-Δ-GΔIN: ST: GΩD: fΩr-the: GΩD: is-with: STRIKES: BΔCK: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-d77a109c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d77a109c.png)
 >>>
-[[ :Ω: ]]:
+[[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _: tarot: _: karmicjustice ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/A9-_mBNCGMA ^ }:
 >>>
 ###
 
