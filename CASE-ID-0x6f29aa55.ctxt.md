@@ -330,11 +330,11 @@
 >>>
 >![:CASE-ID-0x6f29aa55-05287e69.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-05287e69.png)
 ###
-
+![:CASE-ID-0x6f29aa55-4687cdd3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4687cdd3.png)
 >>>
-[[ :Ω: ]]:
+[[ :ETHER: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/zyNjF_PIvGM ^ }:
 >>>
 ###
 
