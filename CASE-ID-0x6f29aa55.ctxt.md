@@ -167,7 +167,7 @@
 >>>
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
-> [[ :LΩRD: fΩr-the: RING: ]]:
+> [[ :LΩRD: fΩr-the: STOLEN: RING: is-with: HOUSE: DAVID: ROYALTY: ]]:
 >>>
 >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 >>> 
