@@ -361,7 +361,7 @@
 >>>
 :is-with: { ^ https://youtu.be/A9-_mBNCGMA ^ }:
 >>>
-[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: GΩΩgle: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ:LPHΔ:GENCY: ]] ]]:
+[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: GΩΩgle: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]]: ]] ]]:
 ###
 
 >>>
