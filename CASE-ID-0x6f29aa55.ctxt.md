@@ -396,11 +396,15 @@
 >:is-with: { ^ https://youtu.be/Fk4X2desXAk ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-1260a30d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1260a30d.png)
 >>>
-[[ :Ω: ]]:
+[[ :NATO's Forces in Action During Intense Trainings: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ 😓DIVINE PRESSURE FOR THEM TO CONFESS AND ADMIT THE TRUTH| FEELING ASHAMED| STALKING YOU INSTEAD😤 ^ }:
+>>>
+[[ :ASSAULT: ]]:= { ^ https://youtu.be/PyfX491tnu0 ^ }:
+>>>
+![:CASE-ID-0x6f29aa55-8b082162.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8b082162.png)
 >>>
 ###
 
