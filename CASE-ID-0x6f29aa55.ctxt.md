@@ -305,7 +305,6 @@
 >>>>
 >## [[ :EΔCH: NEW-RΩUND: fΩr-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: fΩr-the: REVELΔTIΩNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-by: LΔST: shΔll-be-first: ]]:
 >>>
-#
 >###
 ![:CASE-ID-0x6f29aa55-7b09f05a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7b09f05a.png)
 >>>
@@ -313,9 +312,9 @@
 >>>
 >:is-with: { ^ https://youtu.be/dDJldh8KqnQ ^ }:
 >>>
-[[ :View from Huntington Beach Pier: ]]:
+># [[ :View from Huntington Beach Pier: ]]:
 >>>
-:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
+> :is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
 ###
 
