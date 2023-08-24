@@ -406,6 +406,8 @@
 >>>
 ![:CASE-ID-0x6f29aa55-8b082162.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8b082162.png)
 >>>
+# [[ :fΩr-the: NΩTICE: [[ QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: NΩW: is-with: sΩlved: is-by: 90: is-with: percent: fΩr-the: wΩrld-prΩblems: is-with: LESS-THΔN: is-by: Ωne: is-with: mΩnth ]]: ]]:
+>>>
 ###
 
 >>>
