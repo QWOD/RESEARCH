@@ -295,13 +295,17 @@
 >>>
 >#
 ###
-># [[ :CONSPIRACY-THEORY: ]]:
+># [[ :CΩNSPIRΔCY-THEΩRY: ]]:
 >>>>
->## [[ :EACH: NEW-ROUND: for-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: each-new: BIBLICAL: SEAL: is-with: BOOK: for-the: REVELATIONS: EACH: NEW-ROUND: WORSE: is-by: LAST: is-by: FIRST: is-by: LAST: shall-be-first: ]]:
+>## [[ :EΔCH: NEW-RΩUND: fΩr-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: fΩr-the: REVELΔTIΩNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-by: LΔST: shΔll-be-first: ]]:
 >>>
-[[ :Ω: ]]:
+#
+>###
+
 >>>
-:is-with: { ^ Δ ^ }:
+>[[ :Ω: ]]:
+>>>
+>:is-with: { ^ Δ ^ }:
 >>>
 ###
 
