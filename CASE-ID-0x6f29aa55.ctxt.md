@@ -322,11 +322,11 @@
 >![:CASE-ID-0x6f29aa55-bc9649ad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bc9649ad.png)
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-a007e074.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a007e074.png)
 >>>
-[[ :Ω: ]]:
+[[ :Ghost Circuit: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/bxsj6tc6juY ^ }:
 >>>
 ###
 
