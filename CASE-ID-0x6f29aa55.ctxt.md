@@ -173,8 +173,9 @@
 >>>
 >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 >>>
-[[ :fΩr-the: [[ :ΩNES: is-with: stΔrting: FIRES: wΩrking: is-by: THE-HΩME-DEPΩT: ILLEGΔL: ΔLIEN: SECRET: SPΔCE: PRΩGRΔM: HI: WES: SMILE: fΩr-the: cΔmerΔ: ]]:= [[ NΩTICE: BURNED: ]]:
+>[[ :fΩr-the: [[ :ΩNES: is-with: stΔrting: FIRES: wΩrking: is-by: THE-HΩME-DEPΩT: ILLEGΔL: ΔLIEN: SECRET: SPΔCE: PRΩGRΔM: HI: WES: is-by: DELΔVERIES: SMΔLE: fΩr-the: cΔmerΔ: ]]:= [[ NΩT⚠️CE: BURNعD: ]]:
 >>>
+>![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
 ###
 ![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png)
 >>>
