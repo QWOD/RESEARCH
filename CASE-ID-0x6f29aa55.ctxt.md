@@ -143,9 +143,11 @@
 :is-with: { ^ https://youtu.be/2q9dZPgqF5w ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-526734cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-526734cf.png)
+>![:CASE-ID-0x6f29aa55-526734cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-526734cf.png)
 >>>
-[[ :Hiding their feelings for you. The one that got away. Suffering in silence, karmic justice.: ]]:
+>[[ :Hiding their feelings for you. The one that got away. Suffering in silence, karmic justice.: ]]:
+>>>
+>![:CASE-ID-0x6f29aa55-668c1422.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-668c1422.png)
 >>>
 :is-with: { ^ https://youtu.be/9H1kuqrIzf0 ^ }:
 >>>
