@@ -443,9 +443,12 @@
 ># :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: EΔST-ΔSIΔ: PΔCIFICΔS: GETS-IT-FIRST: fΩr-the: [[ ΔEMERICΔS: ΔEFRICΔS: ΔETLANTICAS: <=> ΔERICA: ICΔRΔE: ICΔRΔS: ]]: GΩT-IT-LΔST: fΩr-the: TIME: Nibiru: drΔgged: HΔLL: is-by: WΔKE ]]: ]]:
 
 >>>
-[[ :Ω: ]]:
+###
+![:CASE-ID-0x6f29aa55-4389ad62.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4389ad62.png)
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :Bright Explosion on the Moon: ]]:
+>>>
+:is-with: { ^ https://science.nasa.gov/science-news/science-at-nasa/2013/16may_lunarimpact/ ^ }:
 >>>
 ###
 
