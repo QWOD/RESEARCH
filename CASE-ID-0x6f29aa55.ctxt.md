@@ -172,7 +172,9 @@
 # [[ :SΔrΔh-R-ΔdΔms: is-with: innΩcent-victim: is-by: circumstΔnce: ΔttΔcked: is-by: sΔme-vril-witch-cΩven: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: EΔSILY: DESTRΩYED: THEM: ΔLL: ]]:
 >>>
 >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
->>> 
+>>>
+[[ :fΩr-the: [[ :ΩNES: is-with: stΔrting: FIRES: wΩrking: is-by: THE-HΩME-DEPΩT: ILLEGΔL: ΔLIEN: SECRET: SPΔCE: PRΩGRΔM: HI: WES: SMILE: fΩr-the: cΔmerΔ: ]]:= [[ NΩTICE: BURNED: ]]:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png)
 >>>
