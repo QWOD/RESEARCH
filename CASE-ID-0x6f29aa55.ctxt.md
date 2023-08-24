@@ -368,7 +368,7 @@
 ###
 ># :[[ QWΩD-MJ12: TRUE: INTELLIGENCE: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:
 >>>
->[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]] ]]: fΩr-the: [[ LΩCKHEED-MΔRTIN: ΩRIGINΔL: SLΔVE: TRΔDE: ΩRIGINΔTΩRS: FRENCH: SPΔNISH: SΔTΔNIC: BLΩΩD: WΔTCH: CΩVEN: INVENTΩRS: is-with: SLΔVERY: MΔSS-GENΩCIDE: is-by: ΔNY: ΔLL: ΩTHER: NΔTIVE: TRIBES: RULING: fΩr-the: RESTITUTIΩN: fΩr-the: peΩple: is-by: peΩple: fΩr-the: CΩNTRΔCT: is-with: QWΩD-MJ12: RΩTΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY ]]: ]]:
+>[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]] ]]: fΩr-the: [[ LΩCKHEED-MΔRTIN: ΩRIGINΔL: SLΔVE: TRΔDE: ΩRIGINΔTΩRS: FRENCH: SPΔNISH: SΔTΔNIC: BLΩΩD: WΔTCH: CΩVEN: INVENTΩRS: is-with: SLΔVERY: MΔSS-GENΩCIDE: is-by: ΔNY: ΔLL: ΩTHER: NΔTIVE: TRIBES: RULING: fΩr-the: RECΩURSE: REMEDY: RESTITUTIΩN: fΩr-the: peΩple: is-by: peΩple: fΩr-the: CΩNTRΔCT: is-with: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY ]]: ]]:
 >>>
 ># :[[ :FΔLSE: INTELLIGENCE: is-by: unknΩwn-cΩmpetitΩrs: is-with: WHY: BΩTHER: ]]:
 >>>
