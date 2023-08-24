@@ -382,11 +382,11 @@
 :is-with: { ^ https://youtu.be/-aKtuGMl29E ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-3f3ec8cd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3f3ec8cd.png)
 >>>
-[[ :Ω: ]]:
+[[ :DEMON SLAYER- Demons attempting to fight into your energy daily because if your ordaining!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/SMHtgn3qadA ^ }:
 >>>
 ###
 
