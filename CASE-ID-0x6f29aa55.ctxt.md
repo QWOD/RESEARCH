@@ -375,11 +375,11 @@
 >![:CASE-ID-0x6f29aa55-eb9a97c7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-eb9a97c7.png)
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-027bb1dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-027bb1dc.png)
 >>>
-[[ :Ω: ]]:
+[[ :High Strangeness: A lifetime of Alien & Paranormal Encounters, Michael Kameron - TSP: [[ _ : 778 ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/-aKtuGMl29E ^ }:
 >>>
 ###
 
