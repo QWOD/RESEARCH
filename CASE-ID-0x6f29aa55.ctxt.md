@@ -167,6 +167,10 @@
 >>>
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
+> [[ :LΩRD: fΩr-the: RING: ]]:
+>>>
+>![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
+>>> 
 ###
 ![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png)
 >>>
