@@ -460,12 +460,13 @@
 :[[ fΩr-the: MK: ULTRΔ: PRΩGRΔM: is-with: mΔke: MJ12-ΩMEGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: DIVISIΩN: PΩLITICS: MEDIΔ: ILLUSIΩN-SPELLS: CΩNFUSIΩN-SPELLS: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-5d649041.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5d649041.png)
 >>>
-[[ :Ω: ]]:
+[[ :Meet 8 Young Founders Turning Trash Into Cash | World Wide Waste | Insider Business: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/_XTYv-AP4Jk ^ }:
 >>>
+![:CASE-ID-0x6f29aa55-647514b4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-647514b4.png)
 ###
 
 >>>
