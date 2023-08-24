@@ -249,6 +249,7 @@
 >>>
 [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW-DID-WE-NΩT-THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMEGΔ: is-with: FΔR: SUPERIΩR: Cryp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
 >>>
+[[ :HΩW-ΩLD: is-by: GΩVERNMENT: SMΔRTER: is-with: tΩddler: is-by: 0: ]]:
 ###
 ![:CASE-ID-0x6f29aa55-a317377d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a317377d.png)
 >>>
