@@ -231,7 +231,13 @@
 >>>
 :is-with: { ^ https://youtu.be/Tt0_PCcJJY0 ^ }:
 >>>
-# [[ :It were better for him that a millstone were hanged about his neck, and he cast into the sea, than that he should offend one of these little ones.: ]]:
+# [[ :It were better fΩr him thΔt Δ millstΩne were hΔnged ΔbΩut his neck, Δnd he cΔst intΩ the seΔ, thΔn thΔt he shΩuld Ωffend Ωne Ωf these little Ωnes.: ]]:
+>>>
+>[[ :fΩr-the: [[ LΩRD: <=> LΔW: ]]: CΩNTRΔCT: DISCLΩSURE: [[ Δ: fΩr-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-science-lΔb-simulΔtiΩn: Δ: is-by: 55: fΩr-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]] ]]:
+>>>
+[[ :CHECK-REFERENCES: is-with: PLEΔSE: fΩr-the: GΩ-ΔHEΔD: WΔ: is-with: WΔIT: ]]:
+
+[[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 ###
 
 >>>
