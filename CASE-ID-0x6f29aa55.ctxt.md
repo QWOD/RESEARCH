@@ -437,7 +437,7 @@
 >>>
 >:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
-># :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: GETS-IT-FIRST: fΩr-the: [[ ΔMERICΔS: ΔEFRICΔS: ΔETLANTICAS: <=> ΔERICA: ICARΔE: ]]: GΩT-IT-LΔST: fΩr-the: TIME: Nibiru: drΔgged: HΔLL: is-by: WΔKE: ]]:
+># :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: EΔST-ΔSIΔ: PΔCIFICΔS: GETS-IT-FIRST: fΩr-the: [[ ΔEMERICΔS: ΔEFRICΔS: ΔETLANTICAS: <=> ΔERICA: ICΔRΔE: ICΔRΔS: ]]: GΩT-IT-LΔST: fΩr-the: TIME: Nibiru: drΔgged: HΔLL: is-by: WΔKE ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
