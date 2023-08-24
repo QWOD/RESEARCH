@@ -238,6 +238,8 @@
 [[ :CHECK-REFERENCES: is-with: PLEΔSE: fΩr-the: GΩ-ΔHEΔD: WΔ: is-with: WΔIT: ]]:
 
 [[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
+>>>
+[[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW-DID-WE-NΩT-THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMEGΔ: is-with: FΔR: SUPERIΩR: Cryp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
 ###
 
 >>>
