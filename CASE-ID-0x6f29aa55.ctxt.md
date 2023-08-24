@@ -186,11 +186,15 @@
 :is-with: { ^ https://youtu.be/PMXgjty9pH8 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-83e2f5a6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-83e2f5a6.png)
 >>>
-[[ :Ω: ]]:
+[[ :Thght they would create hell 4 u..But u treaded thru the waters with ease..Give up, where? 4 who?: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/uZXoH3GqPA0 ^ }:
+>>>
+[[ :View from Huntington Beach Pier: ]]:= [[ :NEXT: TΔNGΩ-DELTΔ: HuntingtΩn-BeΔch: ]]:
+>>>
+:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
 ###
 
