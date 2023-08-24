@@ -437,7 +437,7 @@
 >>>
 >:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
-###
+># :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: GETS-IT-FIRST: fΩr-the: ΔERICΔS: GΩT-IT-LΔST: fΩr-the: TIME: Nibiru: drΔgged: HELL: is-with: WΔKE: ]]:
 
 >>>
 [[ :Ω: ]]:
