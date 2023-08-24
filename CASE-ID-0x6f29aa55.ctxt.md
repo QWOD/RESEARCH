@@ -314,7 +314,7 @@
 >>>
 >:is-with: { ^ https://youtu.be/dDJldh8KqnQ ^ }:
 >>>
-># [[ :View from Huntington Beach Pier: ]]:
+># [[ :for-the: [[ DISCLOSURE: [[ :View from Huntington Beach Pier: ]] ]] ]]:
 >>>
 > :is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
