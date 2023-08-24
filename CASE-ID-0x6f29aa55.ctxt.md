@@ -295,7 +295,9 @@
 >>>
 >#
 ###
-
+># [[ :CONSPIRACY-THEORY: ]]:
+>>>>
+>## [[ :EACH: NEW-ROUND: for-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: each-new: BIBLICAL: SEAL: is-with: BOOK: for-the: REVELATIONS: EACH: NEW-ROUND: WORSE: is-by: LAST: is-by: FIRST: is-by: LAST: shall-be-first: ]]:
 >>>
 [[ :Ω: ]]:
 >>>
