@@ -429,9 +429,13 @@
 ###
 # [[ :for-the: [[ QUESTIONS: is-with: ANY ]]: ]]:
 >>>
-[[ :Ω: ]]:
+>![:CASE-ID-0x6f29aa55-37464b97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-37464b97.png)
 >>>
-:is-with: { ^ Δ ^ }:
+>[[ :Earthstorm | Full Movie | Action Sci-Fi Disaster: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/taQAYRrAGJs ^ }:
+>>>
+>:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
 ###
 
