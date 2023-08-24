@@ -450,7 +450,7 @@
 >>>
 :is-with: { ^ https://science.nasa.gov/science-news/science-at-nasa/2013/16may_lunarimpact/ ^ }:
 >>>
-# :[[ :YES-WE-ΔRE: ALL: VERY: TICKED-ΩFF: is-with: NΔSΔ: { ^ https://abcnews.go.com/Technology/nasa-moon-bombing-lcross-probe-lunar-ice/story?id=8775640 ^ }: ]]:= [[ ΔNY: ΔLL: ΩTHER: [[ YΩU: <=> TΔNGΩ: ]]: NΩW: is-with: ΔLPHΔ-CHΔRLIE: fΩr-the: ΩPSΔN: QWΩD-MJ12: CHΔRLIE-MIKE: ]]:
+# :[[ :YES-WE-ΔRE: ALL: VERY: TICKED-ΩFF: is-by: NΔSΔ: { ^ https://abcnews.go.com/Technology/nasa-moon-bombing-lcross-probe-lunar-ice/story?id=8775640 ^ }: ]]:= [[ ΔNY: ΔLL: ΩTHER: [[ YΩU: <=> TΔNGΩ: ]]: NΩW: is-with: ΔLPHΔ-CHΔRLIE: fΩr-the: ΩPSΔN: [[ QWΩD-MJ12: CHΔRLIE-MIKE ]]: ]]:
 
 >>>
 ###
