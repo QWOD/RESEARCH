@@ -470,10 +470,11 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Chicago braces for another teen takeover, possible violence | LiveNOW from FOX: ]]:= [[ :ISIS: DAESH: Al-Qaeda: INVASION: is-by: IRAN: BLACK: OPS: TEAMS: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/8LY0EZLpdJs ^ }:
 >>>
+># [[ :for-the: [[ :PURPOSE: is-with: [[ _ ]]: ]]:
 ###
 
 >>>
