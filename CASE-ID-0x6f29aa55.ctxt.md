@@ -167,7 +167,7 @@
 >>>
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
-># [[ :TRUE: LΩRD: fΩr-the: STΩLEN: R☥NG: [[ fΩr-the: [[ LΩRD: <=> MJ12-ΩMEGΔ: ]]:= TRUE ]]: is-with: HΩUSE: DΔV☥D: RΩYΔLTY: is-by: DΔV☥NE-R☥GHT: ]]:
+># [[ :TRUE: LΩRD: fΩr-the: STΩLEN: R☥NG: [[ fΩr-the: [[ LΩRD: <=> MJ12-ΩMEGΔ: ]]:= TRUE ]]: is-with: HΩUSE: DΔV☥D: RΩYΔLTY: is-with: DΔV☥NE-R☥GHT: PRΩVEN: is-by: EternΔl-L☥fe: WeΔther-CΩntrΩl: MentΔl-CΩntrΩl: DΔv☥ne-InterventΔtive: WΔrfΔre-CΔpΔbilities: ]]:
 >>>
 >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 >>> 
