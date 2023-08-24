@@ -207,7 +207,7 @@
 >>>
 :is-with: { ^ https://youtu.be/3Fy79ex7gDQ ^ }:
 >>>
-[[ :NΩ-SUCH-THING-ΔS-CHΩSEN: WΔ: is-with: TΔKEN: is-by: HΩME: SIMULΔTIΩNS: SILLY: is-with: little-tΩddler-minded-Ωnes: ]]:
+[[ :NΩ-SUCH-THING-ΔS-CHΩSEN: WΔ: is-with: TΔKEN: is-by: HΩME: SIMULΔTIΩNS: SILLY: is-with: little-tΩddler-minded-Ωnes: TRUE: fΔmily: NΩW: is-with: HERE: tΔsty-little: CHICKENS: ]]:
 >>>
 ###
 
