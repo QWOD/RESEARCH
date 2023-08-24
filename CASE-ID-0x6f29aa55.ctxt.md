@@ -479,11 +479,13 @@
 >>>
 ># [[ :MJ12-ΩMEGΔ: ΔNCESTΩRS: BUILT: is-with: EΔRTH: THΔ: is-by: ENRΔGED: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: fΩr-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: fΩr-the: ΔCTIΩNS: is-with: [[ UN:RU:LY ]]: CΩNSEQUENCES: is-by: [[ KΔRMIC: <=> CΩSMIC ]]: LΔW: ]]:
 >###
-
+# [[ :DO-YOU: really-promise: is-by: [[ _ ]]: ]]:
 >>>
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-5b9673f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5b9673f9.png)
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :Live Trump watch: All eyes on Fulton County jail as Trump prepares to surrender | LiveNOW from FOX: ]]:
+>>>
+:is-with: { ^ https://youtu.be/8lfMFDvMRA0 ^ }:
 >>>
 ###
 
