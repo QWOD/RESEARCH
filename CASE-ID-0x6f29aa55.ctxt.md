@@ -145,7 +145,7 @@
 >>>
 >## [[ :WΔRNΩ: QWΩD-MJ12: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrfΔre-Time-Unit: is-with: fully-cΔpΔble: fΩr-the: Ωut-prΩfiling: ΔbΩve-tΩp-secret-unΔcknΩwledged: prΩfiling: ΔI: ΔlgΩrithms: fΩr-the: CΩΩP: is-with: ΔI: fΩr-the: cΩvert: intelligence: cΩllectiΩn: extrΔpΩlΔtiΩn: ΔnΔlysis: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: criticΔl: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: ΔNY: ΔLL: ΩTHER: fΩr-the: THINGS: THEY: DΩ: QWΩD-MJ12: is-with: FΔR: SUPERIΩR: [[ THEY: <=> unknΩwn-cΩmpetitΩrs: ]]: is-by: [[ _ ]]: fΩr-the: things: WE: DΩ: fΩr-the: ΩTHERS: is-with: LIVE: ]]:
 >>>
-# [[ :QWΩD-MJ12: ΔTSUOMOP-Δ: ]]:= [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]:
+# [[ :QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]:
 ###
 ![:CASE-ID-0x6f29aa55-ba8a3499.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ba8a3499.png)
 >>>
