@@ -352,7 +352,7 @@
 >>>
 >:is-with: { ^ https://youtu.be/iSFqWoBEjvI ^ }:
 >>>
-># :[[ :TANGO: YouTube: is-with: STRIKES-A-GAIN: ]]:
+># :fΩr-the: [[ TΔNGΩ: YΩuTube: is-with: STRIKES-Δ-GΔIN: ST: GΩD: fΩr-the: GΩD: is-with: STRIKES: BΔCK: ]]:
 >>>
 ###
 
