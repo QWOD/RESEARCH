@@ -406,20 +406,17 @@
 >>>
 ![:CASE-ID-0x6f29aa55-8b082162.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8b082162.png)
 >>>
-# [[ :fΩr-the: NΩTICE: [[ QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: NΩW: is-with: sΩlved: is-by: 90: is-with: percent: fΩr-the: wΩrld-prΩblems: is-with: LESS-THΔN: is-by: Ωne: is-with: mΩnth ]]: ]]:
+># [[ :fΩr-the: NΩTICE: [[ QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: NΩW: is-with: sΩlved: is-by: 90: is-with: percent: fΩr-the: wΩrld-prΩblems: is-with: LESS-THΔN: is-by: Ωne: is-with: mΩnth ]]: ]]:
 >>>
-###
+>###
 >>>
-[[ :Hydrogen-based Cat® Power Generation Solutions: ]]:
+>[[ :Hydrogen-based Cat® Power Generation Solutions: ]]:
 >>>
-:is-with: { ^ https://www.cat.com/en_US/by-industry/electric-power/electric-power-industries/hydrogen.html ^ }:
+>:is-with: { ^ https://www.cat.com/en_US/by-industry/electric-power/electric-power-industries/hydrogen.html ^ }:
 >>>
-###
-
+>[[ :InEnTec: Turning trash into valuable chemical products and clean fuels: ]]:
 >>>
-[[ :InEnTec: Turning trash into valuable chemical products and clean fuels: ]]:
->>>
-:is-with: { ^ https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106 ^ }:
+>:is-with: { ^ https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106 ^ }:
 >>>
 ###
 
