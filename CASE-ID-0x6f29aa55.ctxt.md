@@ -273,11 +273,11 @@
 :is-with: { ^ https://youtu.be/S758wEniU0c ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-b0d51b28.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b0d51b28.png)
 >>>
-[[ :Ω: ]]:
+[[ :How FIVE BILLION Pounds of Las Vegas Garbage Powers a City | Overview: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/aHzltu6Tvl8 ^ }:
 >>>
 ###
 
