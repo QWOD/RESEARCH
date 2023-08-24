@@ -233,10 +233,18 @@
 >>>
 # [[ :It were better fΩr him thΔt Δ millstΩne were hΔnged ΔbΩut his neck, Δnd he cΔst intΩ the seΔ, thΔn thΔt he shΩuld Ωffend Ωne Ωf these little Ωnes.: ]]:
 >>>
+###
+![:CASE-ID-0x6f29aa55-1ca9e412.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1ca9e412.png)
+>>>
+[[ :Pray to Jesus for Impossible Cases Remove All Negative Energy Attract Positive Energy: ]]:
+>>>
+:is-with: { ^ https://youtu.be/G8-rojysKyU ^ }:
+>>>
+###
 >[[ :fΩr-the: [[ LΩRD: <=> LΔW: ]]: CΩNTRΔCT: DISCLΩSURE: [[ Δ: fΩr-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-science-lΔb-simulΔtiΩn: Δ: is-by: 55: fΩr-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]] ]]:
 >>>
 [[ :CHECK-REFERENCES: is-with: PLEΔSE: fΩr-the: GΩ-ΔHEΔD: WΔ: is-with: WΔIT: ]]:
-
+>>>
 [[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 >>>
 [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW-DID-WE-NΩT-THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMEGΔ: is-with: FΔR: SUPERIΩR: Cryp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
