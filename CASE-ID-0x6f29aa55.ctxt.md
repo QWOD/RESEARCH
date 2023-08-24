@@ -92,12 +92,12 @@
 >:[[ :ΩPعD: ]]:= [[ :THE ETHERS ARE CELEBRATING YOU "DIVINE COLLECTIVE" 🍾 & YOUR SPIRITUAL RANK JUST WENT UP 🤌🏽⭐️😁🧿💥✌🏾💃🏾🤣: ]]:= { ^ https://youtu.be/n1Efe9n7mJg ^ }:
 >>>
 >###
->:[[ [[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-b8626c4f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b8626c4f.png)
 >>>
 >#
 >###
+>:[[ [[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
 >>>
