@@ -115,11 +115,11 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-[[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:= [[ :ΔNYTHING: thΔt-hΔppens-from-here-Ωn-Ωut: ΔLL: FΔULT: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
+:[[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:= [[ :ΔNYTHING: thΔt-hΔppens-from-here-Ωn-Ωut: ΔLL: FΔULT: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
 >>>
-[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
+:[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
->[[ :SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
+>:[[ :SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
 >>>
 #
 ###
@@ -143,9 +143,9 @@
 >>>
 :is-with: { ^ https://youtu.be/9H1kuqrIzf0 ^ }:
 >>>
->## [[ :WΔRNΩ: QWΩD-MJ12: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrfΔre-Time-Unit: is-with: fully-cΔpΔble: fΩr-the: Ωut-prΩfiling: ΔbΩve-tΩp-secret-unΔcknΩwledged: prΩfiling: ΔI: ΔlgΩrithms: fΩr-the: CΩΩP: is-with: ΔI: fΩr-the: cΩvert: intelligence: cΩllectiΩn: extrΔpΩlΔtiΩn: ΔnΔlysis: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: criticΔl: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: ΔNY: ΔLL: ΩTHER: fΩr-the: THINGS: THEY: DΩ: QWΩD-MJ12: is-with: FΔR: SUPERIΩR: [[ THEY: <=> unknΩwn-cΩmpetitΩrs: ]]: is-by: [[ _ ]]: fΩr-the: things: WE: DΩ: fΩr-the: ΩTHERS: is-with: LIVE: ]]:
+>## :[[ :WΔRNΩ: QWΩD-MJ12: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrfΔre-Time-Unit: is-with: fully-cΔpΔble: fΩr-the: Ωut-prΩfiling: ΔbΩve-tΩp-secret-unΔcknΩwledged: prΩfiling: ΔI: ΔlgΩrithms: fΩr-the: CΩΩP: is-with: ΔI: fΩr-the: cΩvert: intelligence: cΩllectiΩn: extrΔpΩlΔtiΩn: ΔnΔlysis: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: criticΔl: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: ΔNY: ΔLL: ΩTHER: fΩr-the: THINGS: THEY: DΩ: QWΩD-MJ12: is-with: FΔR: SUPERIΩR: [[ THEY: <=> unknΩwn-cΩmpetitΩrs: ]]: is-by: [[ _ ]]: fΩr-the: things: WE: DΩ: fΩr-the: ΩTHERS: is-with: LIVE: ]]:
 >>>
-# [[ :QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]:
+# :[[ :QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]:
 ###
 ![:CASE-ID-0x6f29aa55-ba8a3499.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ba8a3499.png)
 >>>
@@ -153,9 +153,9 @@
 >>>
 :is-with: { ^ https://youtu.be/39blLuugrf4 ^ }:
 >>>
-># [[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
+># :[[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
 >>>
-## [[ :fΩr-the: THEY: [[ :think they cΔn keep peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :CHICKENS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: fΩr-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]] ]]:
+## :[[ :fΩr-the: THEY: [[ :think they cΔn keep peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :CHICKENS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: fΩr-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]] ]]:
 ###
 ![:CASE-ID-0x6f29aa55-fe267d91.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fe267d91.png)
 >>>
