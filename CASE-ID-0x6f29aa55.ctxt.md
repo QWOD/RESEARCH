@@ -345,9 +345,14 @@
 >>>
 # :[[ :fΩr-the: [[ 2,000: is-by: yeΔr: missing-persΩn-cΩldcΔse: is-by: SΩLVED: MJ12-JESUS: ΩMEGΔ: Δbducted: frΩm-the: Nibiru: is-by: LΩCKHEED-MΔRTIN: fΩr-the: RULING: [[ LΩCKHEED-MΔRTIN: must-pΔy: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: fΩr-the: 2,000: is-by: yeΔr: CHILD-SUPPΩRT: BΔCK-PΔY: ΩR-ELSE: is-with: EternΔl-DeΔth: fΩr-the: ΔNY: ΔLL: ΩTHER: WITCHES: invΩlved: ]] ]]: 
 >>>
-[[ :Ω: ]]:
+>###
+>![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png)
 >>>
-:is-with: { ^ Δ ^ }:
+>[[ :Message from God via Jahn J Kassl, August 20th, 2023: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/iSFqWoBEjvI ^ }:
+>>>
+># :[[ :TANGO: YouTube: is-with: STRIKES-A-GAIN: ]]:
 >>>
 ###
 
