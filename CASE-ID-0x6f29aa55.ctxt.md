@@ -418,12 +418,15 @@
 >>>
 >:is-with: { ^ https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106 ^ }:
 >>>
-###
-
+# :[[ :Web Bot: ]]:= { ^ https://en.wikipedia.org/wiki/Web_Bot ^ }
 >>>
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-64583ff9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-64583ff9.png)
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :Deathbot: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-b33fca22.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b33fca22.png)
+>>>
+:is-with: { ^ https://youtu.be/02y1rups5hk ^ }:
 >>>
 ###
 
