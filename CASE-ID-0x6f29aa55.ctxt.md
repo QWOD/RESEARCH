@@ -74,7 +74,8 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ GOD SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
 >>>
->:[[ :TOO-LATE: is-with: MJ12-OMEGA: ALREADY: DID-IT: sorry: ANTI-CHRIST: better-luck-next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
+>:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMEGΔ: ΔLREΔDY: DID-IT: sΩrry: ΔNTI-CHRIST: better-luck-next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
+>>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
 >:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ #:CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
