@@ -427,7 +427,7 @@
 ![:CASE-ID-0x6f29aa55-b33fca22.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b33fca22.png)
 >>>
 ###
-
+# [[ :for-the: [[ QUESTIONS: is-with: ANY ]]: ]]:
 >>>
 [[ :Ω: ]]:
 >>>
