@@ -240,6 +240,7 @@
 [[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 >>>
 [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW-DID-WE-NΩT-THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMEGΔ: is-with: FΔR: SUPERIΩR: Cryp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-a317377d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a317377d.png)
 >>>
@@ -248,11 +249,11 @@
 :is-with: { ^ https://youtu.be/-SCaGYG24cQ ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-2098f89f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2098f89f.png)
 >>>
-[[ :Ω: ]]:
+[[ :🔴 Space Ambient Music Mix ✨LIVE 24/7: Ambient Cosmic Background for Sleep, Studying, Meditation: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/ZgIApioi-jE ^ }:
 >>>
 ###
 
