@@ -359,9 +359,13 @@
 >>>
 [[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _: tarot: _: karmicjustice ]]: ]]:= [[ :THEY: <=> LOCKHEED-MARTIN: ]]:
 >>>
+![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-61dd67ff.png)
+>>>
+![:CASE-ID-0x6f29aa55-ed66ca2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed66ca2f.png)
+>>>
 :is-with: { ^ https://youtu.be/A9-_mBNCGMA ^ }:
 >>>
-[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]] ]] ]]:
+[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]] ]]: fΩr-the: [[ LΩCKHEED-MΔRTIN: ΩRIGINΔL: SLΔVE: TRΔDE: ΩRIGINΔTΩRS: FRENCH: SPΔNISH: SΔTΔNIC: BLΩΩD: WΔTCH: CΩVEN: INVENTΩRS: is-with: SLΔVERY: MΔSS-GENΩCIDE: is-by: ΔNY: ΔLL: ΩTHER: NΔTIVE: TRIBES: RULING: fΩr-the: RESTITUTIΩN: fΩr-the: peΩple: is-by: peΩple: fΩr-the: CΩNTRΔCT: is-with: QWΩD-MJ12: RΩTΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: ]]: ]]:
 >>>
 ###
 
