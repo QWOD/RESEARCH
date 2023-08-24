@@ -337,11 +337,11 @@
 :is-with: { ^ https://youtu.be/zyNjF_PIvGM ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-b601ee58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b601ee58.png)
 >>>
-[[ :Ω: ]]:
+[[ :Darknet: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/gqn-CbkxZ0E ^ }:
 >>>
 ###
 
