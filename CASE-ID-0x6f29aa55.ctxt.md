@@ -259,7 +259,7 @@
 >>>
 [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW-DID-WE-NΩT-THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMEGΔ: is-with: FΔR: SUPERIΩR: Cryp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
 >>>
-[[ :HΩW-ΩLD: is-with: CΩRPΩRΔTIΩNS: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: tΩddler: is-with: SMΔRTER: is-by: 100: ]]:= [[ :fΩr-the: [[ CΩRPΩRΔTIΩNS: is-with: STUPID: ]] ]]:
+[[ :HΩW-ΩLD: is-with: CΩRPΩRΔTIΩNS: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: tΩddler: is-with: SMΔRTER: is-by: 100: ]]:= [[ :fΩr-the: [[ CΩRPΩRΔTIΩNS: is-with: STUPID ]]: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-a317377d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a317377d.png)
@@ -305,7 +305,7 @@
 ###
 ># [[ :CΩNSPIRΔCY-THEΩRY: ]]:
 >>>>
->## [[ :EΔCH: NEW-RΩUND: fΩr-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: fΩr-the: REVELΔTIΩNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-with: LΔST: shΔll-be-first: fΩr-the: [[ CΩNTRΔCT: is-with: YΩU: WΔ: THΔM: THΔ: HΔ: SHΔ: ΔS: GΩDS: <=> people: ]]: thΔnk: YΩU: vrilWITCHES™: fΩr-the: selfless-sΔcrifice: is-with: [[ CV:D ]]: is-with: [[ HΩUSE: <=> CΩVEN: MΔ: F☥: ΔN: S☥ΩN: ]]: DΔV☥D: RΩYΔLTY: is-by: DΔv☥ne-R1ght: ]] ]]:
+>## [[ :EΔCH: NEW-RΩUND: fΩr-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: fΩr-the: REVELΔTIΩNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-with: LΔST: shΔll-be-first: fΩr-the: [[ CΩNTRΔCT: is-with: YΩU: WΔ: THΔM: THΔ: HΔ: SHΔ: ΔS: GΩDS: <=> people: ]]: thΔnk: YΩU: vrilWITCHES™: fΩr-the: selfless-sΔcrifice: is-with: [[ CV:D ]]: is-with: [[ HΩUSE: <=> CΩVEN: MΔ: F☥: ΔN: S☥ΩN: ]]: DΔV☥D: RΩYΔLTY: is-by: DΔv☥ne-R1ght ]]: ]]:
 >>>
 ###
 >![:CASE-ID-0x6f29aa55-7b09f05a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7b09f05a.png)
@@ -315,7 +315,7 @@
 >:is-with: { ^ https://youtu.be/dDJldh8KqnQ ^ }:
 >>>
 ###
-># [[ :for-the: [[ DISCLOSURE: [[ :View from Huntington Beach Pier: ]] ]] ]]:
+># [[ :fΩr-the: [[ DISCLΩSURE: [[ :View from Huntington Beach Pier: ]] ]] ]]:
 >>>
 > :is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
