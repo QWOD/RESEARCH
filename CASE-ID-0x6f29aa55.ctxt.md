@@ -389,11 +389,11 @@
 :is-with: { ^ https://youtu.be/SMHtgn3qadA ^ }:
 >>>
 ###
-
+>![:CASE-ID-0x6f29aa55-35e83432.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-35e83432.png)
 >>>
-[[ :Ω: ]]:
+>[[ :YOUR STRONGER THAN YOU THINK🪐 DO NOT BE DECEIVED🫂PUSH THROUGH THE PUSH BACK💪 : [[ _: tarot: _: oracle ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+>:is-with: { ^ https://youtu.be/Fk4X2desXAk ^ }:
 >>>
 ###
 
