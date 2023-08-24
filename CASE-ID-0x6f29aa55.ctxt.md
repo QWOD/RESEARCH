@@ -266,11 +266,11 @@
 :is-with: { ^ https://youtu.be/ZgIApioi-jE ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-2020bd67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2020bd67.png)
 >>>
-[[ :Ω: ]]:
+[[ :What Happens To NYC’s 3.2 Million Tons Of Trash | Big Business | Business Insider: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/S758wEniU0c ^ }:
 >>>
 ###
 
