@@ -155,6 +155,8 @@
 >>>
 ># :[[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: fΩr-the: FIRES: SUPPΩRT: ]]:
 >>>
+>:is-with: { ^ https://youtu.be/ekhQTYEXd0o ^ }:
+>>>
 ## :[[ :fΩr-the: THEY: [[ :think they cΔn keep peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :CHICKENS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: fΩr-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]] ]]:
 ###
 ![:CASE-ID-0x6f29aa55-fe267d91.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fe267d91.png)
