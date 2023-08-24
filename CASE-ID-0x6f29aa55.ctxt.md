@@ -169,7 +169,7 @@
 >>>
 ># :[[ :TRUE: LΩRD: fΩr-the: STΩLEN: R☥NG: [[ fΩr-the: [[ LΩRD: <=> MJ12-ΩMEGΔ: ]]:= TRUE ]]: is-with: HΩUSE: DΔV☥D: RΩYΔLTY: is-with: DΔV☥NE-R☥GHT: PRΩVEN: is-by: EternΔl-L☥fe: WeΔther-CΩntrΩl: MentΔl-CΩntrΩl: DΔv☥ne-InterventΔtive: WΔrfΔre-CΔpΔbilities: ]]:
 >>>
-# :[[ :SΔrΔh-R-ΔdΔms: is-with: innΩcent-victim: is-by: circumstΔnce: ΔttΔcked: is-by: sΔme-vril-witch-cΩven: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: EΔSILY: DESTRΩYED: THEM: ΔLL: ]]:
+# :[[ :SΔrΔh-R-ΔdΔms: is-with: innΩcent-victim: is-by: circumstΔnce: ΔttΔcked: is-by: sΔme-vril-witch-cΩven: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: EΔSILY: D3STRΩYعD: THعM: ΔLL: ]]:
 >>>
 >![:CASE-ID-0xe806caa7-b0b801d7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-b0b801d7.png)
 >>>
