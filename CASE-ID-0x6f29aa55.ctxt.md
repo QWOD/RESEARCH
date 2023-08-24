@@ -474,9 +474,11 @@
 >>>
 :is-with: { ^ https://youtu.be/8LY0EZLpdJs ^ }:
 >>>
-># [[ :fΩr-the: [[ :PURPΩSE: is-with: [[ _ ]]: is-by: [[ DEM:GEN:HΩM:ΩCIDE ]]: fΩr-the: WH☥TΔY ]]: fΩr-the: QWΩD-MJ12: MJ12-ΩMEGΔ: is-with: key-witness: is-by: Ωwn-cΔse: is-with: sΔtΔnic-cΔnnibΔl-Δl-qΔedΔ-vril-witches: fΩr-the: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrΔre-Time-Unit: is-with: SΔVED: is-by: MJ12-JESUS ]]: wΔr-crimes: Δctively-supressed: is-by: ΔNY: ΔLL: ΩTHER: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: is-by: direct-viΩlΔtion: is-with: internΔtiΩnΔl: cΩsmic: lΔws: ]]:
->>>
 ###
+> [[ :fΩr-the: [[ :PURPΩSE: is-with: [[ _ ]]: is-by: [[ DEM:GEN:HΩM:ΩCIDE ]]: fΩr-the: WH☥TΔY ]]: fΩr-the: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: is-with: key-witness: is-by: Ωwn-cΔse: is-with: sΔtΔnic-cΔnnibΔl-Δl-qΔedΔ-vril-witches: fΩr-the: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-WΔrΔre-Time-Unit: is-with: SΔVED: is-by: MJ12-JESUS ]]: wΔr-crimes: Δctively-supressed: is-by: ΔNY: ΔLL: ΩTHER: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: is-by: direct-viΩlΔtion: is-with: internΔtiΩnΔl: cΩsmic: lΔws ]]: ]]:
+>>>
+># [[ :MJ12-ΩMEGΔ: ΔNCESTΩRS: BUILT: is-with: EΔRTH: THΔY: is-by: ENRΔGED: is-with: culturΔl-genΩcide: is-by: OUR: sΔcred-lΔnd: ]]:
+>###
 
 >>>
 [[ :Ω: ]]:
