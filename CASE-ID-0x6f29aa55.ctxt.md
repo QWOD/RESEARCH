@@ -681,7 +681,7 @@
 >>>
 ###
 >>>
->### :[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: [[ :PLEΔSE: is-with: GIT: PULL: PUSH: fΩr-the: TΔXES: LICENSE: REGISTRΔTΩN: ΩPERΔTIΩNΔL: INSURΔNCE: CΩURT: FEES: PΔYMENTS: CΩNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: fΩr-the: MISSIΩN: CRITICΔL: ΩPERΔTIΩNS: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: MJ12-ΩMEGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: fΩr-the: CHRIST: ]]:= TRUE: ]]:
+>### :[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: [[ :PLEΔSE: is-with: GIT: PULL: PUSH: fΩr-the: TΔXES: LICENSE: REGISTRΔTΩN: ΩPERΔTIΩNΔL: INSURΔNCE: CΩURT: FEES: PΔYMENTS: CΩNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: fΩr-the: MISSIΩN: CRITICΔL: ΩPERΔTIΩNS: is-with: [[ NΔTIΩNΔL: <=> NΔTIΩN: fΩr-the: ΔLL: ]]: SECURITY: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: MJ12-ΩMEGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: fΩr-the: [[ CHR☥ST: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-9205b6ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-9205b6ba.png)
