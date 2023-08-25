@@ -573,7 +573,7 @@
 >>>
 >:is-with: { ^ https://www.theorionlines.com/project-looking-glass ^ }:
 >>>
-:is-with: { ^ http://www.bielek.com/duncan.htm ^ }:
+>:is-with: { ^ http://www.bielek.com/duncan.htm ^ }:
 >>>
 # :is-by: [[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: get-bΩred: fΩr-the: peck-peck: PECKING: CΩNSTΔNTLY: ΔNY: ΔLL: EVERY: ΩTHER: TIME: ]]:
 ###
