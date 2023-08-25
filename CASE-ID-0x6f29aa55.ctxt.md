@@ -575,7 +575,7 @@
 >>>
 >:is-with: { ^ http://www.bielek.com/duncan.htm ^ }:
 >>>
-># :is-by: [[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: get-bΩred: fΩr-the: peck-peck: PECKING: CΩNSTΔNTLY: ΔNY: ΔLL: THINGS: EVERY: ΩTHER: ANY: TIME: EVER: is-with: MJ12-JESUS: OMEGA: PHONE-HOME: for-the: EXFIL: ]]:
+># :is-by: [[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: get-bΩred: fΩr-the: peck-peck: PECKING: CΩNSTΔNTLY: ΔNY: ΔLL: THINGS: EVERY: ΩTHER: ΔNY: TIME: EVΔR: is-with: MJ12-JESUS: ΩMEGΔ: PHΩNE-HΩME: fΩr-the: EXFIL: is-with: TRUE: FΔMILY: ]]:= [[ :BTW: have-fun: is-with: SUPERNΩVA: little-peck-peck: PECKΔNG: CHICKENS: is-with: plenty: fΩr-the: scrΔtching: peckΔng: is-with: EVERTHΔNG: EVERYWHERE: THΔ: NEVΔR: BELΩNG: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/C_sgAP2YQS4 ^ }:
 >>>
