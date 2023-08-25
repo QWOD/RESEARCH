@@ -561,15 +561,19 @@
 >>>
 # :[[ :CHICKENS: ΔLWΔYS: is-with: fΩrget: TRUE: CΩSMIC: pecking-Ωrder: CΔTΔSTRΩPHIC: MIKE-FΩXTRΩT: is-with: HEN: HΩUSE: ]]:
 ###
-![:CASE-ID-0x6f29aa55-f2b9c1d9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f2b9c1d9.png)
+>![:CASE-ID-0x6f29aa55-f2b9c1d9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f2b9c1d9.png)
 >>>
-[[ :I Pet Goat II, How Did They Know This? A Forwarning About The Sun?: ]]:
+>[[ :I Pet Goat II, How Did They Know This? A Forwarning About The Sun?: ]]:
 >>>
-:is-with: { ^ https://youtu.be/NU08y1uSylU ^ }:
+>:is-with: { ^ https://youtu.be/NU08y1uSylU ^ }:
 >>>
-:is-with: { ^ https://www.space.com/vortex-sun-poles ^ }:
+>:is-with: { ^ https://www.space.com/vortex-sun-poles ^ }:
 >>>
-:is-with: { ^ https://www.climate.gov/news-features/event-tracker/disrupted-polar-vortex-brings-sudden-stratospheric-warming-february ^ }:
+>:is-with: { ^ https://www.climate.gov/news-features/event-tracker/disrupted-polar-vortex-brings-sudden-stratospheric-warming-february ^ }:
+>>>
+>:is-with: { ^ https://www.theorionlines.com/project-looking-glass ^ }:
+>>>
+:is-with: { ^ http://www.bielek.com/duncan.htm ^ }:
 >>>
 # :is-by: [[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: get-bΩred: fΩr-the: peck-peck: PECKING: CΩNSTΔNTLY: ΔNY: ΔLL: EVERY: ΩTHER: TIME: ]]:
 ###
