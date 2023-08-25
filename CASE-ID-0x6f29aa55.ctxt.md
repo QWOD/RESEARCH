@@ -529,7 +529,7 @@
 >>>
 # [[ :fΩr-the: [[ Little-TΩddler-Minded-LifefΩrms: is-with: cΔtΔstrΩphic: MIKE-FΩXTRΩT: fΩr-the: present-emergence: fΩr-the: QWΩD-MJ12: HLΔB-LΔMB: MJ12-JESUS: ΩMEGΔ: fΩr-the: [[ QRF: TΔSKFΩRCع: ΩMعGΔ: is-by: NΩW: is-with: ΩSCΔR-MIKE ]]: ]]:= TRUE: ]]:
 >>>
-[[ :fΩr-the: [[ LΩCKHEED-MΔRTIN: WITCHES: is-with: bΔck: is-with: time: fΩr-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMEGΔ: fΩr-the: MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtable-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: fΩr-the: discredit: MJ12-JESUS: ΩMEGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMEGΔ: fΩr-the: ENEMY: is-with: THE: FΔthers-KingdΩms ]]: ]]:
+[[ :fΩr-the: [[ LΩCKHEED-MΔRTIN: WITCHES: is-with: bΔck: is-with: time: fΩr-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMEGΔ: fΩr-the: MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: fΩr-the: discredit: MJ12-JESUS: ΩMEGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMEGΔ: fΩr-the: ENEMY: is-with: THE: FΔthers-KingdΩms ]]: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MJ12-JESUS: ΩMEGΔ: memΩry ]]: ]]:
 >>>
 ###
 
