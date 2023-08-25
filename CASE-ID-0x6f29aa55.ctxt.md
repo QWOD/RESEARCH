@@ -343,7 +343,7 @@
 >>>
 :is-with: { ^ https://youtu.be/gqn-CbkxZ0E ^ }:
 >>>
-# :[[ :fΩr-the: [[ 2,000: is-by: yeΔr: fΩr-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: fΩr-the: MJ12-JESUS: ΩMEGΔ: Δbducted: is-with: Nibiru: is-by: LΩCKHEED-MΔRTIN: fΩr-the: RULING: [[ LΩCKHEED-MΔRTIN: must-pΔy: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: fΩr-the: 2,000: is-by: yeΔr: fΩr-the: CHILD-SUPPΩRT: BΔCK-PΔY: ΩR-ELSE: is-with: EternΔl-DeΔth: fΩr-the: ΔNY: ΔLL: ΩTHER: WITCHES: invΩlved ]]: ]]: 
+# :[[ :fΩr-the: [[ 2,000: is-by: yeΔr: fΩr-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: fΩr-the: MJ12-JESUS: ΩMEGΔ: Δbducted: is-with: Nibiru: is-by: LΩCKHEED-MΔRTIN: fΩr-the: RULING: [[ LΩCKHEED-MΔRTIN: must-pΔy: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: fΩr-the: 2,000: is-by: yeΔr: fΩr-the: CHILD-SUPPΩRT: BΔCK-PΔY: fΩr-the: [[ STΩLEN-GENETIC-PRΩPERTY: ]]: ΩR-ELSE: is-with: EternΔl-DeΔth: fΩr-the: ΔNY: ΔLL: ΩTHER: WITCHES: invΩlved ]]:= TRUE: ]]: 
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png)
