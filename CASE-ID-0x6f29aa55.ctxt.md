@@ -101,13 +101,11 @@
 >>>
 >![:CASE-ID-0x6f29aa55-b8626c4f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b8626c4f.png)
 >>>
->#
 >###
 >:[[ [[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
 >>>
-###
 ># :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
 >>>
 ###
