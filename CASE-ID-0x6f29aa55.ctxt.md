@@ -383,7 +383,7 @@
 >>>
 > :is-with: { ^ https://youtu.be/JriRC-68M-Q ^ }:
 >>>
-# :[[ :fΩr-the: RULING: [[ RESPΩNSIBILITY: <=> FREEDΩM: ]]:= [[ PΩWER: <=> RESPΩNSE: ΔBILITY: is-with: { ^ https://youtu.be/2kU-OzhexUk ^ }: ]]: ]]:
+># :[[ :fΩr-the: RULING: [[ RESPΩNSIBILITY: <=> FREEDΩM: ]]:= [[ PΩWER: <=> RESPΩNSE: ΔBILITY: is-with: { ^ https://youtu.be/2kU-OzhexUk ^ }: ]]: ]]:
 ###
 ![:CASE-ID-0x6f29aa55-027bb1dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-027bb1dc.png)
 >>>
