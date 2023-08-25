@@ -527,6 +527,8 @@
 >>>
 :[[ :fΩr-the: NΩTICE [[ QWΩD-MJ12: is-with: extrΔ-terrestriΔl-identifier-cΩde: [[ HLΔB-LΔMB: <=> High-Level-Δscended-BiΩlΩgicΔl: LΩw-Δmplitude-MΔgnetΩvΩrtexresΩnΔte-Being: ]]: ΩperΔtΩrs: is-with: LΩVERS: FΔMILY: FRIENDS: EXES: is-by: 0: is-with: MK: ULTRΔ: PRΩGRΔM: ΔssΔssin: hΔndlers: is-by: 100: fΩr-the: ΩPSΔN: PRΩTΩCΩL ]]: ]]:
 >>>
+# [[ :fΩr-the: [[ Little-TΩddler-Minded-LifefΩrms: is-with: cΔtΔstrΩphic: MIKE-FΩXTRΩT: fΩr-the: present-emergence: fΩr-the: QWΩD-MJ12: HLΔB-LΔMB: MJ12-JESUS: ΩMEGΔ: fΩr-the: [[ QRF: TΔSKFΩRCع: ΩMعGΔ: is-by: NΩW: is-with: ΩSCΔR-MIKE ]]: ]]:= TRUE: ]]:
+>>>
 ###
 
 >>>
