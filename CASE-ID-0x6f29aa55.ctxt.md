@@ -559,6 +559,7 @@
 >>>
 :is-with: { ^ https://youtu.be/CEur2_Q7-x0 ^ }:
 >>>
+# :[[ :CHICKENS: ΔLWΔYS: is-with: fΩrget: TRUE: CΩSMIC: pecking-Ωrder: CΔTΔSTRΩPHIC: MIKE-FΩXTRΩT: is-with: HEN: HΩUSE: ]]:
 ###
 
 >>>
