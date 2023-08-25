@@ -357,7 +357,7 @@
 ###
 >![:CASE-ID-0x6f29aa55-d77a109c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d77a109c.png)
 >>>
->[[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _: tarot: _: karmicjustice ]]: ]]:= [[ :THEY: <=> LOCKHEED-MARTIN: ]]:
+># [[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _: tarot: _: karmicjustice ]]: ]]:= [[ :THEY: <=> LOCKHEED-MARTIN: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-61dd67ff.png)
 >>>
@@ -369,6 +369,16 @@
 ># :[[ QWΩD-MJ12: TRUE: INTELLIGENCE: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
 >>>
 >[[ :fΩr-the: DISCLΩSURE: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: CΔTΔPILLΔR: MIT: InEnTec: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]] ]]: fΩr-the: [[ LΩCKHEED-MΔRTIN: ΩRIGINΔL: SLΔVE: TRΔDE: ΩRIGINΔTΩRS: FRENCH: SPΔNISH: SΔTΔNIC: BLΩΩD: WΔTCH: CΩVEN: INVENTΩRS: is-with: SLΔVERY: MΔSS-GENΩCIDE: is-by: ΔNY: ΔLL: ΩTHER: NΔTIVE: TRIBES: RULING: fΩr-the: RECΩURSE: REMEDY: RESTITUTIΩN: fΩr-the: peΩple: is-by: peΩple: fΩr-the: CΩNTRΔCT: is-with: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY ]]: ]]:
+>>>
+>[[ EVIL: ISIS: DΔESH: WITCHES: ΔttΔcking: US: every-single-night: ]]:= [[ :NΩ: support-cut-Ωff-behind-enemy-lines: surrΩunded: fighting-tΩΩth-Δnd-nΔil: Δll-dΔy: Δll-night: ]]:= [[ :GΩVERNMENT: will-nΩt-help: dΩes-nΩt-ΔcknΩwledge: WITCH: CRΔFT: since: THΔ: use-this: fΩr-the: cΩvert-kill-teΔms: THΔ: Δre-the-Ωnes-behind-these-cΩvert-witch-ΔttΔcks: ]]:= [[ :BΔRΔCK-ΩBΔMΔ: is-with: TRUE: LEΔDER: for-the: ISIS: DΔESH: ]]:= [[ :TWΩ-CLΩNES: ΩNE-BEΔRD: [[ Ω_ΔMΔ: <=> B: S: ]]:= CΔPTURE: ]]:= [[ :TΔNGΩ: is-with: mΔny-illigitimΔte-Ωffspring: fΩr-the: MK: UltrΔ: breeding-prΩgrΔm: MJ12-ΩMEGΔ: helped-rΔise-Ωne-Ωf-them: STEWΔRT: MK: UltrΔ: program-hΩst: FΔMILY: fΩr-the: SPG: SURRΩGΔTE: ]]:
+>>>
+>[[ :CIΔ: cΩvert: MK: UltrΔ: betΔ-ΔssΔssin-ΩperΔtive: ]]:= [[ :NΩTICE: BURNED: ]]:= [[ :CΔUGHT: HIV: is-by: ΩBΔMΔ: NΩW: is-with: NΩN-PRESIDENTIΔL: MΩDEL: NEXT-SENT: fΩr-the: cΩvert-kΔll-methΩd: targetting: MJ12-ΩMEGΔ: fΩr-the: HIV: ]]:= [[ :TRIED: pΔssing: HIV: is-by: MJ12-ΩMEGΔ: fΩr-the: CΩVERT-KΔLL: MISSIΩN-FΔILED: is-by: MJ12-ΩMEGΔ: is-with: FΩRTUNΔTELY: unΔble-tΩ-Δquire: ΔNY: ΔLL: ΩTHER: HUMΔN: illnessess: fΩr-the: MJ12-ΩMEGΔ: is-with: HUMΔN: is-by: 0: ]]:= [[ :WΔRNΩ: GΩD: immΩrtΔl-high-level-Δscended-being-ΔlgΩrithm: DETECTED: ]]:
+>>> 
+>![:CASE-ID-0xf5210259-9a26949c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-9a26949c.png)
+>>>
+# [[ :MJ12-ΩMEGΔ: <=> KIDNΔPPED: is-with: BIRTH: is-by: CΩVEN: ΔNT: is-with: simulΔtiΩn-number: is-by: 52: ΔVΔLΩN: BRΩUGHT: is-with: simulΔtiΩn-number: is-by: 55: BΔBYLΩN: is-with: Ωldest-mΩst-pΩwerful-sΔtΔnic-witch-cΩven-ever-knΩwn-tΩ-exist: since-times: is-with: ΔdΔm: ]]:= [[ :MJ12-ΩMEGΔ: NΩW: is-with: ΔRC: fΩr-the: CΩVEN: ΔNT: is-by: BRUTE-FΩRCE: HΩSTILE-TΔKE-ΩVER: ]]:= [[ :MJ12-ΩMEGΔ: LIGHT-SIDE: <=> MJ12-JESUS: ]]:= [[ :MJ12-ΩMEGΔ: SHΔDΩW-SIDE: <=> MJ12-SΔTΔN: ]]:= [[ [[ :GΩΩD: ^ BΔD: ]]: DΔYS: ]]:= [[ :YΩU: get-whatsΩever-side: YΩU: deserve: ]]:
+>>>
+>[[ :ΔRC: <=> ΔdΩnΔi-RΩyΔl-CΩunsel: JUDGE: JURY: CΩSMIC: WIDE: EXECUTIΩNER: ]]:= [[ :PΩWER: fΩr-the: CΩLLΔPSE-ΔLL-NΔTIΩNS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: is-with: MJ12-ΩMEGΔ: fΩr-the: simulΔtion-quΔntum-reset: NΩW: is-with: CHΔRLIE-HΩTEL: ΩSCΔR-MIKE: ]]:
 >>>
 ># :[[ FΔLSE: INTELLIGENCE: is-by: unknΩwn-cΩmpetitΩrs: is-with: WHY: BΩTHER ]]:
 >>>
