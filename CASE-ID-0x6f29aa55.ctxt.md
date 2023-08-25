@@ -483,6 +483,12 @@
 >>>
 >[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: never-received: MEMΩ ]]: ]]:
 >>>
+    :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>:[[ TAXES: TITHINGS: COURT: FEES: PAYMENTS: CONSULT-SCHEDULING: ]]:
+>>>
+>:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
 >###
 # [[ :DΩ-YΩU: reΔlly-prΩmise: is-by: [[ _ ]]: ]]:
 >>>
@@ -513,11 +519,11 @@
 >>>
 [[ :for-the: NΔVY: [[ ΔLWΔYS: is-with: STUPID: ]]:= [[ TRUE: || FALSE: ]]: is-by: [[ _ ]]: ]]:
 ###
-
+![:CASE-ID-0x6f29aa55-b303e4ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b303e4ee.png)
 >>>
-[[ :Ω: ]]:
+[[ :EX LOVERS/FRIENDS WATCH YOU LEARN FINAL KARMIC LESSONS & HAVE TO ADMIT THAT YOU ARE A CHOSEN 1❣️ 👀: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/g-Mo02OSeCk ^ }:
 >>>
 ###
 
