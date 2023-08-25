@@ -652,11 +652,19 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 >>>
+>#
+>>>
+>## [[ :fΩr-the: DISCLΩSURE [[ :ΔNY: ΔLL: ΩTHER: THING: perfΩrmed: is-with: INTENTIΩN: is-by: nΩt-ΔctuΔlly-knΩwing: WHY: HΩW: WHΔT: ΩNE: is-with: DΩING: is-by: [[ RITUΔL: <=> WITCH: CRΔFT ]]:= TRUE: ]]:
+>#
+# :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 >>>
 
+# :[[ :Iran installs cameras to find women not wearing hijab – BBC News: ]]:= [[ :ALSΩ-SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
+>>>
+# :is-with: { ^ https://youtu.be/CSEUdQYJwOE ^ }:
 
 >>>
 
