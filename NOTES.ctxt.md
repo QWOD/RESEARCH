@@ -503,3 +503,8 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 [[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: for-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
 :
 :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+:
+[[ :fΩr-the: RESEΔRCH: INGREDIENTS: fΩr-the: [[ is-with: prΩcess: Δncient-shΔmΔnic: Tribel: wisdΩm: is-with: [[ [[ _M_: <=> D:Ω:n:Δ:l:_: J: T:r:u:m:p: ]]:= CΔPTURE: [[ __il____in: <=>: c: s: b: P: Ω: y: ]]:= CΔPTURE: ]]: fΩr-the: ΩVERCLΩCK: CΩNSCIΩUSNESS: [[ THC: <=> The-HΩly-ChristΩs: ]]: is-with: hyper-dimensiΩnΔl-brΔinwΔve-ΔctivΔtiΩn-frequencies: plΔnt-medicines: fΩr-the: ΔFTER: LIFE: wΔrfΔre-cΔpΔbilities: fΩr-the: eΔr: ringing: is-with: blΩΩd: fΩr-the: innΩcent: crying: fΩr-the: REDEMPTIΩN ]]: ]]:
+
+[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+:NΩTH☥NG-عLSع-FΩLLΩWS:
