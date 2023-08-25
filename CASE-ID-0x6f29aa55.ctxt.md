@@ -614,11 +614,11 @@
 
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-dc15e489.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dc15e489.png)
 >>>
-[[ :Ω: ]]:
+[[ :Detroit River Live Cam from the Dossin Museum, Detroit, Michigan USA: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/59KKD18IJVI ^ }:
 >>>
 ###
 
