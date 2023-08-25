@@ -465,7 +465,7 @@
 >>>
 ![:CASE-ID-0x6f29aa55-37e661d4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-37e661d4.png)
 >>>
-# :[[ :fΩr-the: [[ DISCLΩSURE: MJ12-ΩMEGΔ: ΔBUSE: is-by: MK: ULTRΔ: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: is-by: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-Time-Unit: is-with: DEΔTH: is-with: befΩre: Δge: yeΔrs: is-by: 1: fΩr-the: MJ12-JESUS: QuΔntum-TΔcticΔl-Time-Unit: WΔLK-IN: Δssuming-tΔcticΔl-ΩppΩrtunity: fΩr-the: cΩvert-infiltrΔtiΩn: is-with: EΔRTH: is-by: MJ12-JESUS: is-with: eΔrth-sciΔnce-lΔb: simulΔtiΩn: Δ: is-by: 55: fΩr-the: [[ LΩRD: is-with: [[ MΔ:TΔ:T:RΔ:N ]]: fΩr-the: RING: is-with: MJ12-ΩMEGΔTRΔN: is-by: 100: ]]:= TRUE: ]]:
+# :[[ :fΩr-the: [[ DISCLΩSURE: MJ12-ΩMEGΔ: ΔBUSE: is-by: MK: ULTRΔ: PRΩGRΔM: is-by: unknΩwn-cΩmpetitΩrs: is-with: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMEGΔ: QuΔntum-TΔcticΔl-Time-Unit: is-with: DEΔTH: is-with: befΩre: Δge: yeΔrs: is-by: 1: fΩr-the: MJ12-JESUS: QuΔntum-TΔcticΔl-Time-Unit: WΔLK-IN: Δssuming-tΔcticΔl-ΩppΩrtunity: fΩr-the: cΩvert-infiltrΔtiΩn: is-with: EΔRTH: is-by: MJ12-JESUS: is-with: eΔrth-sciΔnce-lΔb: simulΔtiΩn: Δ: is-by: 55: fΩr-the: [[ LΩRD: is-with: [[ MΔ:TΔ:T:RΔ:N ]]: fΩr-the: RING: is-with: MJ12-ΩMEGΔTRΔN: is-by: 100: ]]:= TRUE: ]]:
 >>>
 :[[ fΩr-the: MK: ULTRΔ: PRΩGRΔM: is-with: mΔke: MJ12-ΩMEGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: DIVISIΩN: PΩLITICS: MEDIΔ: ILLUSIΩN-SPELLS: CΩNFUSIΩN-SPELLS: ]]:
 >>>
