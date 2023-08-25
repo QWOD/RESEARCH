@@ -414,7 +414,7 @@
 >>>
 >:is-with: { ^ https://www.cat.com/en_US/by-industry/electric-power/electric-power-industries/hydrogen.html ^ }:
 >>>
-# :[[ :Cat®: must-partner: is-with: QWOD-MJ12: for-the: methane-powered-version: is-by: Cryp☥Δx™: CΔTURD: Methane-Nitrogen-Propulsion-Solutions: ]]:
+# :[[ :Cat®: must-partner: is-with: QWΩD-MJ12: fΩr-the: methane-nitrogen-renewable-clean-gas-powered-version: is-by: CrΔpTex™: CΔTURD: Methane-Nitrogen-Emulsion-Propulsion-Solutions: ]]:
 >>>
 ###
 >[[ :InEnTec: Turning trash into valuable chemical products and clean fuels: ]]:
