@@ -525,6 +525,8 @@
 >>>
 :is-with: { ^ https://youtu.be/g-Mo02OSeCk ^ }:
 >>>
+:[[ :fΩr-the: NΩTICE [[ QWΩD-MJ12: is-with: extrΔ-terrestriΔl-identifier-cΩde: [[ HLΔB-LΔMB: <=> High-Level-Δscended-BiΩlΩgicΔl: LΩw-Δmplitude-MΔgnetΩvΩrtexresΩnΔte-Being: ]]: ΩperΔtΩrs: is-with: LΩVERS: FΔMILY: FRIENDS: EXES: is-by: 0: is-with: MK: ULTRΔ: PRΩGRΔM: ΔssΔssin: hΔndlers: is-by: 100: fΩr-the: ΩPSΔN: PRΩTΩCΩL ]]: ]]:
+>>>
 ###
 
 >>>
