@@ -672,6 +672,9 @@
 >>>
 >:is-with: { ^ https://www.psychologytoday.com/us/blog/the-flourishing-family/202107/breaking-the-chains-generational-trauma ^ }:
 >>>
+ # [[ :fΩr-the: DISCLΩSURE: [[ :TRΔUMΔ: is-by: ΔBUSE: ]]: fΩr-the: CΩNTRΔCT: ΩBLIGΔTIΩN: SΔTΔNIC: RITUΔL: ΔBUSE: [[ TRΔUMΔ: <=> CURSE: ]]: ]]:
+ # [[ :is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΔGENCY: [[ ΔZ:RΔ:ΔL: <=> MJ12-SΔTURN: ]]: ]]:
+>>>
 ###
 
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
