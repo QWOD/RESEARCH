@@ -581,11 +581,11 @@
 >:is-with: { ^ https://youtu.be/C_sgAP2YQS4 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-f988b81b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f988b81b.png)
 >>>
-[[ :Ω: ]]:
+[[ :View from Huntington Beach Pier: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
 ###
 
