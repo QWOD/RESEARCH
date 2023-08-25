@@ -668,6 +668,12 @@
 
 >>>
 
+# :[[ :Breaking the Chains of Generational Trauma: ]]:
+>>>
+>:is-with: { ^ https://www.psychologytoday.com/us/blog/the-flourishing-family/202107/breaking-the-chains-generational-trauma ^ }:
+>>>
+###
+
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
 ###
