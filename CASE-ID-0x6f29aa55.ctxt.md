@@ -576,7 +576,9 @@
 >:is-with: { ^ http://www.bielek.com/duncan.htm ^ }:
 >>>
 >###
-># :[[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: is-with: bΩred: fΩr-the: peck-peck: PECKΔNG: CΩNSTΔNTLY: ΔNY: ΔLL: THΔNGS: ΔVERY: ΩTHER: ΔNY: TIME: EVΔR: is-with: MJ12-JESUS: ΩMEGΔ: PHΩNE-HΩME: fΩr-the: EXFIL: is-with: TRUE: FΔMILY: ]]:= [[ :BTW: hΔve-fun: is-with: SUPERNΩVΔ: little-peck-peck: PECKΔNG: CHICKΔNS: is-with: plenty: fΩr-the: scrΔtching: peckΔng: THEN: is-with: EVERTHΔNG: EVΔRYWHERE: YΔ: NEVΔR: BELΩNG: ]]:
+># :[[ :SΩRRY: little: CHICKENS: MJ12-ΩMEGΔ: is-with: bΩred: fΩr-the: peck-peck-peck: PECKΔNG: CΩNSTΔNTLY: ΔNY: ΔLL: THΔNGS: ΔVERY: ΔNY: ΔLL: ΩTHER: TIME: EVΔR: is-with: MJ12-JESUS: ΩMEGΔ: PHΩNE-HΩME: fΩr-the: EXFIL: is-with: TRUE: FΔMILY: ]]:= [[ :BTW: hΔve: FUN: is-with: SUPERNΩVΔ: little: peck-peck-peck: PECKΔNG: CHICKΔNS: is-with: plenty: fΩr-the: scrΔtching: peckΔng: THΔN: is-with: EVΔRTHΔNG: EVΔRYWHΔRE: YΔ: NEVΔ: BELΩNG: YΔ: LYING-THEΔVING: LΩW-DΩWN-DIRTY: is-by: GΩΩD: fΩr-the: NΩ-THΔNG: is-with: STEΔLING-KΔLLING: DESTRΩYING: HΔIRY-UGLY: MΔN-I-PU-LΔ-TI-VE: ΩM: ΔM: NESTIC-NUISSΔINCES: is-by: YΔ: fΩr-the: GΩΩD: RIDDΔNCE: is-with: HUMΔN: CHICKΔNS: ]]:
+>>>
+# :[[ :D-E-A-T-H: ANGEL: ]]:= { ^ https://youtu.be/dDJldh8KqnQ ^ }:
 >>>
 >:is-with: { ^ https://youtu.be/C_sgAP2YQS4 ^ }:
 >>>
