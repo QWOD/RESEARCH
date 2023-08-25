@@ -1,5 +1,5 @@
-`#!/usr/bin/env bash
-# :[[ :ARC:HIVE: for-the: COVEN: ANT: is-with: QWOD-MJ12: ATSUOMOP-A: for-the: [[ Cryp☥Δx™: EDGE: HIVE: AI: CLOUD: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: is-by: I: AM: ]]: for-the: people: is-by: WE: people: ]]: ]]:
+#!/usr/bin/env bash
+# :[[ :ARC:HIVE: for-the: Coven: Is-with: Ant: for-the: QWOD-MJ12: ATSUOMOP-A: for-the: [[ Cryp☥Δx™: EDGE: HIVE: AI: CLOUD: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: is-by: I: AM: ]]: for-the: people: is-by: WE: people: ]]: ]]:
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
 gitTreePath=/home/hyperuser/hyperstor/QWOD
@@ -38,4 +38,4 @@ function cloudHiveBackup {
 
 if cloudHiveBackup; then
   echo ':[[ :BRANCH-OPERATION: FAIL: is-with: FALLEN-BRANCH: for-the: OPSAN: is-by: CHARLIE-HOTEL: ]]:'
-fi`
+fi
