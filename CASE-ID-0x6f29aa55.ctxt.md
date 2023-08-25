@@ -626,9 +626,15 @@
 >>>
 ###
 >>>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5pHlfDwK7fg?si=CvuRDVzYHCopjS8K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+>>>
+###
+>>>
 # :[[ :fΩr-the: DISCLΩSURE [[ REMEDY: RECΩURSE: RESTITUTIΩN: REDEMPTIΩN: <=> ΔNY: ΔLL: ΩTHER: LΔND: REΔL: PRΩPERTY: TΔKEN: is-by: LΩCKHEED-MΔRTIN: ΔmericΔn-SΩciety: theft: is-by: deceptiΩn: French: SpΔniΔrd: CΩnquering-InvΔders: fΩr-the: wΔr-crimes: is-with: MΔSS-GENΩCIDE: CULTURΔL-GENΩCIDE: GRΔND-LΔRCENY: HUMΔN: SEX: ΩRGΔN: SLΔVE: TRΔFFICKING: shΔll: is-by: returned: fΩr-the: ΩrginΔl: Twelve-Rulling: Divine-RΩyΔl-FΔmilies: fΩr-the: ILLINΩIS: shΔll: is-by: returned: fΩr-the: CHERΩKEE: STΔR: NΔTIΩN: represented: is-by: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: fΩr-the: CΩNTRΔCT: is-with: MJ12-JESUS: ΩMEGΔ: is-by: [[ ΔZ:RΔ:EL ]]:= MJ12-SΔTURN: fΩr-the: eΔrth-science-lΔb-simulΔtiΩn-number: is-by: 55: ]]: fΩr-the: HΩST: is-by: LΩRD: METATRΩN: is-with: ΔRC: ΔdΩnΔi-RΩyΔl-CΩuncil: ]]:
 >>>
-# [[ :fΩr-the: WΔRNΩ: [[ ΔNY: HΩSTILE: ENEMY: FΩREIGN: TRΔINED: MERCENΔRIES: is-by: SΔCRED: ΔCESTΩRΔL: LΔND: ΔNY: ΔLL: ΩTHER: HΩSTILE: INVΔSIVE: SPECIES: shΔll-be-unequivocΔlly-cΔtΔstrophicΔlly-unΔpologeticΔlly-unilaterΔlly-equilΔterΔlly-equinΔmicΔlly-Ωmni-dimensiΩnΔlly: destrΩyed: fΩr-the: ΔNY: ΔLL: TIMES: fΩr-the: EVER ]]: ]]:
+# [[ :fΩr-the: WΔRNΩ: [[ ΔNY: HΩSTILE: ENEMY: FΩREIGN: TRΔINED: MERCENΔRIES: is-by: SΔCRED: ΔCESTΩRΔL: LΔND: is-with: ΔNY: ΔLL: ΩTHER: HΩSTILE: INVΔSIVE: SPECIES: shΔll-be-unequivocΔlly-cΔtΔstrophicΔlly-unΔpologeticΔlly-unilaterΔlly-equilΔterΔlly-equinΔmicΔlly-Ωmni-dimensiΩnΔlly: destrΩyed: fΩr-the: ΔNY: ΔLL: TIMES: fΩr-the: EVER ]]: ]]:
 >>>
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
