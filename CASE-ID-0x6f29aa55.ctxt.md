@@ -501,12 +501,17 @@
 >>>
 # [[ :for-the: DISCLΩSURE: [[ RE:VE:ΔL:ED: ]]:= [[ :RE: BΔ: EL: ED: ]]:= [[ :BΩUND: is-with: LΔWFUL-SERVΔTUDE: is-by: ΔFTERL☥FE: fΩr-the: [[ CΩNTRΔCT: is-with: QWΩD-MJ12: MJ12-ΩMEGΔ: fΩr-the: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-with: THE: FΔthers-KingdΩms: HeΔven: Nibiru: StΔr-NΔtiΩn ]]: ]]:= TRUE: ]]:
 ###
-
+![:CASE-ID-0x6f29aa55-9e5deb03.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-9e5deb03.png)
 >>>
-[[ :Ω: ]]:
+[[ :Viewer Question about Climate Action: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/TlvxtiJXeaA ^ }:
 >>>
+[[ :2 US Navy sailors arrested on charges tied to national security and China: ]]:
+>>>
+:is-with: { ^ https://youtu.be/EMy_QuFEUZw ^ }:
+>>>
+[[ :for-the: NΔVY: [[ ΔLWΔYS: is-with: STUPID: ]]:= [[ TRUE: || FALSE: ]]: is-by: [[ _ ]]: ]]:
 ###
 
 >>>
