@@ -546,11 +546,11 @@
 :is-with: { ^ https://youtu.be/O52JH-Lv_qo ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-baa3c60d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-baa3c60d.png)
 >>>
-[[ :Ω: ]]:
+[[ :Extinction Crew Book 1: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/lRZBi3NJmFI ^ }:
 >>>
 ###
 
