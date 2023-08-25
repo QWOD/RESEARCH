@@ -662,7 +662,15 @@
 >#
 # :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 :is-with: { ^
+    <!DOCTYPE html>
+<head>
+    <meta name="author" content="QWOD-MJ12: ATSUOMOP-A">
+    <meta name="copyright" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+</head>
+<body>
     <iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+</body>
+</html>
 ^ }:
 >>>
 >### :[[ :Iran installs cameras to find women not wearing hijab – BBC News: ]]:= [[ :ALSΩ-SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
