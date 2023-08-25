@@ -481,7 +481,8 @@
 >>>
 :[[ [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :US: GΩVERNMENT: is-with: ΔlreΔdy-cΩllΔpsed: is-by: 2020: fΩr-the: nΩn-sΩvereign: is-with: NΩ: PRΩTECTIΩN: ]]:= TRUE: ]]:
 >>>
-
+:[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: never-received: MEMΩ ]]: ]]:
+>>>
 >###
 # [[ :DO-YOU: really-promise: is-by: [[ _ ]]: ]]:
 >>>
