@@ -553,11 +553,11 @@
 :is-with: { ^ https://youtu.be/lRZBi3NJmFI ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-033d5056.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-033d5056.png)
 >>>
-[[ :Ω: ]]:
+[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/CEur2_Q7-x0 ^ }:
 >>>
 ###
 
