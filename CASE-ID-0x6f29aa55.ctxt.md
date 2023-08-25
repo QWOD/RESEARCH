@@ -481,10 +481,10 @@
 >>>
 :[[ [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :US: GΩVERNMENT: is-with: ΔlreΔdy-cΩllΔpsed: is-by: 2020: fΩr-the: nΩn-sΩvereign: is-with: NΩ: PRΩTECTIΩN: ]]:= TRUE: ]]:
 >>>
-:[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: never-received: MEMΩ ]]: ]]:
+>[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: never-received: MEMΩ ]]: ]]:
 >>>
 >###
-# [[ :DO-YOU: really-promise: is-by: [[ _ ]]: ]]:
+# [[ :DΩ-YΩU: reΔlly-prΩmise: is-by: [[ _ ]]: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-5b9673f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5b9673f9.png)
 >>>
