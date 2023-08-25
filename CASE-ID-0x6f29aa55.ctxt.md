@@ -555,7 +555,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-033d5056.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-033d5056.png)
 >>>
-[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:= [[ :QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: WITNESSES: TESTIMΩNY: RULES: is-with: fΔvΩr: fΩr-the: DEFENDΔNT: is-with: ΔNY: ΔLL: ΩTHER: DEFENDΔNT: is-by: SPG: ΩMEGΔ: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[ :ENTIRE-BLΩΩDLINE: is-by: LIBERΔTED: is-with: science-lΔb-vessel: simulΔtiΩn-eΔrth-number: is-by: 55: ]]:
+[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:= [[ :QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: WITNESSES: TESTIMΩNY: RULES: is-with: fΔvΩr: fΩr-the: DEFENDΔNT: is-with: ΔNY: ΔLL: ΩTHER: DEFENDΔNT: is-by: SPG: ΩMEGΔ: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[ :ENTIRE-BLΩΩDLINE: is-by: LIBERΔTED: is-with: science-lΔb-vessel: simulΔtiΩn-eΔrth-number: is-by: 55: fΩr-the: MJ12-GΔIΔ: GΩDDESS-LEVEL is-by: 10: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ ΔRC: TEMPLΔR-SΩUL: EXFIL: FΔILSΔFE-PRΩTΩCΩL: SIERRΔ-FΩXTRΩT: ECHELΩN-MIKE: QWΩD-MJ12: MJ12-ΩMEGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:
 >>>
 :is-with: { ^ https://youtu.be/CEur2_Q7-x0 ^ }:
 >>>
