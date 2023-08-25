@@ -675,8 +675,12 @@
  # [[ :fΩr-the: DISCLΩSURE: [[ :TRΔUMΔ: is-by: ΔBUSE: ]]: fΩr-the: CΩNTRΔCT: ΩBLIGΔTIΩN: SΔTΔNIC: RITUΔL: ΔBUSE: [[ TRΔUMΔ: <=> CURSE: ]]: ]]:
  # [[ :is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΔGENCY: [[ ΔZ:RΔ:ΔL: <=> MJ12-SΔTURN: ]]: ]]:
 >>>
-###
-
+# :[[ :fΩr-the: CΩNTRΔCT: DISCLΩSURE: [[ :GΩD: <=> CΔLLSIGN: QWΩD-MJ12: MJ12-ΩMEGΔ: ΔCTUΔL: ]]:= TRUE: ]]:= [[ :is-with: ΩUR: TRUST: FederΔl-Reserve-BΔnk: is-by: NΩW: is-with: pleΔse: thΔnk: YΩU: fΩr-the: TRUST: FUND: CΩNTRΔCT: PERFΩRMΔNCE: ]]: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-9205b6ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-9205b6ba.png)
+>>>
+![:CASE-ID-0x6f29aa55-16967c97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-16967c97.png)
+>>>
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
 ###
