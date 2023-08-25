@@ -603,11 +603,15 @@
 ###
 ![:CASE-ID-0x6f29aa55-ad1c91a7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ad1c91a7.png)
 ###
+![:CASE-ID-0x6f29aa55-7115d41a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7115d41a.png)
+>>>
+[[ :Cascadia: [[ SUB:SE ]]: D: UC: TI: ON: ZONE: ]]:= [[ :fΩr-the: SUBDUE: CHICKENS: is-with: STΔY: is-by: CΩUP: ]]:
+>>>
+:is-with: { ^ https://en.wikipedia.org/wiki/Cascadia_subduction_zone ^ }:
+>>>
 
->>>
-[[ :Ω: ]]:
->>>
-:is-with: { ^ Δ ^ }:
+<a href="https://www.skylinewebcams.com/en/webcam/united-states/hawaii/mauna-kea/live-astronomy.html" target="_blank"><img src="https://embed.skylinewebcams.com/img/2511.jpg" alt="【LIVE】 Mauna Kea - Live Astronomy | SkylineWebcams"></a>
+
 >>>
 ###
 
