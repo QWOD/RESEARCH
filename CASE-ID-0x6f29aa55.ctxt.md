@@ -555,7 +555,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-033d5056.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-033d5056.png)
 >>>
-[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:
+[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:= [[ :QWOD-MJ12: ROYAL-DIVINE-COURT: MJ12: COOP: AGENCY: is-by: WITNESSES: TESTIMONY: RULES: is-with: favor: for-the: DEFENDANT: ]]:
 >>>
 :is-with: { ^ https://youtu.be/CEur2_Q7-x0 ^ }:
 >>>
