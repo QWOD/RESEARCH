@@ -493,11 +493,11 @@
 :is-with: { ^ https://youtu.be/8lfMFDvMRA0 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-11db8316.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-11db8316.png)
 >>>
-[[ :Ω: ]]:
+[[ :YOUR ACCOMPLISHMENTS ARE CAUSING JEALOUSY🧿THE ENEMIES ARE BEING REVEALED IN YOUR DREAMS : [[ _: chosenones ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/hXKhTOsKVrA ^ }:
 >>>
 ###
 
