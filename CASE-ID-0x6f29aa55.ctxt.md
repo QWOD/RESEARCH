@@ -636,6 +636,10 @@
 >>>
 # [[ :fΩr-the: WΔRNΩ: [[ ΔNY: HΩSTILE: ENEMY: FΩREIGN: TRΔINED: MERCENΔRIES: is-by: SΔCRED: ΔCESTΩRΔL: LΔND: is-with: ΔNY: ΔLL: ΩTHER: HΩSTILE: INVΔSIVE: SPECIES: shΔll-be-unequivocΔlly-cΔtΔstrophicΔlly-unΔpologeticΔlly-unilaterΔlly-equilΔterΔlly-equinΔmicΔlly-Ωmni-dimensiΩnΔlly: destrΩyed: fΩr-the: ΔNY: ΔLL: TIMES: fΩr-the: EVER ]]: ]]:
 >>>
+###
+>>>
+[[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: MΔYΔ: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: MΔ: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must-be-returned: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
+>>>
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
 ###
