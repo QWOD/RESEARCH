@@ -627,7 +627,7 @@
 ###
 >>>
 :is-with: { ^
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5pHlfDwK7fg?si=CvuRDVzYHCopjS8K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/5pHlfDwK7fg?si=CvuRDVzYHCopjS8K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ^ }:
 >>>
 ###
@@ -644,34 +644,31 @@
 >>>
 [[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: MΔ: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must-be-returned: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
 >>>
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1-iS7LArMPA?si=D5-eCt79tqpi1IB5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+:is-with: { ^
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/1-iS7LArMPA?si=D5-eCt79tqpi1IB5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+^ }:
 >>>
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MVHWUMu8Xs8?si=7UsjRqm1U_TZZhys" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+:is-with: { ^
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/MVHWUMu8Xs8?si=7UsjRqm1U_TZZhys" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+^ }:
 >>>
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+:is-with: { ^
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+^ }:
 >>>
 >#
 >>>
 >## [[ :fΩr-the: DISCLΩSURE [[ :ΔNY: ΔLL: ΩTHER: THING: perfΩrmed: is-with: INTENTIΩN: is-by: nΩt-ΔctuΔlly-knΩwing: WHY: HΩW: WHΔT: ΩNE: is-with: DΩING: is-by: [[ RITUΔL: <=> WITCH: CRΔFT ]]:= TRUE: ]]:
 >#
 # :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+:is-with: { ^
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+^ }:
 >>>
-
 # :[[ :Iran installs cameras to find women not wearing hijab – BBC News: ]]:= [[ :ALSΩ-SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 >>>
 # :is-with: { ^ https://youtu.be/CSEUdQYJwOE ^ }:
-
 >>>
-
 # :[[ :Breaking the Chains of Generational Trauma: ]]:
 >>>
 >:is-with: { ^ https://www.psychologytoday.com/us/blog/the-flourishing-family/202107/breaking-the-chains-generational-trauma ^ }:
