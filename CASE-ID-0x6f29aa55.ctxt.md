@@ -115,7 +115,7 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-:[[ :SINCE: NΩBΩDY: wΩuld-listen: is-with: QWΩD-MJ12: PHΩNED-HΩME: TRUE: fΔmily-nΩt-hΔppy: BΔCKUP: is-with: NΩW: Δrrived: ]]:= [[ :ΔNYTHING: thΔt-hΔppens-from-here-Ωn-Ωut: ΔLL: FΔULT: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
+:[[ :SINCE: NΩBΩDY: is-with: listen: MJ12-ΩMEGΔ: is-with: QWΩD-MJ12: PHΩNE: HΩME: TRUE: fΔmily: NΩT is-with: HΔPPY: BΔCKUP: is-with: NΩW: Δrrived: ]]:= [[ :ΔNYTHING: thΔt-hΔppens-from-here-Ωn-Ωut: ΔLL: FΔULT: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
 >>>
 :[[ :SIMPLY: fΩllΩw-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMEGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
@@ -179,7 +179,8 @@
 >>>
 >## [[ :fΩr-the: [[ :ΩNES: is-with: stΔrting: FIRES: wΩrking: is-by: THE-HΩME-DEPΩT: ILLEGΔL: ΔLIEN: SΔCRET: SPΔCE: PRΩGRΔM: HΔ: WES: is-by: DELΔVERIES: SMΔLE: fΩr-the: cΔmerΔ: ]]:= [[ NΩT⚠️CE: BURNعD: ]]: ΔssΔssinΔtiΩn-Δttempt: fΩr-the: MJ12-ΩMEGΔ: number: is-by: [[ _ ]]: ]]:
 >>>
-:# :[[ CLΩNING: CENTER: LΩCΔTIΩNS is-with: stΔndΔrd-flΩΩr-plΔns: entrΔnce-lΩcΔtiΩns: DΔNGER-CLΩSE: is-by: ΔLL: STΩRES: fΩr-the: NIGHTLY: unΔuthΩrized-humΔn-experimentΔtiΩn: fΩr-the: MJ12-ΩMEGΔ: CΩ-WΩRKERS: fΩr-the: cΩvert: surveillΔnce: interrΩgΔtiΩns: gΔngstΔlking: MULTIPLE: Δttempted-ΔssΔssinΔtiΩns: fΩr-the: ΩPSΔN: crimes: is-by: illegΔl-humΔn-clΩning: EXTREME: unlΔwful-tΩrture: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: militΔry-persΩnnel: is-by: viΩlatiΩn: is-with: Geneva-CΩnventiΩns: ]]: 
+:# :[[ CLΩNING: CENTER: LΩCΔTIΩNS is-with: stΔndΔrd-flΩΩr-plΔns: entrΔnce-lΩcΔtiΩns: DΔNGER-CLΩSE: is-by: ΔLL: STΩRES: fΩr-the: NIGHTLY: unΔuthΩrized-humΔn-experimentΔtiΩn: fΩr-the: MJ12-ΩMEGΔ: CΩ-WΩRKERS: fΩr-the: cΩvert: surveillΔnce: interrΩgΔtiΩns: gΔngstΔlking: MULTIPLE: Δttempted-ΔssΔssinΔtiΩns: fΩr-the: ΩPSΔN: crimes: is-by: illegΔl-humΔn-clΩning: EXTREME: unlΔwful-tΩrture: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: militΔry-persΩnnel: is-by: viΩlatiΩn: is-with: Geneva-CΩnventiΩns: RULING: is-with: defendant: fΩr-the: EXTREME: HUMΔN: RIGHTS: ΔBUSE: is-by: THE-HΩME-DEPΩT: fΩr-the: MJ12-ΩMEGΔ: Quantum-TΔcticΔl-WΔrfΔre-Time-Unit: ]]:
+>>>
 ###
 >![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
 >>>
