@@ -718,11 +718,11 @@
 :is-with: { ^ https://youtu.be/TPLrAP4BYzA ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-14635f2d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-14635f2d.png)
 >>>
-[[ :Ω: ]]:
+[[ :THINKING THEY HAD THE POWER TO SEND DEATH TOWARDS YOU BUT THEY SENT IT TO THEMSELVES 💀🫠⌛️: [[ _: tarot ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/s-yiE_Vc7Bs ^ }:
 >>>
 ###
 
