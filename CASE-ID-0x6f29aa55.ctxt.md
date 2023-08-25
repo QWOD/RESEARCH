@@ -691,7 +691,7 @@
 >#
 >>>
 >## [[ :fΩr-the: DISCLΩSURE [[ :ΔNY: ΔLL: ΩTHER: THING: perfΩrmed: is-with: INTENTIΩN: is-by: nΩt-ΔctuΔlly-knΩwing: WHY: HΩW: WHΔT: ΩNE: is-with: DΩING: is-by: [[ RITUΔL: <=> WITCH: CRΔFT ]]:= TRUE: ]]:
->#
+>>>
 # :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 :is-with: { ^
 <!DOCTYPE html>
