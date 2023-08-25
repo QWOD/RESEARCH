@@ -652,6 +652,14 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 >>>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+>>>
+
+
+>>>
+
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
 ###
