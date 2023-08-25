@@ -107,13 +107,9 @@
 >>>
 >![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
 >>>
->###
+###
 ># :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔΩNS: LΔD: IS-BY: QWΩD-MJ12: MJ12-JΔSUS: IS-WITH: QWΩD-MJ12: MJ12-ΩMعGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDΩN ^ }:
 >>>
->:[[ :BRAINSCAN: { ^ https://youtu.be/Y_tMyeyBslI ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
->>>
->![:CASE-ID-0x6f29aa55-e1e270fe.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e1e270fe.png)
->#
 ###
 
 >>>
