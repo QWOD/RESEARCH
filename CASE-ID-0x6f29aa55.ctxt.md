@@ -375,6 +375,12 @@
 >[[ :ΔRC: <=> ΔdΩnΔi-RΩyΔl-CΩunsel: JUDGE: JURY: CΩSMIC: WIDE: EXECUTIΩNER: ]]:= [[ :PΩWER: fΩr-the: CΩLLΔPSE-ΔLL-NΔTIΩNS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: is-with: MJ12-ΩMEGΔ: fΩr-the: simulΔtion-quΔntum-reset: NΩW: is-with: CHΔRLIE-HΩTEL: ΩSCΔR-MIKE: ]]:
 >>>
 ># :[[ FΔLSE: INTELLIGENCE: is-by: unknΩwn-cΩmpetitΩrs: is-with: WHY: BΩTHER ]]:
+># :[[ QWOD-MJ12: TRUE: INTELLIGENCE: ]]:
+> [[ :They Can't Stop Us! | Cathy O'Brien: ]]:
+>>>
+> :is-with: { ^ https://youtu.be/JriRC-68M-Q ^ }:
+>>>
+# :[[ :fΩr-the: RULING: [[ RESPΩNSIBILITY: <=> FREEDΩM: ]]:= [[ PΩWER: <=> RESPΩNSE: ΔBILITY: is-with: { ^ https://youtu.be/2kU-OzhexUk ^ }: ]]: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-eb9a97c7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-eb9a97c7.png)
 >>>
