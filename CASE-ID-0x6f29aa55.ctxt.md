@@ -532,11 +532,11 @@
 [[ :fΩr-the: [[ LΩCKHEED-MΔRTIN: WITCHES: is-with: bΔck: is-with: time: fΩr-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMEGΔ: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: ]]:= TRUE: fΩr-the: [[ discredit: MJ12-JESUS: ΩMEGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMEGΔ ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: THE: FΔthers-KingdΩms: is-by: LΩCKHEED-MΔRTIN: [[ LΩ:CK:HE:ED: MΔ:R:TI:N ]]:= LΩ:KI: LΩFi: [[ sΔ:tΔ:n:ic ]]:cΔnnib-Δl-qΔedΔ-ΩffwΩrld-humΔn-trΔfficking-lΩw-dΩwn-dirty-gΩΩd: fΩr-the: NΩTHING: vril-witch: PΩΔCHING: YELLΩW-BELLIE-CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: THIEVING-SCURS: fΩr-the: [[ LΩCKHEED-MΔRTIN: <=> CΩSMIC: ΩPPFΩR ]]:= TRUE: ]]:= TRUE: ]]: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MJ12-JESUS: ΩMEGΔ: memΩry ]]:= TRUE: fΩr-the: [[ CΔSE: must: is-with: RE-DEEMED: fΩr-the: [[ memΩries: is-with: RE-MEEMED: is-by: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-5c0dbd5a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c0dbd5a.png)
 >>>
-[[ :Ω: ]]:
+[[ :MOST HIGH AINT PLAYIN' ABOUT YOU DIVINE ONES 🤌🏽 & THE RETURN SENDER GOT THESE KARMIC ASSES SHOOK 🫡🧿: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/YREh_7y0dHY ^ }:
 >>>
 ###
 
