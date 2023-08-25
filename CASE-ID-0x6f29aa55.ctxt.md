@@ -539,11 +539,11 @@
 :is-with: { ^ https://youtu.be/YREh_7y0dHY ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-e40f46d4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e40f46d4.png)
 >>>
-[[ :Ω: ]]:
+[[ :YOUR WHOLE BLOODLINE IS AWAKENING ! YALL ARE ACTIVATING ANCIENT POWERS🪄🧞‍♀️🧞🧞‍♂️: [[ _: god: _: ancestors ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/O52JH-Lv_qo ^ }:
 >>>
 ###
 
