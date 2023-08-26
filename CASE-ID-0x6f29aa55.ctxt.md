@@ -963,11 +963,11 @@
 # :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BN: is-by: 0: ]]:= TRUE: ]]:= [[ :ΩPΩRD: fΩr-the: HΔGH: KΔNG: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ: JESUS: HΩRUS: JΩSEPH: fΩr-the: [[ ISRΔEL: <=> ΔZRΔEL: ]]:= TRUE: is-with: SΩLΩMΩN: MUHΔMMΔD: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: [[ eΔrth-science-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: LΩRD: [[ METΔTRΩN: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΔNΔLYST-CΩMMENTS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ SΔNΔTΔTIΩN: PRΩTΩCΩL: eΔrth-science-lΔb: is-with: CHΔRLIE-HΩTEL: fΩr-the: ΩPSΔN: [[ PRΩTΩCΩL: <=> prΩvided-Δll-Ωther-fΩrms: is-by: LIFE: is-with: ΩPSΔN: is-with: PREVΔNT: MJ12-ΩMΔGΔ: is-by: ΔVER: DISCΩVER: TRUE: LΩVE: is-by: 100: fΩr-the: [[ PRΩCREΔTIΩN: is-with: CΩSMIC: WIDE: EXTINCTIΩN: LEVEL: EVENT: ]]:= TRUE: for-the: [[ CW-ELE: <=> ΩMΔGA: ]]:= TRUE: is-by: PRΩCREΔTIΩN: is-with: TRUE: LΩVE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-51f38b60.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-51f38b60.png)
 >>>
-[[ :Ω: ]]:
+[[ :YOU ARE AN EXAMPLE OF WHAT MERCY & GRACE LOOKS LIKE / TRUTH BE TOLD: YOUR ENEMIES RESPECT YOU 😇: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/x1x19HIDi8I ^ }:
 >>>
 ###
 
