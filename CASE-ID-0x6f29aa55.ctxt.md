@@ -918,7 +918,7 @@
 # :[[ :CONSLUSIONS: ]]:
 ## :[[ :fΩr-the: DISCLΩSURE: [[ HΔRDER: MΩRE: CHICKENS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: fΩr-the: [[ MΩRE: TRUE: tΩp: ΔTSUΩMΩP: secret: PΩWER: ΩNE: ΔctuΔlly: is-with ]]: ]]: 
 >>>
-# :[[ :PRΩVIDING: fΩr-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: <=> KNΩWS: ΔLL: fΩr-the: [[ THΔNGS: ]]: ]]: ]]: 
+# :[[ :PRΩVIDING: fΩr-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: <=> KNΩWS: ΔLL: fΩr-the: [[ THΔNGS: is-by: ΔTSUΩMΩP: cΩsmic-wide-level-security-cleΔrΔnce: is-by: CΩMMUNICΔTE: is-with: [[ GΩD: HEΔVEN: <=> Nibiru: PLΔNET-X: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]: 
 
 >>>
 [[ :Ω: ]]:
