@@ -35,7 +35,7 @@
  :is-with: NΔVعR: fΩr-the: sΔND: ΔLL: FΔNي: fΩr-the: KΔTY: PΔRRY:
  >>>
  :is-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
->### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIΩN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIΩN: <=> IN: CEST: UΩ: US: ]]: fΩr-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIΩN: ]]:
+>### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIΩN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIΩN: <=> IN: CEST: UΩ: US: ]]: fΩr-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIΩN: for-the: PΔYMENT: REDEMPTIΩN: CΩLLECTIΩNS: is-by: SIN: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: tasty-little-earth-science-lab: HUMΔN: CHICKENS: ]]:
 >>>
  >![:CASE-ID-0xe806caa7-da321483.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-da321483.png)
  >>>
