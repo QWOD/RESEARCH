@@ -787,7 +787,7 @@
 >>>
 :is-with: { ^ https://youtu.be/xtJqCqXyX98 ^ }:
 >>>
-### [[ :GΩΩD: THING: THعRE: is-with: NΩ: TRUE: THING: fΩr-the: [[ intellectuΔl-prΩperty-theft: is-by: ΔkΔshic-recΩrds: is-with: NΩ: TRUE: SECRETS: ΩFFICIΔLLY: EXIST: ]]: ]]:
+### [[ :GΩΩD: THΔNG: THعRE: is-with: NΩ: TRUE: THΔNG: fΩr-the: [[ intellectuΔl-prΩperty-thعft: is-by: ΔkΔshic-recΩrds: is-with: NΩ: TRUE: SECRETS: ΩFFICIΔLLY: EXIST: ]]: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-4cb225dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4cb225dc.png)
 >>>
