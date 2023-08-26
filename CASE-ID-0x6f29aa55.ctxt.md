@@ -553,7 +553,7 @@
 >>>
 # [[ :fΩr-the: [[ Little-TΩddler-Minded-LifefΩrms: is-with: cΔtΔstrΩphic: MIKE-FΩXTRΩT: fΩr-the: present-emergence: fΩr-the: QWΩD-MJ12: HLΔB-LΔMB: MJ12-JESUS: ΩMΔGΔ: fΩr-the: [[ QRF: TΔSKFΩRCع: ΩMΔGΔ: is-by: NΩW: is-with: ΩSCΔR-MIKE ]]: ]]:= TRUE: ]]:
 >>>
-[[ :fΩr-the: [[ LΩCKHEED-MΔRTIN: WΔTCHES: is-with: bΔck: is-with: time: fΩr-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMΔGΔ: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: ]]:= TRUE: fΩr-the: [[ discredit: MJ12-JESUS: ΩMΔGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMΔGΔ ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: THE: FΔthers-KingdΩms: is-by: LΩCKHEED-MΔRTIN: [[ LΩ:CK:HE:ED: MΔ:R:TI:N ]]:= LΩ:KI: LΩFi: [[ sΔ:tΔ:n:ic ]]:cΔnnib-Δl-qΔedΔ-ΩffwΩrld-humΔn-trΔfficking-lΩw-dΩwn-dirty-gΩΩd: fΩr-the: NΩTHING: vril-witch: PΩΔCHING: YELLΩW-BELLIE-CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: THIEVING-SCURS: fΩr-the: [[ LΩCKHEED-MΔRTIN: <=> CΩSMIC: ΩPPFΩR ]]:= TRUE: ]]:= TRUE: ]]: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MJ12-JESUS: ΩMΔGΔ: memΩry ]]:= TRUE: fΩr-the: [[ CΔSE: must: is-with: RE-DEEMED: fΩr-the: [[ memΩries: is-with: RE-MEEMED: is-by: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+[[ :fΩr-the: [[ LΩCKHEED-MΔRTIN: WΔTCHES: is-with: bΔck: is-with: time: fΩr-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMΔGΔ: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: ]]:= TRUE: fΩr-the: [[ discredit: MJ12-JESUS: ΩMΔGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMΔGΔ ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: THE: FΔthers-KingdΩms: is-by: LΩCKHEED-MΔRTIN: [[ LΩ:CK:HE:ED: MΔ:R:TI:N ]]:= LΩ:KI: LΩFi: [[ sΔ:tΔ:n:ic ]]:cΔnnib-Δl-qΔedΔ-ΩffwΩrld-humΔn-trΔfficking-lΩw-dΩwn-dirty-gΩΩd: fΩr-the: NΩTHING: vril-witch: PΩΔCHING: YELLΩW-BELLIE-CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: THIΔVING-SCΔRS: fΩr-the: [[ LΩCKHEED-MΔRTIN: <=> CΩSMIC: ΩPPFΩR ]]:= TRUE: ]]:= TRUE: ]]: fΩr-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MJ12-JESUS: ΩMΔGΔ: memΩry ]]:= TRUE: fΩr-the: [[ CΔSE: must: is-with: RE-DEEMED: fΩr-the: [[ memΩries: is-with: RE-MEEMED: is-by: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-5c0dbd5a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c0dbd5a.png)
@@ -641,16 +641,16 @@
 ###
 >>>
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/5pHlfDwK7fg?si=CvuRDVzYHCopjS8K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/5pHlfDwK7fg?si=CvuRDVzYHCopjS8K" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
@@ -669,44 +669,44 @@
 [[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: [[ MΔ: <=> FEMΔLE: PRIMΩRDIΔL: BEING: ]]: for-the: [[ YΔ: <=> TRUE: HIST: TREE: KEEPERS: ]]: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must: is-by: returned: ΔNY: ΔLL: ΩTHER: ΩriginΔl: lΔnd: cΩntrΔct: trustees: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
 >>>
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/1-iS7LArMPA?si=D5-eCt79tqpi1IB5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/1-iS7LArMPA?si=D5-eCt79tqpi1IB5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/MVHWUMu8Xs8?si=7UsjRqm1U_TZZhys" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/MVHWUMu8Xs8?si=7UsjRqm1U_TZZhys" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/Vj0XKu6AoOw?si=PCOL83CeMLnHY45C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
@@ -716,16 +716,16 @@
 >>>
 # :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/s-WxUasZsL0?si=N1lOJHoM5CHadON-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
@@ -866,16 +866,16 @@
 [[ :View from Huntington Beach Pier: ]]:
 >>>
 :is-with: { ^
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/xXV3sz92k8w?si=YFDQp3FEIShVvrT8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+     <!DOCTYPE html>
+     <head>
+         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+     </head>
+     <body>
+         <iframe width="560" height="315" src="https://www.youtube.com/embed/xXV3sz92k8w?si=YFDQp3FEIShVvrT8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+     </body>
+     </html>
 
 ^ }:
 >>>
