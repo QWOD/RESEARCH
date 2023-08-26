@@ -6,9 +6,7 @@ gitTreePath=/home/hyperuser/hyperstor/QWOD
 
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}/HYPERMEDIUS; git init"
-    "cd ${gitTreePath}/RESEARCH; git init"
-    "cd ${gitTreePath}/DISCLOSURE; git init"
+    "cd ${gitTreePath}; git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${gitTreePath}; git clone git@github.com:QWOD/HYPERMEDIUS.git"
@@ -16,9 +14,9 @@ function cloudHiveBackup {
     "cd ${gitTreePath}; git clone git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "pull" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}/HYPERMEDIUS; git pull git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}/RESEARCH; git pull git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}/DISCLOSURE; git pull git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}; git pull git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}; git pull git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}; git pull git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${gitTreePath}/HYPERMEDIUS; git push --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
