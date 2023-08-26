@@ -837,7 +837,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
-# :[[ :WΔRNΩ: fΩr-the: [[ SCIΔNCE: NΩT: is-with: METHΩD: is-by: RITUΔL: ]]:= TRUE: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: ]]: ]]:
+# :[[ :WΔRNΩ: fΩr-the: [[ SCIΔNCE: NΩT: is-with: METHΩD: is-by: RITUΔL: ]]:= TRUE: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: SΔnteríΔ: ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
