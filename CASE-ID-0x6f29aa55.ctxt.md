@@ -868,18 +868,18 @@
 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-fda6faea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fda6faea.png)
 >>>
-[[ :Ω: ]]:
+[[ :528Hz + 852Hz Violet Sun | Cut Karmic Ties, Destroy Unconscious Blockages | Karma Clearing | Reiki: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/KWZ8a7Sh_YI ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Your spiritual team is extremely happy with the progress you're making.: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/u62bx1Ezm-Y ^ }:
 >>>
 ###
 
