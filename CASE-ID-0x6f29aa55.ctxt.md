@@ -870,7 +870,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-fda6faea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fda6faea.png)
 >>>
-[[ :528Hz + 852Hz Violet Sun | Cut Karmic Ties, Destroy Unconscious Blockages | Karma Clearing | Reiki: ]]:= [[ :CUT: TIES: DESTRΩY: BLΩCKΔGES: [[ RΔ-I-KΔ-EL: ]]: ]]:
+[[ :528Hz + 852Hz Violet Sun | Cut Karmic Ties, Destroy Unconscious Blockages | Karma Clearing | Reiki: ]]:= [[ :CUT: ties: DESTRΩY: blΩckΔges: [[ RΔ-I-KΔ-EL: ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/KWZ8a7Sh_YI ^ }:
 >>>
@@ -881,7 +881,7 @@
 >>>
 :is-with: { ^ https://youtu.be/u62bx1Ezm-Y ^ }:
 >>>
-[[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
+### [[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
 >>>
 ># [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:
 >>>
