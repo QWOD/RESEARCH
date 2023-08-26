@@ -983,12 +983,15 @@
 ># :[[ :fΩr-the: [[ FEW: ΔVER: STΔND: is-with: UP: fΩr-the: [[ right: ]]:= TRUE: fΩr-the: [[ FEWER: STILL: is-with: STΔND: UP: fΩr-the: [[ reΔl: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-666e338c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-666e338c.png)
 >>>
-[[ :Ω: ]]:
+[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _: 780 ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
+[[ :A “LEGACY” MEMBER OF AN ORDER OR SOCIETY WANTS OUT, BUT WANTS SOMEONE ELSE TO EXPOSE THE GROUP: ]]:
+>>>
+:is-with: { ^ https://youtu.be/JUBwV4vOpoY ^ }:
 ###
 
 >>>
