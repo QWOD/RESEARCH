@@ -931,10 +931,9 @@
 >>>
 :is-with: { ^ https://youtu.be/pIq1wSUoz3w ^ }:
 >>>
-# :[[ :fΩr-the: CΩNSPIRΔCY-THEΩRY: [[ TRUE: TΔRΩT: ΔNΔLYSIS <=> NΩT: is-with: CΔRDS: ]]:= TRUE: is-by: [[ _ ]]: ]]: ]]:
+>## :[[ :fΩr-the: CΩNSPIRΔCY-THEΩRY: [[ TRUE: TΔRΩT: ΔNΔLYSIS <=> NΩT: is-with: CΔRDS: ]]:= TRUE: is-by: [[ _ ]]: ]]: ]]:
 >>>
-###
-![:CASE-ID-0x6f29aa55-243aed75.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-243aed75.png)
+>![:CASE-ID-0x6f29aa55-243aed75.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-243aed75.png)
 >>>
 [[ :Ω: ]]:
 >>>
