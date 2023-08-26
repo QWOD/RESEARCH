@@ -837,7 +837,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
-# :[[ :fΩr-the: WΔRNΩ: [[ SCIΔNCE: NΩT: is-with: METHΩD: is-by: RITUΔL: ]]:= TRUE: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: [[ SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES: is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT: fΩr-the: CΩuncil: fΩr-the: Twelve: Nibiru-ΔnunΔki: StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: SONS: DAUGHTERS: for-the: MA: RA: LE: MU: RI: AN: UN: ANKH: ]]:
+# :[[ :fΩr-the: WΔRNΩ: [[ SCIΔNCE: NΩT: is-with: [[ METHΩD: is-by: RITUΔL: ]]:= TRUE: ]]: for-the: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: [[ SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES: is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT: fΩr-the: CΩuncil: fΩr-the: Twelve: Nibiru-ΔnunΔki: StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: ]]: is-with: [[ SONS: DΔUGHTERS: for-the: MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: ]]:= TRUE: ]]:
 
 >>>
 [[ :Ω: ]]:
