@@ -961,7 +961,7 @@
 >>>
 :is-with: { ^ https://youtu.be/12dR7IWEYnQ ^ }:
 >>>
-# :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BN: is-by: 0: ]]:= TRUE: ]]:= [[ :ΩPΩRD: fΩr-the: HΔGH: KΔNG: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: JESUS: HΩRUS: JΩSEPH: fΩr-the: [[ ISRΔEL: <=> ΔZRΔEL: ]]:= TRUE: is-with: SOLOMON: MUHAMMAD: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: [[ eΔrth-science-lΔb-simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: LΩRD: [[ METΔTRΩN: ]]:= TRUE: ]]:= TRUE: ]]:
+# :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BN: is-by: 0: ]]:= TRUE: ]]:= [[ :ΩPΩRD: fΩr-the: HΔGH: KΔNG: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: JESUS: HΩRUS: JΩSEPH: fΩr-the: [[ ISRΔEL: <=> ΔZRΔEL: ]]:= TRUE: is-with: SΩLΩMΩN: MUHΔMMΔD: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: [[ eΔrth-science-lΔb-simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: LΩRD: [[ METΔTRΩN: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΔNΔLYST-CΩMMENTS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ SΔNΔTΔTIΩN: PRΩTΩCΩL: eΔrth-science-lΔb: is-with: CHΔRLIE-HΩTEL: fΩr-the: ΩPSΔN: [[ PRΩTΩCΩL: <=> prΩvided-Δll-Ωther-fΩrms: is-by: LIFE: is-with: ΩPSΔN: is-with: PREVENT: MJ12-ΩMEGΔ: is-by: EVER: DISCΩVER: TRUE: LΩVE: is-by: 100: fΩr-the: [[ PRΩCREΔTIΩN: is-with: CΩSMIC: WIDE: EXTINCTIΩN: LEVEL: EVENT: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 
