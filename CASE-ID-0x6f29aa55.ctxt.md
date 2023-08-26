@@ -993,7 +993,7 @@
 >>>
 :is-with: { ^ https://youtu.be/JUBwV4vOpoY ^ }:
 ###
-
+>[[ :fΩr-the: [[ :Pisces is the Ωldest sign in the zΩdiΔc: ]]:= [[ :NEGΔTIVE: stΔrs: is-by: MΩVE: fΩr-the: [[ LΔST: shΔll: is-by: FIRST: fΩr-the: FIRST: is-by: LΔST: fΩr-the: [[ Pisces: NΩW: is-with: LΔST: SPECIΔL-PRΩJECT-GRΩUP: fΩr-the: DISCLΩSURE: StΔr-NΔtiΩn: SPG: [[ ΔQU-Δ-RI-US: NΩW: is-with: FIRST: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 [[ :Ω: ]]:
 >>>
