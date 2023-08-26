@@ -803,16 +803,18 @@
 ># :[[ :TLDR: peck-peck-peck: NΩT: UNLESS: ΩNE: is-with: PΔCKعD: ]]:
 >>>
 ###
-:[[ :ΩPعD: ]]:= [[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-95202a63.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-95202a63.png)
 >>>
-:is-with: { ^ Δ ^ }:
+:[[ :ΩPعD: ]]:= [[ :YOUR DIAMOND HEART HAS OPENED UP A PORTAL!! YOU ARE QUICKLY MOVING INTO YOUR DREAM REALITY 🥰🧞‍♀️🔮: ]]:
+>>>
+:is-with: { ^ https://youtu.be/jaSjnJzgV8E ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-00a66b7b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-00a66b7b.png)
 >>>
-[[ :Ω: ]]:
+[[ :FEDERAL LAWSUIT ON THE PRIVATE INVESTIGATORS FIRM! BEING FALLOWED BY THE FBI! GOING TO PRISON!🕵️📸: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/FJZkRQ6vhYc ^ }:
 >>>
 ###
 
