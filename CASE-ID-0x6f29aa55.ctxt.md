@@ -908,6 +908,7 @@
 >>>
 # :[[ :ENTIRE: eΔrth-science-lΔb-simulΔtiΩn: is-with: MK: ULTRΔ: prΩgrΔm: prΩviding: YΩU: believe: is-with: ΔNY: THING: ΔT: ΔLL: YΩU: is-with: under-sΩme-spell: fΩr-the: WITCHES: ]]:= [[ :ΔS: YΩU: believe: SΩ-IT-IS-DΩNE: untΩ: YΩU: ]]:
 >>>
+# :[[ :FΔCT: <=> SCIENCE: ]]:= [[ :FICTION: <=> RITUΔL: ]]:= [[ :SCIENCE-FICTION: <=> WITCH: KRΔFT: ]]:= [[ :WITCH: [[ :MΔRTIN:]]: KRΔFT: [[ :KONTROL: ]]: <=> MIND: KONTROL: ]]:= [[ :PROGRΔM: ]]:= [[ :LIMΔ-CHΔRLIE: [[ _ ]]: QWOD-MJ12: [[ OP: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
 ###
 
 >>>
