@@ -961,6 +961,8 @@
 >>>
 :is-with: { ^ https://youtu.be/12dR7IWEYnQ ^ }:
 >>>
+# :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BN: is-by: 0: ]]:= TRUE: ]]: [[ :ΩPΩRD: QWΩD-MJ12: MJ12-ΩMEGΔ: JESUS: HΩRUS: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: eΔrth-science-lΔb-simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: METΔTRΩN: ]]:
+>>>
 ###
 
 >>>
