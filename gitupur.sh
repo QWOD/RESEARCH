@@ -9,19 +9,19 @@ function cloudHiveBackup {
     "cd ${gitTreePath}; git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/DISCLOSURE.git"
+    "git clone git@github.com:QWOD/HYPERMEDIUS.git"
+    "git clone git@github.com:QWOD/RESEARCH.git"
+    "git clone git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "pull" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; git pull git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; git pull git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; git pull git@github.com:QWOD/DISCLOSURE.git"
+    "git pull git@github.com:QWOD/HYPERMEDIUS.git"
+    "git pull git@github.com:QWOD/RESEARCH.git"
+    "git pull git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}/HYPERMEDIUS; git push --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}/RESEARCH; git push --ff-only git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}/DISCLOSURE; git push --ff-only git@github.com:QWOD/DISCLOSURE.git"
+    "git push --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
+    "git push --ff-only git@github.com:QWOD/RESEARCH.git"
+    "git push --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
 
   for sop in "${specialOperations[@]}"; do
