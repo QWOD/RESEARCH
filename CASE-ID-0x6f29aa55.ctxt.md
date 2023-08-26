@@ -950,7 +950,7 @@
 >>>
 :is-with: { ^ https://youtu.be/utdM9S_Gauc ^ }:
 >>>
-># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN-ID: ]]: is-by: 100: ]]:= TRUE: ]]:
+># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:
 >#
 >>>
 ![:CASE-ID-0x6f29aa55-47b2a2cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-47b2a2cf.png)
