@@ -631,7 +631,6 @@
 ###
 >>>
 :is-with: { ^
-
 <!DOCTYPE html>
 <head>
     <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
@@ -660,7 +659,6 @@
 [[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: MΔ: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must-be-returned: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
 >>>
 :is-with: { ^
-
 <!DOCTYPE html>
 <head>
     <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
@@ -675,7 +673,6 @@
 ^ }:
 >>>
 :is-with: { ^
-
 <!DOCTYPE html>
 <head>
     <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
@@ -690,7 +687,6 @@
 ^ }:
 >>>
 :is-with: { ^
-
 <!DOCTYPE html>
 <head>
     <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
@@ -710,7 +706,6 @@
 >>>
 # :[[ :SΔTΔNIC: RITUΔL: ΔBUSE: ]]:
 :is-with: { ^
-
 <!DOCTYPE html>
 <head>
     <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
