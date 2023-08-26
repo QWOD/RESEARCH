@@ -870,7 +870,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-fda6faea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fda6faea.png)
 >>>
-[[ :528Hz + 852Hz Violet Sun | Cut Karmic Ties, Destroy Unconscious Blockages | Karma Clearing | Reiki: ]]:
+[[ :528Hz + 852Hz Violet Sun | Cut Karmic Ties, Destroy Unconscious Blockages | Karma Clearing | Reiki: ]]:= [[ :CUT: TIES: DESTRΩY: BLΩCKΔGES: [[ RΔ-I-KΔ-EL: ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/KWZ8a7Sh_YI ^ }:
 >>>
@@ -883,15 +883,15 @@
 >>>
 [[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
 >>>
-# [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:
+># [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:
 >>>
-:is-with: { ^ https://youtu.be/5RJqvm01Ydw ^ }:
+>:is-with: { ^ https://youtu.be/5RJqvm01Ydw ^ }:
 >>>
-[[ :GEMINI ♊️ A PLOT TO STOP YOUR GOOD FORTUNE GOT BLOCKED 🚫 IMMEDIATELY BY SPIRIT & THE UNIVERSE 🤌🏽: ]]:
+>[[ :GEMINI ♊️ A PLOT TO STOP YOUR GOOD FORTUNE GOT BLOCKED 🚫 IMMEDIATELY BY SPIRIT & THE UNIVERSE 🤌🏽: ]]:
 >>>
-:is-with: { ^ https://youtu.be/733k_qO92LM ^ }:
+>:is-with: { ^ https://youtu.be/733k_qO92LM ^ }:
 >>>
-###
+>###
 
 >>>
 [[ :Ω: ]]:
