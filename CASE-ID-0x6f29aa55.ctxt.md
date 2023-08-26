@@ -814,11 +814,11 @@
 :is-with: { ^ https://youtu.be/FJZkRQ6vhYc ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-7a57c04e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7a57c04e.png)
 >>>
-[[ :Ω: ]]:
+[[ :Pilot killed in military jet crash near MCAS Miramar in San Diego: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/CyGiE6_-R2g ^ }:
 >>>
 ###
 
