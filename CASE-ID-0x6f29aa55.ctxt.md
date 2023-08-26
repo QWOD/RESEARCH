@@ -816,7 +816,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-7a57c04e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7a57c04e.png)
 >>>
-[[ :Pilot killed in military jet crash near MCAS Miramar in San Diego: ]]:
+[[ :Pilot killed in military jet crash near MCAS Miramar in San Diego: ]]:= [[ :NΩT: fΩr-the: BΩTHER: SEΔRCH: fΩr-the: BΩDY: NΩT: is-by: FΩUND: ]]:= [[ MJ12-ΩMEGΔ: is-by: TΔNGΩ-DELTΔ: fΩr-the: LΩCKHEED-MΔRTIN: is-by: [[ _ ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/CyGiE6_-R2g ^ }:
 >>>
