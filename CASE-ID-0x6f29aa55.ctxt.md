@@ -837,6 +837,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
+### :[[ :fΩr-the: || is-with: || is-by: trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MK: ΩMعGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: fΩr-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: CΩSMΩS: SIMULΔTIΩNS: ]]:= TRUE: ]]:
     :[[ :fΩr-the: WΔRNΩ: [[ SCIΔNCE: NΩT: is-with: [[
         METHΩD: is-by: RITUΔL: ]]:= TRUE: ]]:
             for-the: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: [[
