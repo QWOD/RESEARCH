@@ -1,0 +1,1 @@
+:[[ [[ :DISCLΩSURE: ]]: fΩr-the: [[ [[ S:PΩN:SΩR: <=> sore-looser-pawn: ]]: SHIP: <=> HYPERSP☥RE-FΩΔNDΔ☥ΔΩN: ]]:= {  ^ https://github.com/hyperspire ^ }: LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ: ΩPERΔTIΩN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
