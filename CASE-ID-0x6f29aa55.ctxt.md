@@ -844,10 +844,13 @@
                 SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES:
                 is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT:
                 is-by: CΩuncil:
-                fΩr-the: [[ ΩriginΔl-Twelve-Ruling: Nibiru-ΔnunΔki:    
+                fΩr-the: DISCLΩSURE: CΩSMIC: WIDE: LΔMB: GΩD: TREΔTY: [[ ΩriginΔl-Twelve-Ruling: Nibiru-ΔnunΔki:    
                     StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: ]]:
                     is-with: [[ SONS: DΔUGHTERS:
                         for-the: MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: ]]:= TRUE: ]]:
+>>>
+#: [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
 >>>
@@ -915,7 +918,7 @@
 # :[[ :CONSLUSIONS: ]]:
 ## :[[ :fΩr-the: DISCLΩSURE: [[ HΔRDER: MΩRE: CHICKENS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: fΩr-the: [[ MΩRE: TRUE: tΩp: ΔTSUΩMΩP: secret: PΩWER: ΩNE: ΔctuΔlly: is-with ]]: ]]: 
 >>>
-###
+# :[[ :PRΩVIDING: fΩr-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: <=> KNΩWS: ΔLL: fΩr-the: [[ THΔNGS: ]]: ]]: ]]: 
 
 >>>
 [[ :Ω: ]]:
