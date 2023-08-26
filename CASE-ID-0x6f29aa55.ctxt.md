@@ -496,7 +496,7 @@
 >>>
 ># [[ :MJ12-ΩMEGΔ: ΔNCESTΩRS: BUILT: is-with: EΔRTH: THΔ: is-by: [[ EN:RΔ:GED ]]: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: fΩr-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: fΩr-the: ΔCTIΩNS: is-with: [[ UN:RU:LY ]]: CΩNSEQUENCES: is-by: [[ KΔRMIC: <=> CΩSMIC ]]: LΔW: ]]:
 >>>
-# :[[ :fΩr-the: LΔWFUL: SΔCRED: Tribel: WISDΩM: DISCLΩSURE: [[ MJ12-LILITH: MΔ: CHILDREN: <=> BLΔCK: PEΩPLE: Tribel: ]]:= [[ :MJ12-LILITH: MΔ: is-with: WITCHES: is-by: KIDNΔPPED: MJ12-ΩMEGΔ: JESUS: BΔBY: HΩRUS: LUCIFER: is-by: TRUE: FΔMILY: is-with: Nibiru-eΔrth-simulΔtiΩn: Δ: is-by: 52: RΔPED: TΩLEN: TΔKEN: MJ12-ΩMEGΔ: GENETICS: fΩr-the: CΔIN: ΔBLE: cΔnnibΔl: Tribel: cursed: is-by: ETERNΔL: [[ DΔRKNESS: <=> LΩFi: CΩNSCIΩUSNESS: is-by: REPRΩBΔTE: MIND: REWΔRD: fΩr-the: [[ PLΔY: STUPID: GΔME: is-with: WIN: STUPID: PRIZE: ]]:= TRUE: ]]:= MΔRK: fΩr-the: BEΔST: BLΔCK: SKIN: CΩLΩR: INTER-DIMENSIΩNΔL-PΔRΔSITIC-INFECTIΩN: ]]:
+# :[[ :fΩr-the: LΔWFUL: SΔCRED: Tribel: WISDΩM: DISCLΩSURE: [[ MJ12-LILITH: MΔ: CHILDREN: <=> BLΔCK: PEΩPLE: Tribel: ]]:= [[ :MJ12-LILITH: MΔ: is-with: WΔTCHES: is-by: KIDNΔPPED: MJ12-ΩMEGΔ: JESUS: BΔBY: HΩRUS: LUCIFER: is-by: TRUE: FΔMILY: is-with: Nibiru-eΔrth-simulΔtiΩn: Δ: is-by: 52: RΔPED: TΩLEN: TΔKEN: MJ12-ΩMEGΔ: GENETICS: fΩr-the: CΔIN: ΔBLE: cΔnnibΔl: Tribel: cursed: is-by: ETERNΔL: [[ DΔRKNESS: <=> LΩFi: CΩNSCIΩUSNESS: is-by: REPRΩBΔTE: MIND: REWΔRD: fΩr-the: [[ PLΔY: STUPID: GΔME: is-with: WIN: STUPID: PRIZE: ]]:= TRUE: ]]:= MΔRK: fΩr-the: [[ BEΔST: BLΔCK: SKIN: CΩLΩR: = INTER-DIMENSIΩNΔL-PΔRΔSITIC-INFECTIΩN: ]]: is-by: [[ :The thief cometh not, but for to steal, and to kill, and to destroy: ]]:= TRUE: ]]:
 >>>
 ###
 >>>
