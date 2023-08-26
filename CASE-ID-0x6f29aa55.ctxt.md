@@ -303,7 +303,7 @@
 >>>
 >#
 ###
-># [[ :CΩNSPIRΔCY-THEΩRY: ]]:
+># :[[ :CΩNSPIRΔCY-THEΩRY: ]]:
 >>>>
 >## [[ :EΔCH: NEW-RΩUND: fΩr-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: fΩr-the: REVELΔTIΩNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-with: LΔST: shΔll-be-first: fΩr-the: [[ CΩNTRΔCT: is-with: YΩU: WΔ: THΔM: THΔ: HΔ: SHΔ: ΔS: GΩDS: <=> people: ]]: thΔnk: YΩU: vrilWΔTCHES™: fΩr-the: selfless-sΔcrifice: is-with: [[ CV:D ]]: is-with: [[ HΩUSE: <=> CΩVEN: MΔ: F☥: ΔN: S☥ΩN: ]]: DΔV☥D: RΩYΔLTY: is-by: DΔv☥ne-R1ght ]]: ]]:
 >>>
