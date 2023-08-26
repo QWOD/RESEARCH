@@ -875,18 +875,22 @@
 :is-with: { ^ https://youtu.be/KWZ8a7Sh_YI ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-80a0aae1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-80a0aae1.png)
 >>>
 [[ :Your spiritual team is extremely happy with the progress you're making.: ]]:
 >>>
 :is-with: { ^ https://youtu.be/u62bx1Ezm-Y ^ }:
 >>>
+[[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
+>>>
 ###
-
+[[ :Post office supervisor stabbed in head by employee in North County: ]]:
 >>>
-[[ :Ω: ]]:
+:is-with: { ^ https://youtu.be/5RJqvm01Ydw ^ }:
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :GEMINI ♊️ A PLOT TO STOP YOUR GOOD FORTUNE GOT BLOCKED 🚫 IMMEDIATELY BY SPIRIT & THE UNIVERSE 🤌🏽: ]]:
+>>>
+:is-with: { ^ https://youtu.be/733k_qO92LM ^ }:
 >>>
 ###
 
