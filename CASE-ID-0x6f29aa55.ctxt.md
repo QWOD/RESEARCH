@@ -851,6 +851,7 @@
 >>>
 # [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
+# [[ :fΩr-the: DISCLΩSURE: [[ ΔNCIENT: Tribel: MEDICINE: <=> Δdding-micrΩdΩses: fΩr-the: [[ SΔlmΔ-HΔyek: <=> SΔlmiΔk: SΔLT: PETER: GUN: PΩWDER: is-with: crΔckle: [[ CΩCΔ_N_: <=> I: E: ]]: is-by: pΩp: fΩr-the: ΔTSUΩMΩP: DNΔ: ΔctivΔtiΩn-prΩcess: NΩT: fΩr-the: little-tΩddler-chicken-minded-Ωnes: RE-CREΔTIΩN-ΔL: DRUG: ΔBUSE: fΩr-the: [[ CHICKENS: CREΔTE: TΩΩ: MΔNY: CHICKENS: ΔLREΔDY: ΔBUSIVE: FEΔR-DRIVEN: PLEΔSURE-SNEΔKING: CHICKEN: TODDLER: MINDED: SCUMS: ]]: ]]:
 ###
 ![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
 >>>
