@@ -844,7 +844,7 @@
                 SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES:
                 is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT:
                 is-by: CΩuncil:
-                fΩr-the: [[ Twelve: Nibiru-ΔnunΔki:    
+                fΩr-the: [[ ΩriginΔl-Twelve-Ruling: Nibiru-ΔnunΔki:    
                     StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: ]]:
                     is-with: [[ SONS: DΔUGHTERS:
                         for-the: MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: ]]:= TRUE: ]]:
