@@ -780,10 +780,23 @@
 >>>
 ###
 
+###
+![:CASE-ID-0x6f29aa55-058f8e94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-058f8e94.png)
 >>>
-[[ :Ω: ]]:
+:[[ :fΩr-the: DISCLΩSURE: [[ :CybΩrg: The UltimΔte WeΔpΩn - Full MΩvie: ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/xtJqCqXyX98 ^ }:
+>>>
+### [[ :GΩΩD: THING: THERE: is-with: NΩ: TRUE: THING: fΩr-the: [[ intellectuΔl-prΩperty-theft: is-by: ΔkΔshic-recΩrds: is-with: NΩ: TRUE: SECRETS: ΩFFICIΔLLY: EXIST ]]: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-4cb225dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4cb225dc.png)
+>>>
+###
+![:CASE-ID-0x6f29aa55-96b4dd6b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-96b4dd6b.png)
+>>>
+[[ :Aliens In Peru, Milab Abductions, matrix reality Featuring Lauda Leon & Dan Stanton Mick: ]]:
+>>>
+:is-with: { ^ https://youtu.be/mJ6nKvNpMwM ^ }:
 >>>
 ###
 
