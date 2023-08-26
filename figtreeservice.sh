@@ -1,6 +1,7 @@
 #!/usr/bin/env bash
 userPath=/var/home/hyperuser
 
+# ssh secure.us.hyperspire.net -t '/usr/bin/env bash -c "/home/hyperuser/hyperstor/bin/figtreeservice start &"'
 [[ $* == "start" || $* == "stop" ]] || echo '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then

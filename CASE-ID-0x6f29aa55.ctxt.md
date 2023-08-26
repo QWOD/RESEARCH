@@ -892,11 +892,15 @@
 >:is-with: { ^ https://youtu.be/733k_qO92LM ^ }:
 >>>
 >###
-
+![:CASE-ID-0x6f29aa55-cd322ea2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cd322ea2.png)
 >>>
-[[ :Ω: ]]:
+[[ :DESPERATE KARMIC PEOPLE ARE IN DEBT TO THE GATEKEEPERS 😳FOR TRYING TO STOP & BLOCK YOU FROM DESTINY🫣: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/QNoVFYSAIV8 ^ }:
+>>>
+[[ :Control Your Dreams ➤ Deep Sleeping Music For Lucid Dreaming | Theta Lucid Dream Sleep Hypnosis: ]]:
+>>>
+:is-with: { ^ https://youtu.be/DqEWO-Swt1o ^ }:
 >>>
 ###
 
