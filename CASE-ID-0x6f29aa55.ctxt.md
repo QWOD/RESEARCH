@@ -794,14 +794,12 @@
 ###
 ![:CASE-ID-0x6f29aa55-96b4dd6b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-96b4dd6b.png)
 >>>
-[[ :Aliens In Peru, Milab Abductions, matrix reality Featuring Lauda Leon & Dan Stanton Mick: ]]:
+:[[ :ΩPعD: ]]:= [[ :KILΩ-PΔPΔ: BΩDY-SNΔTCHING: CLΩNES: ]]:= [[ :Aliens In Peru, Milab Abductions, matrix reality Featuring Lauda Leon & Dan Stanton Mick: ]]:
 >>>
 :is-with: { ^ https://youtu.be/mJ6nKvNpMwM ^ }:
 >>>
 ###
-
->>>
-[[ :Ω: ]]:
+:[[ :ΩPعD: ]]:= [[ :Ω: ]]:
 >>>
 :is-with: { ^ Δ ^ }:
 >>>
