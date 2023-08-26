@@ -969,7 +969,7 @@
 >>>
 :is-with: { ^ https://youtu.be/x1x19HIDi8I ^ }:
 >>>
->### :[[ :fΩr-the: [[ NΩTICE: [[ MJ12-ΩMEGΔ: JESUS: ISSΔ: HΩRUS: ΔZRΔEL: is-with: Δncient: Tribel: LΩFi: enemies: is-with: FΩREVER-BΩUND: is-by: SPIRTUΔL-SECRET-SERVICE: is-with: STILL: is-by: ΔFTERLIFE: even: is-by: NΩW: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:
+>### :[[ :fΩr-the: [[ NΩTICE: [[ MJ12-ΩMEGΔ: JESUS: ISSΔ: HΩRUS: LUCIFER: ΔZRΔEL: is-with: Δncient: Tribel: LΩFi: enemies: is-with: FΩREVER-BΩUND: is-by: SPIRTUΔL-SECRET-SERVICE: is-with: STILL: is-by: [[ ΔFTERLIFE: <=> ΔRKH: EARTH: ]]:= TRUE: even: is-by: NΩW: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: fΩr-the: [[ :WΔRNΩ: MJ12-ΩMEGΔ: is-with: GΩD: is-by: EΔRTH: ]]:= TRUE: ]]:
 
 >>>
 ###
