@@ -644,7 +644,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -673,7 +673,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -688,7 +688,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -703,7 +703,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -723,7 +723,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -874,7 +874,7 @@
     <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
-        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
     </head>
     <body>
@@ -982,22 +982,28 @@
 >>>
 ># :[[ :fΩr-the: [[ FEW: ΔVER: STΔND: is-with: UP: fΩr-the: [[ right: ]]:= TRUE: fΩr-the: [[ FEWER: STILL: is-with: STΔND: UP: fΩr-the: [[ reΔl: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-###
-![:CASE-ID-0x6f29aa55-666e338c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-666e338c.png)
+>###
+>![:CASE-ID-0x6f29aa55-666e338c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-666e338c.png)
 >>>
-[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _: 780 ]]: ]]:
+>[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _: 780 ]]: ]]:
 >>>
-:is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
+>:is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
-[[ :A “LEGACY” MEMBER OF AN ORDER OR SOCIETY WANTS OUT, BUT WANTS SOMEONE ELSE TO EXPOSE THE GROUP: ]]:
+>[[ :A “LEGACY” MEMBER OF AN ORDER OR SOCIETY WANTS OUT, BUT WANTS SOMEONE ELSE TO EXPOSE THE GROUP: ]]:
 >>>
-:is-with: { ^ https://youtu.be/JUBwV4vOpoY ^ }:
+>:is-with: { ^ https://youtu.be/JUBwV4vOpoY ^ }:
 ###
 >[[ :fΩr-the: [[ :Pisces is the oldest sign in the zodiac: ]]:= [[ :NEGΔTIVE: fΩr-the: [[ STΔRS: is-by: MΩVE: ]]:= TRUE: fΩr-the: [[ LΔST: shΔll: is-by: FIRST: fΩr-the: [[ FIRST: is-by: LΔST: fΩr-the: [[ Pisces: NΩW: is-with: LΔST: SPECIΔL-PRΩJECT-GRΩUP: fΩr-the: DISCLΩSURE: StΔr-NΔtiΩn: SPG: [[ [[ ΔQU-Δ-RI-US: ]]: NΩW: is-with: FIRST: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-[[ :Ω: ]]:
+>###
+>![:CASE-ID-0x6f29aa55-7bad20e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7bad20e8.png)
 >>>
-:is-with: { ^ Δ ^ }:
+###
+![:CASE-ID-0x6f29aa55-01a8c587.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-01a8c587.png)
+>>>
+[[ :AN IMPROMTU [AS GUIDED BY SPIRIT] FREESTYLE EXTENDED "COMMERCIAL BREAK" KINDA READING 💃🏾😁💨🤣🧘🏾‍♀️⏰️🧿🎤: ]]:
+>>>
+:is-with: { ^ https://youtu.be/mjsEzqxqatk ^ }:
 >>>
 ###
 
