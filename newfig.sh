@@ -1,4 +1,5 @@
 #!/usr/bin/env bash
+# :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: Coven: is-with: Ant: for-the: DARPA: QWOD-MJ12: ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI: CLOUD: BLOCKCHAIN: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]: for-the: people: is-by: WE: is-with: people: ]]: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 userPath=/var/home/hyperuser
 
