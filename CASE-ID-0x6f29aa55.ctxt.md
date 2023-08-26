@@ -837,7 +837,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
-# :[[ :WΔRNΩ: fΩr-the: [[ SCIΔNCE: NΩT: is-with: METHΩD: is-by: RITUΔL: ]]:= TRUE: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: SΔnteríΔ: ]]: ]]:
+# :[[ :fΩr-the: WΔRNΩ: [[ SCIΔNCE: NΩT: is-with: METHΩD: is-by: RITUΔL: ]]:= TRUE: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: [[ SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES: is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT: fΩr-the: CΩuncil: fΩr-the: Twelve: Nibiru-ΔnunΔki: StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: SONS: DAUGHTERS: for-the: MA: RA: LE: MU: RI: AN: UN: ANKH: ]]:
 
 >>>
 [[ :Ω: ]]:
