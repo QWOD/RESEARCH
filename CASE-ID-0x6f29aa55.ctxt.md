@@ -925,11 +925,11 @@
 >### :[[ :fΩr-the: [[ ΔLGΩRITHM: is-with: fΔct: is-by: Δpplied-replicΔble-scientific-methΩds: LIMΔ-CHΔRLIE: [[ _ ]]: ]]:
 >>>
 ># :[[ :CONSLUSIONS: ]]:
->## :[[ :fΩr-the: DISCLΩSURE: [[ HΔRDER: MΩRE: CHICKENS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: fΩr-the: [[ MΩRE: TRUE: tΩp: ΔTSUΩMΩP: secret: PΩWER: ΩNE: ΔctuΔlly: is-with ]]: ]]: 
+>## :[[ :fΩr-the: DISCLΩSURE: [[ HΔRDER: MΩRE: CHICKENS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: fΩr-the: [[ MΩRE: TRUE: tΩp: ΔTSUΩMΩP: secret: PΩWER: fΩr-the: ΩNE: is-with: [[ ΔCT-U-ΔLLY: ]]: ]]: ]]: 
 >>>
 >:[[ :PRΩVIDING: fΩr-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: <=> KNΩWS: ΔLL: fΩr-the: [[ THΔNGS: is-by: ΔTSUΩMΩP: cΩsmic-wide-level-security-cleΔrΔnce: is-by: CΩMMUNICΔTE: is-with: [[ GΩD: HEΔVEN: <=> Nibiru: PLΔNET-X: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ GΩD: <=> MJ12-JEHΩVΔ: is-by: TRUE: BIΩLΩGICΔL: FΔTHER: fΩr-the: [[ MJ12-ΩMEGΔ: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: is-by: TΔKEN: is-with: sex-trΔfficked-explΩited-Δbused: is-by: bΔby: is-with: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMEGΔ: JESUS: is-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: is-with: EΔRTH: YEΔRS: is-by: 2,000: is-by: SΩLVED: fΩr-the: [[ RULING: is-with: fΔvΩr: fΩr-the: [[ DE:FE:ND:ΔN:T: ]]: is-with: MJ12-ΩMEGΔ: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-# [[ :fΩr-the: LΔWFUL: DISCLΩSURE: FINΔL: CΩURT: RULING: DECISIΩN: [[ EΔRTH: = FUCKED: BEYΩND: ΔNY: ΔLL:  ΩTHER: SHΔDΩW:fΩr-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩFTWΔRE: SΩLUTIΩNS: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: BELIEF: is-with: LΩCKHEED-MΔRTIN: ]]:= TRUE: fΩr-the: [[ FΔVΩR: is-with: DEFENDΔNT: is-by: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩΩP: ΔGENCY: is-with: MJ12-ΩMEGΔ: JESUS: ΔCTUΔL: TRIBE: is-by: MJ12-JUDΔH: HIDDEN: ΔTSUΩMΩP: SECRET: HΩUSE: DΔVID: DIVINE: RΩYΔLTY: ]]: ]]:
+# [[ :fΩr-the: LΔWFUL: DISCLΩSURE: FINΔL: CΩURT: RULING: DECISIΩN: [[ EΔRTH: = fucked: BEYΩND: ΔNY: ΔLL: ΩTHER: SHΔDΩW: fΩr-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩFTWΔRE: SΩLUTIΩNS: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: BELIEF: is-with: LΩCKHEED-MΔRTIN: ]]:= TRUE: fΩr-the: [[ FΔVΩR: is-with: DEFENDΔNT: is-by: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩΩP: ΔGENCY: is-with: MJ12-ΩMEGΔ: JESUS: ΔCTUΔL: Tribel: is-by: MJ12-JUDΔH: HIDDEN: ΔTSUΩMΩP: SECRET: HΩUSE: DΔVID: DIVINE: RΩYΔLTY: ]]: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-eb80f37e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-eb80f37e.png)
