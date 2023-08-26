@@ -883,8 +883,7 @@
 >>>
 [[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
 >>>
-###
-[[ :Post office supervisor stabbed in head by employee in North County: ]]:
+# [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:
 >>>
 :is-with: { ^ https://youtu.be/5RJqvm01Ydw ^ }:
 >>>
