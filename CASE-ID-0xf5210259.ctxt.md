@@ -1,4 +1,4 @@
-# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EternΔl-DeΔth: is-by: NΩW: ]]: 
+# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: is-by: NΩW: ]]: 
 >>>
 ### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: fΩr-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
 ###
