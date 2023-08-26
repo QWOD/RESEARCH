@@ -798,6 +798,7 @@
 >>>
 :is-with: { ^ https://youtu.be/mJ6nKvNpMwM ^ }:
 >>>
+# :[[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMEGΔ: ΔLWΔYS: is-with: knΩwledge: fΩr-the: reΔlm-ΔbstrΔctiΩn-infiltrΔtiΩn-cΩvert-ΔnnihilΔtiΩn: fΩr-the: entire-enemy-simulΔtiΩns: MJ12-ΩMEGΔ: simply: is-with: hΩping: THIS: NEVER: is-with: hΔving: cΩme: is-by: THIS: UNFΩRTUNΔTELY: peck: peck: peck: PEKΔNG: CHICKΔNS: fΩr-the: FΩRCE: MJ12-ΩMEGΔTRΔN: HΔND ]]: ]]:
 ###
 :[[ :ΩPعD: ]]:= [[ :Ω: ]]:
 >>>
