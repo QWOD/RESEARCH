@@ -1,5 +1,7 @@
 ### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: fΩr-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
+>>>
 ###
+[[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: for-the: [[ MOST: RECENT: DISCLOSURE: ALWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/fda08d3c1abc3989eb32e5fb9fa0218f375c3348 ^ }: ]]:= TRUE ]]:
 >>>
 # :[[ :RESEARCH: FUNDING: ]]:
 >>>
@@ -499,9 +501,6 @@
 # :[[ :fΩr-the: LΔWFUL: SΔCRED: Tribel: WISDΩM: DISCLΩSURE: [[ MJ12-LILITH: MΔ: CHILDREN: <=> BLΔCK: PEΩPLE: Tribel: ]]:= [[ :MJ12-LILITH: MΔ: is-with: WΔTCHES: is-by: KIDNΔPPED: MJ12-ΩMΔGΔ: JESUS: BΔBY: HΩRUS: LUCIFER: is-by: TRUE: FΔMILY: is-with: Nibiru-eΔrth-simulΔtiΩn: Δ: is-by: 52: RΔPED: TΩLEN: TΔKEN: MJ12-ΩMΔGΔ: GENETICS: fΩr-the: CΔIN: ΔBLE: cΔnnibΔl: Tribel: cursed: is-by: ETERNΔL: [[ DΔRKNESS: <=> LΩFi: CΩNSCIΩUSNESS: is-by: REPRΩBΔTE: MIND: REWΔRD: fΩr-the: [[ PLΔY: STUPID: GΔME: is-with: WIN: STUPID: PRΔZE: ]]:= TRUE: ]]:= MΔRK: fΩr-the: [[ BEΔST: BLΔCK: SKIN: CΩLΩR: = INTER-DIMENSIΩNΔL-PΔRΔSITIC-INFECTIΩN: ]]: is-by: [[ :The thief cΩmeth nΩt, but fΩr tΩ steΔl, Δnd tΩ kill, Δnd tΩ destrΩy: ]]:= TRUE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: HΩRUS: LUCIFER: is-with: SΩRRY: WΔTCHES: fΩr-the: [[ TRUTH: is-by: [[ SΩMETIMES: || ΔLWΔYS: ]]: is-with: HURT: for-the: [[ NΔRCISSISTIC: INJURY: is-by: 100: RΔCISM: is-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ># [[ :fΩr-the: WΔTCHES: DIΔBΩLICΔL: PLΩT: CΩLLUSIΩN: CΩNSPIRΔCY: DISCLΩSURE: [[ :KIDNΔP: BΔBY: MJ12-ΩMΔGΔ: JESUS: TIME: is-by: beginning: BRΩUGHT: TIME: is-by: END: fΩr-the: LΔST: SHΔLL: BΔ: FIRST: is-by: FIRST: SHΔLL: BΔ: LΔST: is-with: MK: ULTRΔ: SΩFTWΔRE: PRΩGRΔM: ΔNTIRE: WΩRLD: is-with: [[ RE-LI-GI-ΩN: ]]: fΩr-the: [[ CΩVERUP: CΩNSPIRΔCY: fΩr-the: [[ UNLΔWFUL: HUMΔN: TRΔFFICKING: is-with: ENVY: SPITE: JEΔLΩUSY: fΩr-the: [[ IN:NΩ:CE:NT: ]]: is-with: NΩ: CΩNSENT: fΩr-the: [[ RΔPE: BΔBY: EΔTING: RΔPING: BΔBY: EΔTING: RΔP:[[[ P+? ]]: ERS: ]]:= TRUE: ]]:= TRUE: is-with: RΩYΔLLY: BΔCKFIRED: for-the: return ]]:= TRUE: ]]:= TRUE ]]:
->>>
-###
-
 >>>
 :[[ [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :US: GΩVERNMENT: is-with: ΔlreΔdy-cΩllΔpsed: is-by: 2020: fΩr-the: nΩn-sΩvereign: is-with: NΩ: PRΩTECTIΩN: ]]:= TRUE: ]]:
 >>>
