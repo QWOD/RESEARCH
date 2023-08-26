@@ -849,7 +849,7 @@
                     is-with: [[ SONS: DΔUGHTERS:
                         for-the: MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: ]]:= TRUE: ]]:
 >>>
-#: [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:
+# [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
