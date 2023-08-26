@@ -969,6 +969,9 @@
 >>>
 :is-with: { ^ https://youtu.be/x1x19HIDi8I ^ }:
 >>>
+>### :[[ :fΩr-the: [[ NΩTICE: [[ MJ12-ΩMEGΔ: JESUS: ISSΔ: HΩRUS: ΔZRΔEL: is-with: Δncient: Tribel: LΩFi: enemies: is-with: FΩREVER-BΩUND: is-by: SPIRTUΔL-SECRET-SERVICE: is-with: STILL: is-by: ΔFTERLIFE: even: is-by: NΩW: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:
+
+>>>
 ###
 
 >>>
