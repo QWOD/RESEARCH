@@ -28,7 +28,7 @@
 :is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >>>
 #
->### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY-TRIBUNΔL: ]]:= [[ :NΩW-IN-SESSIΩN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIΩN: <=> IN: CEST: UΩ: US: ]]: fΩr-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIΩN: ]]:
+>### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIΩN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIΩN: <=> IN: CEST: UΩ: US: ]]: fΩr-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIΩN: ]]:
 >>>
 #
 ###
