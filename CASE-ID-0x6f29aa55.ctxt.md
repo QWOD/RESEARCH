@@ -471,7 +471,8 @@
 >>>
 :[[ fΩr-the: DISCLΩSURE: [[ MK: ULTRΔ: PRΩGRΔM: is-with: [[ M:_Δ_:K:_e_ ]]: MJ12-ΩMEGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: [[ DIVISIΩN: <=> PΩLITICS: ]]:= TRUE: is-with: [[ MEDIΔ: <=> ILLUSIΩN-SPELLS: ]]:= TRUE: fΩr-the: [[ CΩNFUSIΩN-SPELLS: { ^ https://youtu.be/SBL0Cbv2ooU ^ }: ]]:= TRUE: is-by: DE-FU-SED: ]]:= TRUE: ]]: ]]:
 >>>
-# :[[ :fΩr-the: DISCLΩSURE: [[ ΔNY: ΔLL: ΩTHER: ENTITIES: is-with: PΔRTICIPΔTED: is-with: gΔngstΔlking: gΔslighting: cΩvert-Mind-KΩntrΩl: mentΔl: physicΔl: emΩtiΩnΔl: Δbuse: fΩr-the: HLΔB-LΔMB: MJ12-ΩMEGΔ: is-by: FΔLSE: CLΔIMS: fΩr-the: MJ12-ΩMEGΔ: EXIST: is-by: 0: ]]: FΩr-the: RULING: is-with: EternΔl-DeΔth: ]]: ]]:
+# :[[ :fΩr-the: DISCLΩSURE: [[ ΔNY: ΔLL: ΩTHER: [[ ENTITIES: <=> CHICKENS: ]]: is-with: PΔRTICIPΔTED: is-with: gΔngstΔlking: gΔslighting: cΩvert-unlΔwful-surveillΔnce: censΩrship: persΩnΔge: cΩnversiΩn: Mind-KΩntrΩl: mentΔl: physicΔl: emΩtiΩnΔl: Δbuse: fΩr-the: [[ HLΔB-LΔMB: MJ12-ΩMEGΔ: ΔNY: ΔLL: ΩTHER: SPG: ΩMEGΔ: [[ DE:FEN:D:ΔNTS: ]]: is-by: FΔLSE: CLΔIMS: fΩr-the: MJ12-ΩMEGΔ: EXIST: is-by: 0: ]]: FΩr-the: RULING: is-with: EternΔl-DeΔth: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-5d649041.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5d649041.png)
 >>>
