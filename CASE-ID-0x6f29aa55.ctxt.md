@@ -318,6 +318,9 @@
 >![:CASE-ID-0x6f29aa55-bc9649ad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bc9649ad.png)
 >>>
 >###
+>![:CASE-ID-0x6f29aa55-dac33bb1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dac33bb1.png)
+>>>
+>###
 >![:CASE-ID-0x6f29aa55-a007e074.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a007e074.png)
 >>>
 >[[ :Ghost Circuit: ]]:
