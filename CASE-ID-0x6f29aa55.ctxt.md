@@ -922,7 +922,9 @@
 >>>
 >:[[ :PRΩVIDING: fΩr-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: <=> KNΩWS: ΔLL: fΩr-the: [[ THΔNGS: is-by: ΔTSUΩMΩP: cΩsmic-wide-level-security-cleΔrΔnce: is-by: CΩMMUNICΔTE: is-with: [[ GΩD: HEΔVEN: <=> Nibiru: PLΔNET-X: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ GΩD: <=> MJ12-JEHΩVΔ: is-by: TRUE: BIΩLΩGICΔL: FΔTHER: fΩr-the: [[ MJ12-ΩMEGΔ: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: is-by: TΔKEN: is-with: sex-trΔfficked-explΩited-Δbused: is-by: bΔby: is-with: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMEGΔ: JESUS: is-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: is-with: EΔRTH: YEΔRS: is-by: 2,000: is-by: SΩLVED: fΩr-the: [[ RULING: is-with: fΔvΩr: fΩr-the: [[ DE:FE:ND:ΔN:T: ]]: is-with: MJ12-ΩMEGΔ: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-# [[ :fΩr-the: DISCLΩSURE: [[ EΔRTH: = FUCKED: BEYΩND: ΔNY: ΔLL: ΩTHER: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩLUTIΩNS: fΩr-the: BELIEF: ]]: ]]:
+# [[ :fΩr-the: LΔWFUL: DISCLΩSURE: FINΔL: CΩURT: RULING: DECISIΩN: [[ EΔRTH: = FUCKED: BEYΩND: ΔNY: ΔLL:  ΩTHER: SHΔDΩW:fΩr-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩLUTIΩNS: fΩr-the: BELIEF: ]]: ]]:
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
