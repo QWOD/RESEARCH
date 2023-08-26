@@ -16,9 +16,9 @@ function cloudHiveBackup {
     "cd ${gitTreePath}; git clone git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "pull" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}/HYPERMEDIUS; git pull --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}/RESEARCH; git pull --ff-only git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}/DISCLOSURE; git pull --ff-only git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}/HYPERMEDIUS; git pull git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}/RESEARCH; git pull git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}/DISCLOSURE; git pull git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${gitTreePath}/HYPERMEDIUS; git push --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
