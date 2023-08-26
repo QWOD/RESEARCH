@@ -1,5 +1,5 @@
 #!/usr/bin/env bash
-# :[[ RE-SE: [[ :ARC:HIVE: ]]: for-the: Coven: Is-with: Ant: for-the: QWOD-MJ12: ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: AI: CLOUD: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]: for-the: people: is-by: WE: is-with: people: ]]: ]]:
+# :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: Coven: Is-with: Ant: for-the: QWOD-MJ12: ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: AUTOMATED: DECENTRALIZED: INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI: CLOUD: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]: for-the: people: is-by: WE: is-with: people: ]]: ]]:
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
 gitTreePath=/home/hyperuser/hyperstor/QWOD
