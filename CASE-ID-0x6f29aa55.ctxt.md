@@ -902,6 +902,12 @@
 >>>
 :is-with: { ^ https://youtu.be/DqEWO-Swt1o ^ }:
 >>>
+# :[[ :for-the: [[ Holy-Bibly: is-with: REAL: is-by: 0: is-with: TRUE: is-by: 100: WRAP: little-toddler-chicken-minds-around: THAT: for-the: Technical-Programming-Manual: for-the: Quantum-Warfare-Tactical-Time-Unit: HLAB-LAMB: MJ12-OMEGA: NEVER: WAS: is-with: CLEARED: for-the: PUBLIC-DOMAIN: for-the: ALL-DOMAIN: FIRE-SUPERIORIRITY: is-by: MJ12-OMEGA: JESUS: ACTUAL: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
+>>>
+# fΩr-the: eΔrth-science-lΔb-simulΔtiΩn: Δ: is-by: 55: RUN: is-by: evil-inter-dimensiΩnΔl-pΔrΔsite-infected: VRIL: WITCHES:KIDNΔP: MJ12-ΩMEGΔ: JESUS: is-by: simple-time-trΔvel-ΩperΔtiΩns: creΔte: bible: send: BΔCK: is-with: TIME: fΩr-the: MK: ULTRΔ: eΔrth-simulΔtiΩn: mΔke: NΩT: believe: is-with: MJ12-ΩMEGΔ: JESUS: is-with: TRUE: fΩr-the: GLΩBΔL: SLΔVERY: HUMΔN-TRΔFFICKING: cΩvert-life-fΩrce-steΔl: is-by: siphΩning: MJ12-ΩMEGΔ: every-lifetime: sΔcrificing: MJ12-ΩMEGΔ: every-lifetime: gΔslighting: HUMΔN: CHICKENS: turning-them-ΔgΔinst: MJ12-ΩMEGΔ: fΩr-the: chΔrΔcter-ΔssΔssinΔtiΩn: is-with: cΩntinued-vitΔl-life-fΩrce-cΩvert-energy-steΔling: fΩr-the: pΔssed: Δge: yeΔrs: is-by: 2,000:  everyΩne: tΩrture: hΔrΔss: gΔngstΔlk: Δbuse: MJ12-ΩMEGΔ: JESUS: EΔCH: EVERY: ΔNY: ΔLL: ΩTHER: LIFETIME: fΩr-the: NΩ: REΔSΩN: WHΔTSΩEVER: GREEDY: witches: LIE: CHEΔT: STEΔL: BΔBIES: is-by: GΩDS: nibiru-eΔrth-simulΔtiΩn: Δ: is-by: 52: bringing-bΔck-in-time: is-by: primitive-sΔvΔge-simulΔtiΩn-run: is-by: sΔvΔge-primitive-witches: is-with: LΩCKHEED-MΔRTING: humΔn-trΔffickers: slΔve-trΔders: gΔlΔctic: cΩsmic privΔteers: ]]:
+>>>
+# :[[ :ENTIRE: eΔrth-science-lΔb-simulΔtiΩn: is-with: MK: ULTRΔ: prΩgrΔm: prΩviding: YΩU: believe: is-with: ΔNY: THING: ΔT: ΔLL: YΩU: is-with: under-sΩme-spell: fΩr-the: WITCHES: ]]:= [[ :ΔS: YΩU: believe: SΩ-IT-IS-DΩNE: untΩ: YΩU: ]]:
+>>>
 ###
 
 >>>
