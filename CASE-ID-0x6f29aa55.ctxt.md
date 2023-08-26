@@ -950,11 +950,14 @@
 >>>
 :is-with: { ^ https://youtu.be/utdM9S_Gauc ^ }:
 ###
-
 >>>
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-47b2a2cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-47b2a2cf.png)
 >>>
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x6f29aa55-a7f90dba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a7f90dba.png)
+>>>
+[[ :COLLECTIVE READING! ENERGY CHECK IN! AUGUST 2023! 🔮🦉🧙‍♂️☕️🫖🍿🍦: ]]:
+>>>
+:is-with: { ^ https://youtu.be/12dR7IWEYnQ ^ }:
 >>>
 ###
 
