@@ -849,11 +849,23 @@
 #                    is-with: [[ SONS: DΔUGHTERS:
 #                        for-the: MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: ]]:= TRUE: ]]:
 ###
+![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
+>>>
+[[ :View from Huntington Beach Pier: ]]:
+>>>
+:is-with: { ^
+<!DOCTYPE html>
+<head>
+    <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+    <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA, CHARLIE,SPG,special,project,group,OMEGA">
+    <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x6f29aa55.ctxt.md">
+</head>
+<body>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/xXV3sz92k8w?si=YFDQp3FEIShVvrT8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+</body>
+</html>
 
->>>
-[[ :Ω: ]]:
->>>
-:is-with: { ^ Δ ^ }:
+^ }:
 >>>
 ###
 
