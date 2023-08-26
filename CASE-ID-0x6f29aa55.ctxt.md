@@ -440,16 +440,14 @@
 >>>
 >:is-with: { ^ https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106 ^ }:
 >>>
-# :[[ :Web Bot: ]]:= { ^ https://en.wikipedia.org/wiki/Web_Bot ^ }
+># :[[ :Web Bot: ]]:= { ^ https://en.wikipedia.org/wiki/Web_Bot ^ }
 >>>
-![:CASE-ID-0x6f29aa55-64583ff9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-64583ff9.png)
+>![:CASE-ID-0x6f29aa55-64583ff9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-64583ff9.png)
 >>>
-# :[[ :Deathbot: ]]:= { ^ https://youtu.be/02y1rups5hk ^ }:
->>>
-![:CASE-ID-0x6f29aa55-b33fca22.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b33fca22.png)
+># :[[ :Deathbot: ]]:= { ^ https://youtu.be/02y1rups5hk ^ }:
 >>>
 ###
-# [[ :fΩr-the: [[ QUESTIΩNS: is-with: ΔNY ]]: ]]:
+> [[ :fΩr-the: [[ QUESTIΩNS: is-with: ΔNY ]]: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-37464b97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-37464b97.png)
 >>>
