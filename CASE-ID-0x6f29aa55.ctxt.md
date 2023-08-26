@@ -911,6 +911,11 @@
 # :[[ :FΔCT: <=> SCIENCE: ]]:= [[ :FICTIΩN: <=> RITUΔL: ]]:= [[ :SCIENCE-FICTIΩN: <=> WITCH: KRΔFT: ]]:= [[ :WITCH: [[ :MΔRTIN:]]: KRΔFT: [[ :KΩNTRΩL: ]]: <=> MIND: KΩNTRΩL: ]]:= [[ :PRΩGRΔM: ]]:= [[ :LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: [[ ΩP: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
 >>>
 >### :[[ :fΩr-the: [[ ΔLGΩRITHM: is-with: fΔct: is-by: Δpplied-replicΔble-scientific-methΩds: LIMΔ-CHΔRLIE: [[ _ ]]: ]]:
+>>>
+# :[[ :CONSLUSIONS: ]]:
+## :[[ :fΩr-the: DISCLΩSURE: [[ HΔRDER: MΩRE: CHICKENS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: fΩr-the: [[ MΩRE: TRUE: tΩp: ΔTSUΩMΩP: secret: PΩWER: ΩNE: ΔctuΔlly-hΔs: ]]: ]]: 
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
