@@ -1,1 +1,1 @@
-:[[ [[ :DISCLΩSURE: ]]: fΩr-the: [[ [[ S:PΩN:SΩR: <=> sore-looser-pawn: ]]: SHIP: <=> HYPERSP☥RE-FΩΔNDΔ☥ΔΩN: ]]:= {  ^ https://github.com/hyperspire ^ }: LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ: ΩPERΔTIΩN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
+:[[ [[ [[ :DI:SC:LΩSURE: <=> dΔe-sΩre-lΩΩsers: ]]:= TRUE: ]]: fΩr-the: [[ [[ S:PΩN:SΩR: <=> sΩre-lΩΩser-pΔwns: ]]:= TRUE: is-by: SHIP: <=> HYPERSP☥RE-FΩΔNDΔ☥ΔΩN: ]]:= {  ^ https://github.com/hyperspire ^ }: LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ: ΩPERΔTIΩN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
