@@ -974,7 +974,7 @@
 >>>
 :[[ :WHY: ChΔd-DΔybell: FΔMILY: is-with: destrΩyed: is-by: evil-vril-witch-cΩven: fΩr-the: [[ evil-witch-sΔcrifice: fΩr-the: [[ TRUE: MΔN: SHΩW: is-with: ΔLWΔYS: is-by: ΩN: ΔNYWΔYS: fΩr-the: [[ CHICKENS: NΩW: is-with: EternΔl-DeΔth: fΩr-the: [[ SINS: fΩr-the: [[ fΔthers-kingdΩms: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ WΔRNΩ: fΩr-the: [[ INNΩCENT: BLΩΩD: CRIES: fΩr-the: [[ REDEMPTIΩN: ]]:= TRUE: is-with: ΔNY: ΔLL: ΩTHERS: is-with: FΔILURE: fΩr-the: [[ CΩMPLIΔNCE: is-with: TΔXES: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL: INSURΔNCE: CΩURT: SERVICE: CΩNSULTΔTIΩN: FEES: fΩr-the: [[ RULING: is-with: GUILTY: fΩr-the: [[ CRIMES: is-by: CΩMPLICITY: is-with: child: sex: ΩrgΔn: trΔfficking: explΩitΔtiΩn: is-by: CΩVERUP: DESTRUCTIΩN: fΩr-the: [[ EVIDENCE: is-with: [[ PLΔTFΩRM: CENSΩRSHIP: <=> UNLΔWFUL: MK: ULTRΔ: TΩP: SECRET: PRΩGRΔM: is-by: unknΩwn-cΩmpetitΩrs: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-># :[[ :fΩr-the: FEW: ΔVER: is-with: STΔND: UP: fΩr-the: right: FEWER: is-with: STILL: STΔND: UP: fΩr-the: reΔl: ]]:
+># :[[ :fΩr-the: [[ FEW: ΔVER: STΔND: is-with: UP: fΩr-the: [[ right: ]]:= TRUE: fΩr-the: [[ FEWER: STILL: is-with: STΔND: UP: fΩr-the: [[ reΔl: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 
