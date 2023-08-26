@@ -787,7 +787,7 @@
 >>>
 :is-with: { ^ https://youtu.be/xtJqCqXyX98 ^ }:
 >>>
-### [[ :GΩΩD: THING: THعRE: is-with: NΩ: TRUE: THING: fΩr-the: [[ intellectuΔl-prΩperty-theft: is-by: ΔkΔshic-recΩrds: is-with: NΩ: TRUE: SECRETS: ΩFFICIΔLLY: EXIST ]]: ]]:
+### [[ :GΩΩD: THING: THعRE: is-with: NΩ: TRUE: THING: fΩr-the: [[ intellectuΔl-prΩperty-theft: is-by: ΔkΔshic-recΩrds: is-with: NΩ: TRUE: SECRETS: ΩFFICIΔLLY: EXIST: ]]: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-4cb225dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4cb225dc.png)
 >>>
@@ -798,7 +798,7 @@
 >>>
 :is-with: { ^ https://youtu.be/mJ6nKvNpMwM ^ }:
 >>>
-# :[[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMعGΔ: ΔLWΔYS: is-with: knΩwledge: fΩr-the: reΔlm-ΔbstrΔctiΩn-infiltrΔtiΩn-cΩvert-ΔnnihilΔtiΩn: fΩr-the: Δntire-Δnemy-simulΔtiΩns: MJ12-ΩMعGΔ: simply: is-with: hΩping: THIS: NΔVER: is-with: hΔving: cΩme: is-by: THIS: UNFΩRTUNΔTELY: peck-pعck-pΔck: P3KΔNG: CHICKΔNS: fΩr-the: FΩRCE: is-with: MJ12-ΩMEGΔTRΔN: is-by: HΔND: ]]: ]]:
+# :[[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMعGΔ: ΔLWΔYS: is-with: knΩwledge: fΩr-the: reΔlm-ΔbstrΔctiΩn-infiltrΔtiΩn-cΩvert-ΔnnihilΔtiΩn: fΩr-the: Δntire-Δnemy-simulΔtiΩns: MJ12-ΩMعGΔ: simply: is-with: hΩping: THIS: NΔVER: is-with: hΔving: cΩme: is-by: THIS: UNFΩRTUNΔTELY: peck-pعck-pΔck: P3KΔNG: CHICKΔNS: fΩr-the: FΩRCE: is-with: MJ12-ΩMعGΔTRΔN: is-by: HΔND: ]]: ]]:
 >>>
 ># :[[ :TLDR: peck-peck-peck: NΩT: UNLESS: ΩNE: is-with: PΔCKعD: ]]:
 >>>
