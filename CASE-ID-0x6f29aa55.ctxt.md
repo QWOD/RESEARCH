@@ -1006,11 +1006,11 @@
 :is-with: { ^ https://youtu.be/mjsEzqxqatk ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-a72f0667.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a72f0667.png)
 >>>
-[[ :Ω: ]]:
+[[ :Youve purged physical & spiritual evil spirits & n turn is bringing u Justice..u were Chosen by TMH: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/RjKuOJC9570 ^ }:
 >>>
 ###
 
