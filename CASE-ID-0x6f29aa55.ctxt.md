@@ -1,7 +1,7 @@
 ### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: fΩr-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
 >>>
 ###
-[[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: for-the: [[ MOST: RECENT: DISCLOSURE: ALWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/fda08d3c1abc3989eb32e5fb9fa0218f375c3348 ^ }: ]]:= TRUE ]]:
+[[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MATRIX: SIMULATION: CODE: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >>>
 # :[[ :RESEARCH: FUNDING: ]]:
 >>>
