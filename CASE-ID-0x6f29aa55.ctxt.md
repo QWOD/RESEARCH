@@ -659,7 +659,7 @@
 >>>
 ###
 >>>
-[[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: MΔ: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must-be-returned: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
+[[ :fΩr-the: DISCLΩSURE: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: MΔ: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must: is-by: returned: ΔNY: ΔLL: ΩTHER: ΩriginΔl: lΔnd: cΩntrΔct: trustees: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES ]]: ]]:
 >>>
 :is-with: { ^
         <!DOCTYPE html>
