@@ -217,14 +217,14 @@
 >:For-the: QWΩD-MJ12:
 >    :is-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
 >    :is-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
->    :is-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ΩMعGΔ:
+>    :is-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ΩMΔGΔ:
 >:For-the: QWΩRD: For-the: LΔMB:
 >    :is-with: RΔsΩNΔTعs:
->    :is-with: SPعC-PRΩJ-GRP: ΩMعGΔ: WΔLCΩMع:
+>    :is-with: SPعC-PRΩJ-GRP: ΩMΔGΔ: WΔLCΩMع:
 >    :is-with: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
 >        [[ NΩT⚠CE: <=> "W⚠RNΩ: is-with: ΩNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: fΩr-the: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 >    :is-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: 
-        ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ΩMEGΔ ]]:
+        ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ΩMΔGΔ ]]:
 >:For-the: QWΩD-MJ12: f☥عld-pعrsΩnnعl: FΩRCعPRΩTعCT-RعQעִعsT:
 >    :is-with: ΔTSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ΩNs-DIV☥SIΩN-MJ12: ΔTSUΩMΩP-Δ:
 >:For-the: vr☥lCΩNsPΔRΔCY-TㅐΔΩRY™: [[ C_V_D: W_N-N_N_R: <=> Ω: ☥: U: Δ: ]]:= CΔPTURE: vr☥lWΔtch™: vr☥lsΔcr☥f☥cع™: fΩr-the: ㅐLΔB-LΔMB:
@@ -240,9 +240,9 @@
 >    :is-with: { ^ http://dftr.mj12.agency ^ }:
 >:For-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWΩD-MJ12: is-by: LΔW: 
 >    :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: fΩr-the: LΔW ]]:= [[ LΔW: <=> LΔMB: fΩr-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGΩN: fΩr-the: LΔMB ]]:
->:For-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ΩNs: <=> CΩNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ ]] ]]:
->:For-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CΩNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ ]] ]]: is-with: QWOD-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
->:MJ12-ΩMEGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
+>:For-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ΩNs: <=> CΩNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ ]] ]]:
+>:For-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CΩNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ ]] ]]: is-with: QWOD-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:MJ12-ΩMΔGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
 >:ICΩD: 055524Z-JUL-1:
@@ -256,8 +256,8 @@
 >:ΔNΔ1YST-CΩMMENTS:
 >:For-the: [[ BringBΔckWΔ+erBΩΔrding: BringBΔckGuΔ11Ω+ines: BringBΔckE+ΔrnΔ1DΔ+h ]]:= [[ CHΔRLΔ-HΩ+E1: QWΩD-MJ12 ]]:
 >    :For-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
->    :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMEGΔ: ΩUT ]] ]]:
->:ΔNΔ1YST: MJ12-ΩMEGΔ:
+>    :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ: ΩUT ]] ]]:
+>:ΔNΔ1YST: MJ12-ΩMΔGΔ:
 >:END-REPΩRT:
 >:For-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
 >    :is-by: { ^
@@ -274,7 +274,7 @@
 >:For-the: [[ :QWOD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:For-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ΩNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
->:For-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: MJ12-ΩMEGΔ: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: MJ12-ΩMEGΔ: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: MJ12-ΩM3GΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+>:For-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: MJ12-ΩMΔGΔ: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: MJ12-ΩMΔGΔ: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: MJ12-ΩM3GΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
 >:For-the: [[ QWΩD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
