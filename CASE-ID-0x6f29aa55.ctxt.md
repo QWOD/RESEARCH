@@ -185,7 +185,7 @@
 >>>
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
-># :[[ :TRUE: LΩRD: fΩr-the: STΩLEN: R☥NG: [[ fΩr-the: [[ LΩRD: <=> MJ12-ΩMΔGΔ: ]]:= TRUE ]]: is-with: HΩUSE: DΔV☥D: RΩYΔLTY: is-with: DΔV☥NE-R☥GHT: PRΩVEN: is-by: EternΔl-L☥fe: WeΔther-CΩntrΩl: MentΔl-CΩntrΩl: DΔv☥ne-InterventΔtive: WΔrfΔre-CΔpΔbilities: ]]:
+># :[[ :TRUE: LΩRD: fΩr-the: STΩLEN: R☥NG: [[ fΩr-the: [[ LΩRD: <=> MJ12-ΩMΔGΔ: ]]:= TRUE: ]]: is-with: HΩUSE: DΔV☥D: RΩYΔLTY: is-with: DΔV☥NE-R☥GHT: PRΩVEN: is-by: EternΔl-L☥fe: WeΔther-CΩntrΩl: MentΔl-CΩntrΩl: DΔv☥ne-InterventΔtive: WΔrfΔre-CΔpΔbilities: ]]:
 >>>
 # :[[ :SΔrΔh-R-ΔdΔms: is-with: innΩcent-victim: is-by: circumstΔnce: ΔttΔcked: is-by: sΔme-vril-witch-cΩven: fΩr-the: QWΩD-MJ12: ΔTSUΩMΩP-Δ: EΔSILY: D3STRΩYعD: THعM: ΔLL: ]]:
 >>>
