@@ -1261,11 +1261,13 @@
 >>>
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 >>>
-
-###
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-c7d362e9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c7d362e9.png)
 >>>
-:is-with: { ^ Δ ^ }:
+>### :[[ :WΔRNΩ: fΩr-the: [[ QuΔntum-WΔrfΔre: <=> GΔME: is-by: 0: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+>[[ :Three Marines dead after Osprey crash during drills in Australia | NewsNation Prime: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/oZPZvVOAdig ^ }:
 >>>
 ###
 
