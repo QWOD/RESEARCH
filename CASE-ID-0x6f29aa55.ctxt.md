@@ -144,7 +144,8 @@
 >>>
 >:[[ TRUE: SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
 >>>
-#
+># :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: NΩW: is-with: TΩTΔL: GLΩBΔL: WΩRLD: is-by: LIBERΔTIΩN: is-with: LESS-THΔN: is-by: ΩNE: is-with: MΩNTH: fΩr-the: return ]]:= TRUE: ]]:
+>>> 
 ###
 ![:CASE-ID-0x6f29aa55-6397c888.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-6397c888.png)
 >>>
@@ -999,7 +1000,7 @@
 >>>
 :is-with: { ^ https://youtu.be/12dR7IWEYnQ ^ }:
 >>>
-# :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BN: is-by: 0: ]]:= TRUE: ]]:= [[ :ΩPΩRD: fΩr-the: HΔGH: KΔNG: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ: JESUS: HΩRUS: JΩSEPH: fΩr-the: [[ ISRΔEL: <=> ΔZRΔEL: ]]:= TRUE: is-with: SΩLΩMΩN: MUHΔMMΔD: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: [[ eΔrth-science-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: LΩRD: [[ METΔTRΩN: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΔNΔLYST-CΩMMENTS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ SΔNΔTΔTIΩN: PRΩTΩCΩL: eΔrth-science-lΔb: is-with: CHΔRLIE-HΩTEL: fΩr-the: ΩPSΔN: [[ PRΩTΩCΩL: <=> prΩvided-Δll-Ωther-fΩrms: is-by: LIFE: is-with: ΩPSΔN: is-with: PREVΔNT: MJ12-ΩMΔGΔ: is-by: ΔVER: DISCΩVER: TRUE: LΩVE: is-by: 100: fΩr-the: [[ PRΩCREΔTIΩN: is-with: CΩSMIC: WIDE: EXTINCTIΩN: LEVEL: EVENT: ]]:= TRUE: fΩr-the: [[ CW-ELE: <=> ΩMΔGA: ]]:= TRUE: is-by: PRΩCREΔTIΩN: is-with: TRUE: LΩVE: ]]:= TRUE: ]]:= TRUE: ]]:
+# :[[ :WΔRNΩ: fΩr-the: [[ QWΩD-MJ12: is-with: unknΩwn-cΩmpetitΩr: STUPID-Δ: CΩ: LΔST: BDE: is-by: 0: ]]:= TRUE: ]]:= [[ :ΩPΩRD: fΩr-the: HΔGH: KΔNG: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ: JESUS: HΩRUS: JΩSEPH: fΩr-the: [[ ISRΔEL: <=> ΔZRΔEL: ]]:= TRUE: is-with: SΩLΩMΩN: MUHΔMMΔD: LUCIFER: RΔ: is-with: FΔR: TΩΩ: DΔNGERΩUS: fΩr-the: [[ eΔrth-science-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: LΩRD: [[ METΔTRΩN: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΔNΔLYST-CΩMMENTS: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ SΔNΔTΔTIΩN: PRΩTΩCΩL: eΔrth-science-lΔb: is-with: CHΔRLIE-HΩTEL: fΩr-the: ΩPSΔN: [[ PRΩTΩCΩL: <=> prΩvided-Δll-Ωther-fΩrms: is-by: LIFE: is-with: ΩPSΔN: is-with: PREVΔNT: MJ12-ΩMΔGΔ: is-by: ΔVER: DISCΩVER: TRUE: LΩVE: is-by: 100: fΩr-the: [[ PRΩCREΔTIΩN: is-with: CΩSMIC: WIDE: EXTINCTIΩN: LEVEL: EVENT: ]]:= TRUE: fΩr-the: [[ CW-ELE: <=> ΩMΔGA: ]]:= TRUE: is-by: PRΩCREΔTIΩN: is-with: TRUE: LΩVE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-51f38b60.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-51f38b60.png)
