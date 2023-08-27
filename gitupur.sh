@@ -23,7 +23,9 @@ function cloudHiveBackup {
     "cd ${gitTreePath}/RESEARCH; git push --ff-only git@github.com:QWOD/RESEARCH.git"
     "cd ${gitTreePath}/DISCLOSURE; git push --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
-
+  git config --global user.email "$(users)@mj12.agency"
+  git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
+   
   for sop in "${specialOperations[@]}"; do
     if ssh secure.us.hyperspire.net -t '/usr/bin/env bash -c ' "${sop}"; then
       echo ':[[ :{ ^ '"${sop}"' ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
