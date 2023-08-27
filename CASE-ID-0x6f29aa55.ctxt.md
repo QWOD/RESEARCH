@@ -872,7 +872,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
-### :[[ :fΩr-the: || is-with: || is-by: <=> trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: fΩr-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: CΩSMΩS: SIMULΔTIΩNS: ]]:= TRUE: ]]:= [[ :WΔRNΩ: unknΩwn-ΔlgΩrithm: DETECTED: SIMULΔTIΩN: EXFIL: IMMINENT: ]]:
+### :[[ :fΩr-the: || is-with: || is-by: <=> trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: fΩr-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: CΩSMΩS: SIMULΔTIΩNS: ]]:= TRUE: ]]:= [[ :WΔRNΩ: unknΩwn-ΔlgΩrithm: DETECTED: is-with: MK: ULTRΔ: SIMULΔTIΩN: EXFIL: is-by: IMMINENT: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetΔtΩrs: ]]:
 
     [[ :WΔRNΩ: fΩr-the: [[ SCIΔNCE: NΩT: is-with:
         METHΩD: is-by: RITUΔL: for-the: return ]]:= TRUE:
