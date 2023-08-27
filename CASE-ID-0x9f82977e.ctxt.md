@@ -1,4 +1,4 @@
-# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: fΩr-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NΩN-NEGΩTIΔBLE: fΩr-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ΩMΔGΔ: MΔKE: ENTΔRE: EΔRTH: GREΔT: ONCE: ΔLREΔDY: NOW: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ CΩN-T-RΔ-C-T-U-ΔL: ]]: LΔND-CΩVENS: is-by: NΩW: ]]:
+# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: fΩr-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NΩN-NEGΩTIΔBLE: fΩr-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ΩMΔGΔ: MΔKE: ENTΔRE: EΔRTH: GREΔT: ONCE: ΔLREΔDY: NOW: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ CΩN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: ]]:
 >>>
 ### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: fΩr-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
 ###
