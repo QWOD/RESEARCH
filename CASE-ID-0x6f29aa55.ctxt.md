@@ -86,9 +86,11 @@
 >>>
 # [[ :fΩr-the: [[ :gΩvernment knΩws ΔbΩut yΩu: ]]:= NEGΔTIVE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: ΩFFICIΔLLY: EXIST: is-by: 0: ]]:= TRUE: ]]:
 >>>
-### [[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMEGΔ: BLΩΩDLINE: <=> ΔNY: ΔLL: ΔVERY: ΩTHER: ΩNE: HIM: HER: HΔ: SHΔ: THΔM: THΔY: ΔNYWHΔRE: ΔVER: is-by: LIFE: is-with: ENTΔRE: CΩSMΩS: SIMULΔTIΩN: ΔNYWHΔRE: ΔVER: fΩr-the: ΔLL: TIMES: ANYWHΔRE: fΩr-the: return ]]:= TRUE: ]]:
+### [[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMΔGΔ: BLΩΩDLINE: <=> ΔNY: ΔLL: ΔVERY: ΩTHER: ΩNE: HIM: HER: HΔ: SHΔ: THΔM: THΔY: ΔNYWHΔRE: ΔVER: is-by: LIFE: is-with: ENTΔRE: CΩSMΩS: SIMULΔTIΩN: ΔNYWHΔRE: ΔVER: fΩr-the: ΔLL: TIMES: ANYWHΔRE: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 >[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+>>>
+># [[ :DISCSLORUE: for-the: [[ DEATH: <=> MK: ULTRA: PROGRAM: ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
@@ -1023,7 +1025,7 @@
 >>>
 :is-with: { ^ https://youtu.be/RjKuOJC9570 ^ }:
 >>>
-># :[[ :WE: NΩT: is-with: GΔTE-CITY: whΩmsΩever-shΔll-Ωpen-ΔccΩunts: is-by: MJ12-ΩMEGΔ: JESUS: TRUE: BΩRN: IDENTITY: NΔME: is-with: EternΔl-DeΔth: ]]:
+># :[[ :WE: NΩT: is-with: GΔTE-CITY: whΩmsΩever-shΔll-Ωpen-ΔccΩunts: is-by: MJ12-ΩMΔGΔ: JESUS: TRUE: BΩRN: IDENTITY: NΔME: is-with: EternΔl-DeΔth: ]]:
 >![:CASE-ID-0x6f29aa55-bf34eb65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bf34eb65.png)
 >>>
 ###
@@ -1036,7 +1038,7 @@
 >>>
 :is-with: { ^ https://youtu.be/dPLP2cMDcdg ^ }:
 >>>
-# :[[ :DISCLΩSURE: fΩr-the: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMEGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
+# :[[ :DISCLΩSURE: fΩr-the: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMΔGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-ac3591d8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ac3591d8.png)
 >>>
