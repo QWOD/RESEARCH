@@ -86,7 +86,7 @@
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
->:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _: CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
+>:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _ : CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-b2092996.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b2092996.png)
@@ -171,11 +171,11 @@
 ###
 ![:CASE-ID-0x6f29aa55-fe267d91.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fe267d91.png)
 >>>
-[[ :Psychic Readings by Aralamb Channeled by Melissa Gates Perry, TSP : [[ _: 776 ]]: ]]:
+[[ :Psychic Readings by Aralamb Channeled by Melissa Gates Perry, TSP : [[ _ : 776 ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/x2RtA2ScnvI ^ }:
 >>>
-[[ :More Max Spiers Intel, Spiritual Warfare, Archons - Sarah R Adams, TSP : [[ _: 777 ]]: ]]:
+[[ :More Max Spiers Intel, Spiritual Warfare, Archons - Sarah R Adams, TSP : [[ _ : 777 ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
@@ -364,7 +364,7 @@
 ###
 >![:CASE-ID-0x6f29aa55-d77a109c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d77a109c.png)
 >>>
-># [[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _: tarot: _: karmicjustice ]]: ]]:= [[ :THEY: <=> LOCKHEED-MARTIN: ]]:
+># [[ :THEY EXPECTED GOOD KARMA AFTER TRYING TO MANIFEST ABUNDANCE OFF YOUR DOWNFALL : [[ _ : tarot: _ : karmicjustice ]]: ]]:= [[ :THEY: <=> LOCKHEED-MARTIN: ]]:
 >>>
 >![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-61dd67ff.png)
 >>>
@@ -414,7 +414,7 @@
 ###
 >![:CASE-ID-0x6f29aa55-35e83432.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-35e83432.png)
 >>>
->[[ :YOUR STRONGER THAN YOU THINK🪐 DO NOT BE DECEIVED🫂PUSH THROUGH THE PUSH BACK💪 : [[ _: tarot: _: oracle ]]: ]]:
+>[[ :YOUR STRONGER THAN YOU THINK🪐 DO NOT BE DECEIVED🫂PUSH THROUGH THE PUSH BACK💪 : [[ _ : tarot: _ : oracle ]]: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/Fk4X2desXAk ^ }:
 >>>
@@ -478,7 +478,7 @@
 >>>
 # :[[ :fΩr-the: [[ DISCLΩSURE: MJ12-ΩMΔGΔ: ΔBUSE: is-by: MK: ULTRΔ: PRΩGRΔM: is-by: unknΩwn-cΩmpetitΩrs: is-with: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMΔGΔ: QuΔntum-TΔcticΔl-Time-Unit: is-with: DEΔTH: is-with: befΩre: Δge: yeΔrs: is-by: 1: fΩr-the: MJ12-JESUS: QuΔntum-TΔcticΔl-Time-Unit: WΔLK-IN: Δssuming-tΔcticΔl-ΩppΩrtunity: fΩr-the: cΩvert-infiltrΔtiΩn: is-with: EΔRTH: is-by: MJ12-JESUS: is-with: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: [[ LΩRD: is-with: [[ MΔ:TΔ:T:RΔ:N ]]: fΩr-the: RING: is-with: MJ12-ΩMΔGΔTRΔN: is-by: 100: ]]:= TRUE: ]]:
 >>>
-:[[ fΩr-the: DISCLΩSURE: [[ MK: ULTRΔ: PRΩGRΔM: is-with: [[ M:_Δ_:K:_e_ ]]: MJ12-ΩMΔGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: [[ DIVISIΩN: <=> PΩLITICS: ]]:= TRUE: is-with: [[ MEDIΔ: <=> ILLUSIΩN-SPELLS: ]]:= TRUE: fΩr-the: [[ CΩNFUSIΩN-SPELLS: { ^ https://youtu.be/SBL0Cbv2ooU ^ }: ]]:= TRUE: is-by: DE-FU-SED: ]]:= TRUE: ]]: ]]:
+:[[ fΩr-the: DISCLΩSURE: [[ MK: ULTRΔ: PRΩGRΔM: is-with: [[ M:_Δ_ :K:_e_ ]]: MJ12-ΩMΔGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: [[ DIVISIΩN: <=> PΩLITICS: ]]:= TRUE: is-with: [[ MEDIΔ: <=> ILLUSIΩN-SPELLS: ]]:= TRUE: fΩr-the: [[ CΩNFUSIΩN-SPELLS: { ^ https://youtu.be/SBL0Cbv2ooU ^ }: ]]:= TRUE: is-by: DE-FU-SED: ]]:= TRUE: ]]: ]]:
 >>>
 # :[[ :fΩr-the: DISCLΩSURE: [[ ΔNY: ΔLL: ΩTHER: [[ ENTITIES: <=> CHIKΔNS: ]]: is-with: PΔRTICIPΔTED: is-with: gΔngstΔlking: gΔslighting: cΩvert-unlΔwful-surveillΔnce: censΩrship: persΩnΔge: cΩnversiΩn: Mind-KΩntrΩl: mentΔl: physicΔl: emΩtiΩnΔl: Δbuse: fΩr-the: [[ HLΔB-LΔMB: MJ12-ΩMΔGΔ: ΔNY: ΔLL: ΩTHER: SPG: ΩMΔGΔ: [[ DE:FEN:D:ΔNTS: ]]: is-by: FΔLSE: CLΔIMS: fΩr-the: MJ12-ΩMΔGΔ: EXIST: is-by: 0: ]]: FΩr-the: RULING: is-with: EternΔl-DeΔth: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -528,7 +528,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-11db8316.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-11db8316.png)
 >>>
-[[ :YOUR ACCOMPLISHMENTS ARE CAUSING JEALOUSY🧿THE ENEMIES ARE BEING REVEALED IN YOUR DREAMS : [[ _: [[ chose:nones ]]: ]]: ]]:
+[[ :YOUR ACCOMPLISHMENTS ARE CAUSING JEALOUSY🧿THE ENEMIES ARE BEING REVEALED IN YOUR DREAMS : [[ _ : [[ chose:nones ]]: ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/hXKhTOsKVrA ^ }:
 >>>
@@ -568,7 +568,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-e40f46d4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e40f46d4.png)
 >>>
-[[ :YOUR WHOLE BLOODLINE IS AWAKENING ! YALL ARE ACTIVATING ANCIENT POWERS🪄🧞‍♀️🧞🧞‍♂️: [[ _: god: _: ancestors ]]: ]]:
+[[ :YOUR WHOLE BLOODLINE IS AWAKENING ! YALL ARE ACTIVATING ANCIENT POWERS🪄🧞‍♀️🧞🧞‍♂️: [[ _ : god: _ : ancestors ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/O52JH-Lv_qo ^ }:
 >>>
@@ -582,7 +582,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-033d5056.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-033d5056.png)
 >>>
-[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _: court: _: betrayal: _: exposed: _: money ]]: ]]:= [[ :QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: WITNESSES: TESTIMΩNY: RULES: is-with: fΔvΩr: fΩr-the: [[ DE:FEN:D:ΔNT: ]]: is-with: ΔNY: ΔLL: ΩTHER: [[ DE:FEN:D:ΔNT: ]]: is-by: SPG: ΩMΔGΔ: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[ :ENTIRE-BLΩΩDLINE: is-by: LIBERΔTED: is-with: science-lΔb-vessel: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: MJ12-GΔIΔ: GΩDDESS-LEVEL is-by: 10: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ ΔRC: TEMPLΔR-SΩUL: EXFIL: FΔILSΔFE-PRΩTΩCΩL: SIERRΔ-FΩXTRΩT: ECHELΩN-MIKE: QWΩD-MJ12: MJ12-ΩMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:
+[[ :🫣KARMIC ILLEGALLY TAMPERED WITH YOUR DOCUMENTS‼️ MAJOR BACKFIRE 🔥: [[ _ : court: _ : betrayal: _ : exposed: _ : money ]]: ]]:= [[ :QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: WITNESSES: TESTIMΩNY: RULES: is-with: fΔvΩr: fΩr-the: [[ DE:FEN:D:ΔNT: ]]: is-with: ΔNY: ΔLL: ΩTHER: [[ DE:FEN:D:ΔNT: ]]: is-by: SPG: ΩMΔGΔ: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:= [[ :ENTIRE-BLΩΩDLINE: is-by: LIBERΔTED: is-with: science-lΔb-vessel: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: MJ12-GΔIΔ: GΩDDESS-LEVEL is-by: 10: fΩr-the: ΩPERΔTIΩN: DΔRKTIDE: [[ ΔRC: TEMPLΔR-SΩUL: EXFIL: FΔILSΔFE-PRΩTΩCΩL: SIERRΔ-FΩXTRΩT: ECHELΩN-MIKE: QWΩD-MJ12: MJ12-ΩMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:
 >>>
 :is-with: { ^ https://youtu.be/CEur2_Q7-x0 ^ }:
 >>>
@@ -789,7 +789,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-14635f2d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-14635f2d.png)
 >>>
-[[ :THINKING THEY HAD THE POWER TO SEND DEATH TOWARDS YOU BUT THEY SENT IT TO THEMSELVES 💀🫠⌛️: [[ _: tarot ]]: ]]:
+[[ :THINKING THEY HAD THE POWER TO SEND DEATH TOWARDS YOU BUT THEY SENT IT TO THEMSELVES 💀🫠⌛️: [[ _ : tarot ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/s-yiE_Vc7Bs ^ }:
 >>>
@@ -866,7 +866,7 @@
 >>>
 # [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-# [[ :fΩr-the: DISCLΩSURE: [[ ΔNCIENT: Tribel: MEDICINE: <=> Δdding-micrΩdΩses: fΩr-the: [[ SΔlmΔ-HΔyek: <=> SΔlmiΔk: SΔLT: PETER: GUN: PΩWDER: is-with: crΔckle: [[ CΩCΔ_N_: <=> I: E: ]]: is-by: pΩp: fΩr-the: [[ ΔTSUΩMΩP: DNΔ: ΔctivΔtiΩn-prΩcess: ]]: NΩT: fΩr-the: [[ little-tΩddler-CHIKΔN-minded: ΩNES: ]]: fΩr-the: [[ RE-CREΔTIΩN-ΔL: DRUG: ΔBUSE: fΩr-the: [[ CHIKΔNS: CREΔTE: TΩΩ: MΔNY: CHIKΔNS: ΔLREΔDY: is-with: ΔBUSIVE: FEΔR-DRIVEN: PLEΔSURE-SNEΔKING: IGNΩRΔNT: TΩDDLER: MINDED: SCUMS: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: is-with: HΔTRED: fΩr-the: [[ HUMΔN: CHIKΔNS: is-by: LIFETIMES: fΩr-the: [[ RITUΔL: SΔCRIFICE: ΔBUSE: CΩVERT: STΔLKING: SURVEILLΔNCE: TΩRTURE: STEΔL: EΔT: ΔNY: ΔLL: ΩTHER: MJ12-ΩMΔGΔ: HLΔB-LΔMB: BΔBIES: ESPECIΔLLY: SINCE: is-by: WHENΔVER: fΩr-the: [[ ΔLL: MJ12-ΩMΔGΔ: ΔVER: WΔNTED: is-with: FIND: [[ ΔCTUAL: LΩVE: ]]:= TRUE: ]]: <=> WΔTCH: CRΔFT: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+# [[ :fΩr-the: DISCLΩSURE: [[ ΔNCIENT: Tribel: MEDICINE: <=> Δdding-micrΩdΩses: fΩr-the: [[ SΔlmΔ-HΔyek: <=> SΔlmiΔk: SΔLT: PETER: GUN: PΩWDER: is-with: crΔckle: [[ CΩCΔ_N_ : <=> I: E: ]]: is-by: pΩp: fΩr-the: [[ ΔTSUΩMΩP: DNΔ: ΔctivΔtiΩn-prΩcess: ]]: NΩT: fΩr-the: [[ little-tΩddler-CHIKΔN-minded: ΩNES: ]]: fΩr-the: [[ RE-CREΔTIΩN-ΔL: DRUG: ΔBUSE: fΩr-the: [[ CHIKΔNS: CREΔTE: TΩΩ: MΔNY: CHIKΔNS: ΔLREΔDY: is-with: ΔBUSIVE: FEΔR-DRIVEN: PLEΔSURE-SNEΔKING: IGNΩRΔNT: TΩDDLER: MINDED: SCUMS: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: is-with: HΔTRED: fΩr-the: [[ HUMΔN: CHIKΔNS: is-by: LIFETIMES: fΩr-the: [[ RITUΔL: SΔCRIFICE: ΔBUSE: CΩVERT: STΔLKING: SURVEILLΔNCE: TΩRTURE: STEΔL: EΔT: ΔNY: ΔLL: ΩTHER: MJ12-ΩMΔGΔ: HLΔB-LΔMB: BΔBIES: ESPECIΔLLY: SINCE: is-by: WHENΔVER: fΩr-the: [[ ΔLL: MJ12-ΩMΔGΔ: ΔVER: WΔNTED: is-with: FIND: [[ ΔCTUAL: LΩVE: ]]:= TRUE: ]]: <=> WΔTCH: CRΔFT: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
@@ -990,7 +990,7 @@
 >###
 >![:CASE-ID-0x6f29aa55-666e338c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-666e338c.png)
 >>>
->[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _: 780 ]]: ]]:
+>[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _ : 780 ]]: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
@@ -1199,7 +1199,7 @@
 :is-with: { ^ Δ ^ }:
 >>>
 ###
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
+### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
 >>>
 ###
 >>>
