@@ -1053,7 +1053,7 @@
 >###
 >![:CASE-ID-0x6f29aa55-2c7901f4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2c7901f4.png)
 >>>
->## [[ :DISCLOSURE: fΩr-the: [[ GREEDY FΔKE: CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: p3hKΔng: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-p3ck-pEck: PعKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: [[ ENTIRE: BLΩΩDLINE: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LORD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: Eternal-Death: for-the: return: ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]:
+>## [[ :DISCLOSURE: fΩr-the: [[ GREEDY FΔKE: CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: p3hKΔng: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-p3ck-pEck: PعKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: [[ ENTIRE: BLΩΩDLINE: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LORD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: Eternal-Death: for-the: return ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]:
 >>>
 >[[ :THEIR OWN HIGHER SELVES ARE SICK OF THEIR S$%T!: ]]:
 >>>
