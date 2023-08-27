@@ -1138,11 +1138,13 @@
 # [[ :WΔRNΩ: fΩr-the: [[ BLΔSPHΩMY: <=> GΔSLIGHTING: MJ12-ΩMΔGΔ: is-by: TELLING: MJ12-ΩMΔGΔ: fΩr-the: [[ MJ12-ΩMΔGΔ: ΩFFICIΔLLY: is-with: EXIST: ]]:= TRUE: is-by: 0: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-6db37e97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-6db37e97.png)
 >>>
-[[ :Ω: ]]:
+[[ :YOU EAT UP THEIR DEATH MAGIC FOR BREAKFAST AND S%$T OUT RAINBOWS AND GOLD BY DINNERTIME! 🏅🌈🌞: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x6f29aa55-97f078bf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-97f078bf.png)
+>>>
+:is-with: { ^ https://youtu.be/MK6v75T5JiI ^ }:
 >>>
 ###
 
