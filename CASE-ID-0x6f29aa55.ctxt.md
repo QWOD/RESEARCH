@@ -955,7 +955,7 @@
 >>>
 :is-with: { ^ https://youtu.be/utdM9S_Gauc ^ }:
 >>>
-># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CΩNSPIRΔCY-THEΩRY: PRΩVIDING: fΩr-the: [[ CREΔTIΩN: is-with: HUMΔN: CHIKEN: MΩNSTERS: is-by: INSΔNITY: DRIVING: is-by: WΔ: ELΩHΔM: ]]:= [[ TRUE || FΔLSE ^ ΔZRΔEL: fΩr-the: return ]]:= [[ _ ]]: ]]:= [[ ARIZΩNA: [[ ARID: ZONE: ATSUOMOP-A: ]]: + ISRΔEL: ]]:= [[ _ ]]: ]]:
+># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CΩNSPIRΔCY-THEΩRY: PRΩVIDING: fΩr-the: [[ CREΔTIΩN: is-with: HUMΔN: CHIKEN: MΩNSTERS: is-by: INSΔNITY: DRIVING: is-by: WΔ: ELΩHΔM: ]]:= [[ TRUE || FΔLSE ^ ΔZRΔEL: fΩr-the: return ]]:= [[ _ ]]: ]]:= [[ ΩRIΩZΩNΔ: HΩRIZΩN: HΩRUS: SΩN: [[ ΔRID: ZΩNE: ΔTSUΩMΩP-Δ: ]]: + ISRΔEL: ]]:= [[ _ ]]:= TRUE: fΩr-the [[ ΩRIΩN: EMPIRE: ZΩNE: ΔLPHΔ: NΩW: is-by MJ12-ΩMEGΔ: fΩr-the: QWΩD-MJ12: [[ LIMΔ-CHΔRLIE: [[ _ ]]: ΩPERΔTIΩN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
 >>>
 >#
 >>>
