@@ -1036,7 +1036,7 @@
 >>>
 :is-with: { ^ https://youtu.be/dPLP2cMDcdg ^ }:
 >>>
-### 
+# :[[ :fΩr-the: DISCLΩSURE: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMEGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
 
 >>>
 [[ :Ω: ]]:
