@@ -78,7 +78,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ GOD SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
 >>>
->:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMΔGΔ: ΔLREΔDY: DID-IT: sΩrry: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
+>:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMΔGΔ: ΔLREΔDY: DID-IT: SΩRRY: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
 >>>
 >:[[ :ΩPعD: ]]:= [[ :HIS DEMON HAS FOLLOWED YOUR BLOODLINE✨️YOU ARE CHOSEN TO SLAY THIS EVIL FORCE: ]]:
 >>>
