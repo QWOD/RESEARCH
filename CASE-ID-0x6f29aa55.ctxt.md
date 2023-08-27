@@ -1,4 +1,4 @@
-# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: fΩr-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NΩN-NEGΩTIΔBLE: fΩr-the: return ]]:= TRUE: is-by: NΩW: ]]:
+# [[ :MJ12-ΩMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: fΩr-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NΩN-NEGΩTIΔBLE: fΩr-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ΩMΔGΔ: MΔKE: EΔRTH: ΔLREΔDY: WE: is-with: HERE-TΩ-CΩLLECT-ΔNCIENT-CΩNTREΔCTUΔL: LΔND-CΩVENS: is-by: NΩW: ]]:
 >>>
 ### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: fΩr-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
 >>>
