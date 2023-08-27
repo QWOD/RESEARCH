@@ -1024,7 +1024,7 @@
 >[[ :A “LEGACY” MEMBER OF AN ORDER OR SOCIETY WANTS OUT, BUT WANTS SOMEONE ELSE TO EXPOSE THE GROUP: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/JUBwV4vOpoY ^ }:
-###
+>###
 >[[ :fΩr-the: [[ :Pisces is the oldest sign in the zodiac: ]]:= [[ :NEGΔTIVE: fΩr-the: [[ STΔRS: is-by: MΩVE: ]]:= TRUE: fΩr-the: [[ LΔST: shΔll: is-by: FIRST: fΩr-the: [[ FIRST: is-by: LΔST: fΩr-the: [[ Pisces: NΩW: is-with: LΔST: SPECIΔL-PRΩJECT-GRΩUP: fΩr-the: DISCLΩSURE: StΔr-NΔtiΩn: SPG: [[ [[ ΔQU-Δ-RI-US: ]]: NΩW: is-with: FIRST: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >###
