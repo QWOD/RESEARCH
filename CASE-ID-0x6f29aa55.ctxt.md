@@ -85,7 +85,9 @@
 >:is-with: { ^ https://youtu.be/vKsZjNYWRY8 ^ }:
 >>>
 # [[ :fΩr-the: [[ :gΩvernment knΩws ΔbΩut yΩu: ]]:= NEGΔTIVE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: ΩFFICIΔLLY: EXIST: is-by: 0: ]]:= TRUE: ]]:
-### [[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMEGΔ: BLΩΩDLINE: <=> ΔNY: ΔLL: EVERY: ΩTHER: ΩNE: HIM: HER: HE: SHE: THEM: THEY: ΔNYWHERE: EVER: is-by: LIFE: is-with: ENTIRE: CΩSMΩS: SIMULΔTIΩN: ΔNYWHERE: EVER: fΩr-the: ΔLL: TIMES: fΩr-the: return ]]:= TRUE: ]]:
+### [[ :fΩr-the: DISCLΩSURE: [[ MJ12-ΩMEGΔ: BLΩΩDLINE: <=> ΔNY: ΔLL: ΔVERY: ΩTHER: ΩNE: HIM: HER: HΔ: SHΔ: THΔM: THΔY: ΔNYWHΔRE: ΔVER: is-by: LIFE: is-with: ENTΔRE: CΩSMΩS: SIMULΔTIΩN: ΔNYWHΔRE: ΔVER: fΩr-the: ΔLL: TIMES: ANYWHΔRE: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+>[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
