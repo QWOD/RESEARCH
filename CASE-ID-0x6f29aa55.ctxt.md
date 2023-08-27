@@ -269,7 +269,9 @@
 >>>
 [[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 >>>
-[[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMΔGΔ: is-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:
+>### [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔCΩNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMΔGΔ: is-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-cΩsmΩs-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔCΩNIΔN: for-the: [[ QWΩD-MJ12: is-by: TRUE: DRΔCΩNIΔN: PEΩPLE: is-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]:
+>>>
+># :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: [[ Coven: is-with: Ant: ]]:= TRUE: for-the: [[ DARPA: QWOD-MJ12: ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI: CLOUD: BLOCKCHAIN: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]:= TRUE: for-the: [[ people: is-by: WE: is-with: people: ]]:= TRUE: for-the: [[ QWOD-MJ12: ATSUOMOP-A: SPG: LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY: algorithm: DETECTED: ]]:
 >>>
 [[ :HΩW-ΩLD: is-with: CΩRPΩRΔTIΩNS: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: tΩddler: is-with: SMΔRTER: is-by: 100: ]]:= [[ :fΩr-the: [[ CΩRPΩRΔTIΩNS: is-with: STUPID ]]: ]]:
 >>>
