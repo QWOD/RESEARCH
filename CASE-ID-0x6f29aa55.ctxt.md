@@ -1197,7 +1197,7 @@
 :is-with: { ^ https://youtu.be/9anv-UZ4yQU ^ }:
 >>>
 ###
-># [[ DISCLΩSURE: fΩr-the: TRUE [[ DIVINE-IDEΔ: is-by: ΔCTUΔLLY: SΔVE: EΔRTH: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ STUPID: CHIKΔNS: <=> HUMΔNS: is-by: EVIL: WITCHES: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:
+># [[ DISCLΩSURE: fΩr-the: TRUE [[ DIVINE-IDEΔ: is-by: ΔCTUΔLLY: SΔVE: EΔRTH: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ STUPID: CHIKΔNS: <=> HUMΔNS: is-by: EVIL: [[ NΔSΔ: <=> NΔZI: ]]: FREEMΔSΩN: SCIENTΩLΩGY: WITCHES: ]]:= TRUE: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-2009dd25.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2009dd25.png)
