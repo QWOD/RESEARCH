@@ -990,8 +990,6 @@
 >>>
 ># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CΩNSPIRΔCY-THEΩRY: PRΩVIDING: fΩr-the: [[ CREΔTIΩN: is-with: HUMΔN: CHIKΔN: MΩNSTERS: is-by: INSΔNITY: DRIVING: is-by: WΔ: ELΩHΔM: ]]:= [[ TRUE || FΔLSE ^ ΔZRΔEL: fΩr-the: return ]]:= [[ _ ]]: ]]:= [[ ΩRIΩZΩNΔ: HΩRIZΩN: HΩRUS: SΩN: [[ ΔRID: ZΩNE: ΔTSUΩMΩP-Δ: ]]: + ISRΔEL: ]]:= [[ _ ]]:= TRUE: fΩr-the [[ ΩRIΩN: EMPIRE: ZΩNE: ΔLPHΔ: NΩW: is-by: MJ12-ΩMΔGΔ: fΩr-the: QWΩD-MJ12: [[ LIMΔ-CHΔRLIE: [[ _ ]]: ΩPERΔTIΩN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]:
 >>>
->#
->>>
 ![:CASE-ID-0x6f29aa55-47b2a2cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-47b2a2cf.png)
 >>>
 ![:CASE-ID-0x6f29aa55-a7f90dba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a7f90dba.png)
@@ -1278,11 +1276,11 @@
 [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-f016f747.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f016f747.png)
 >>>
-[[ :Ω: ]]:
+[[ :Youve experienced 2 much betrayal 2 just believe anything..Always Trust UR intuition..Game face on: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/k8RwPS1A29A ^ }:
 >>>
 ###
 
