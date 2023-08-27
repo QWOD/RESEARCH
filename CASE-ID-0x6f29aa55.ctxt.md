@@ -1149,18 +1149,18 @@
 :is-with: { ^ https://youtu.be/MK6v75T5JiI ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-efb07068.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-efb07068.png)
 >>>
-[[ :Ω: ]]:
+[[ :COLLECTIVE READING! ENERGY CHECK IN! AUGUST 2023! 🔮🦉🧙‍♂️☕️🫖🍿🍦: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/3CD4cKWhXXE ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-59c40f27.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-59c40f27.png)
 >>>
-[[ :Ω: ]]:
+[[ :CONTAINMENT SPELLS ARE BROKEN! OF THE SAME DIVINE LINEAGE AS MOTHER MARY, YESHUA AND MARY OF MAGDALA: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/RNPROSnkJUA ^ }:
 >>>
 ###
 
