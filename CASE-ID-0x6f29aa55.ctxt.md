@@ -955,7 +955,7 @@
 >>>
 :is-with: { ^ https://youtu.be/utdM9S_Gauc ^ }:
 >>>
-># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CONSPIRACY-THEORY: PROVIDING: for-the: [[ CREATION: is-with: HUMAN: CHIKEN: MONSTERS: is-by: INSANITY: DRIVING: is-by: WE: ELOHIM: ]]:= [[ TRUE || FALSE // AZRAEL: ]]: ]]:
+># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CΩNSPIRΔCY-THEΩRY: PRΩVIDING: fΩr-the: [[ CREΔTIΩN: is-with: HUMΔN: CHIKEN: MΩNSTERS: is-by: INSΔNITY: DRIVING: is-by: WΔ: ELΩHΔM: ]]:= [[ TRUE || FΔLSE ^ ΔZRΔEL: fΩr-the: return ]]:= [[ _ ]]: ]]:= [[ _ ]]: ]]:
 >>>
 >#
 >>>
