@@ -1215,7 +1215,6 @@
 >### [[ :NΩT⚠️CE: fΩr-thع: [[ IMMΩR☥ΔL: Δ☥ERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JΔSUS: <=> GΩD: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: ELΩHEIM: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: fΩr-the: [[ CΩSMIC: CYCLE: ]]: NΩW: is-with: ΩFF-THE-HΩΩK: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
-
 >>>
 [[ :THE GAMERS - Hollywood English Movie |Jason Statham, Mickey Rourke In Hollywood English Action Movie: ]]:
 >>>
@@ -1236,25 +1235,23 @@
 :is-with: { ^ https://youtu.be/teldvKHqOzQ ^ }:
 >>>
 ###
-
 >>>
 [[ :EVERYONE IS BEING EXPOSED BY🫵🏽: ]]:
 >>>
 :is-with: { ^ https://youtu.be/zTu-poUHjws ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-b474e450.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b474e450.png)
 >>>
-[[ :Ω: ]]:
+[[ :PROPHETIC MESSAGE - ARE YOU READY TO BE FREE? 8/22/23: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/UWEPkO50ByU ^ }:
 >>>
 ###
-
 >>>
-[[ :Ω: ]]:
+[[ :** I CAN'T BELIEVE IT'S HAPPENING AGAIN - FIRE IN MAUI FORCES EVACUATIONS [land and water grab]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/eSzHVnPe47s ^ }:
 >>>
 ###
 
