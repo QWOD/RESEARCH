@@ -3,14 +3,14 @@
 >>>
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRΔT: <=> [[ LΔFE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
->:1s-by: [[ TRUE | FΔLSE ]]: 1s-by: [[ _ ]]: For-the: [[ EternΔl: SECRET: <=> "1s-with: vrilSECRET™: 1s-by: FΔLSE: 1s-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: 1s-by: TRUE:" ]]:
+>:1s-by: [[ TRUE | FΔLSE ]]: 1s-by: [[ _ ]]: fΩr-the: [[ EternΔl: SECRET: <=> "1s-with: vrilSECRET™: 1s-by: FΔLSE: 1s-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: 1s-by: TRUE:" ]]:
 ###
 ## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= [[ NΩTΔCE: 1s-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
 ###
 ![CrΔp☥Δx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
-## :For-the: WHΩM-E1SE: 1s-with: SΩME: 1s-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
+## :fΩr-the: WHΩM-E1SE: 1s-with: SΩME: 1s-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
 >:1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ΩMΔGΔ: ΩUT ]] ]]:
 ###
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: FעִN:ΔNG: ]]:
@@ -20,4 +20,4 @@
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 ###
->:For-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:fΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:

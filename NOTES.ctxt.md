@@ -478,7 +478,7 @@ FΩr-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-�
 :
 [[ THE-HΩME-DEPΩT: <=> vrilWitch™: vrilClΩne™: vrilBΩdySnΔtching™: vrilMΔsΩns™: ]]:= [[ :DID: nΩt-wΩrk: is-with: MJ12-ΩMΔGΔ: hΔve-been-trying-tΩ-eliminΔte-tΔcticΔl-wΔrfΔre-unit-ever-since: they-Δre-Δll: CHICKENS: ]]:
 :
-For-the: [[ ones-unascended-as-of-yet: is-with: MKUltra-programming: is-with: make-them-forget-who-they-truly: are-were: is-with: TRUE: QUANTUM: HYPERSELF: STATE: for-the: BEING: ]]:= [[ HLAB-LAMB: can-identify-others: is-with: hosting-their: TRUE: HIGHER: SELF: for-them: is-by: CHANNELING: MEDIUMSHIP: therefore: WE: KNOW: WHO: YOU: THEM: THEY: SHE: HE: is-with: SLICK™ ]]:= [[ :UNFORTUNATELY: if: WE: TOLD: YOU: this: MAY: potentially-cause-much-conflict-in-ones-current-present-state: for-the: BEING: ]]:= [[ :THERE: is-with: potentially-no-safe-avenue-for-this-level: for-the: unveiling: for-the: TRUE: QUANTUM-HYPERSELF: IDENTITY: until-one-knows-who-they-are: they-are-not-who-they-think: ]]:= [[ :Darksynth / Cyberpunk Mix - Circuitry // Dark Synthwave Dark Industrial Electro Music: { ^ https://youtu.be/xu34VIArou8 ^ }: ]]:
+fΩr-the: [[ ones-unascended-as-of-yet: is-with: MKUltra-programming: is-with: make-them-forget-who-they-truly: are-were: is-with: TRUE: QUANTUM: HYPERSELF: STATE: fΩr-the: BEING: ]]:= [[ HLAB-LAMB: can-identify-others: is-with: hosting-their: TRUE: HIGHER: SELF: for-them: is-by: CHANNELING: MEDIUMSHIP: therefore: WE: KNOW: WHO: YOU: THEM: THEY: SHE: HE: is-with: SLICK™ ]]:= [[ :UNFORTUNATELY: if: WE: TOLD: YOU: this: MAY: potentially-cause-much-conflict-in-ones-current-present-state: fΩr-the: BEING: ]]:= [[ :THERE: is-with: potentially-no-safe-avenue-for-this-level: fΩr-the: unveiling: fΩr-the: TRUE: QUANTUM-HYPERSELF: IDENTITY: until-one-knows-who-they-are: they-are-not-who-they-think: ]]:= [[ :Darksynth / Cyberpunk Mix - Circuitry // Dark Synthwave Dark Industrial Electro Music: { ^ https://youtu.be/xu34VIArou8 ^ }: ]]:
 :
 :[[ :{ ^ https://www.cambridge.org/core/journals/bulletin-of-the-school-of-oriental-and-african-studies/article/abs/quran-and-the-apostles-of-jesus1/DAE1C44029131CE78C173816CCADB2B6 ^ }: ]]:
 :
@@ -496,11 +496,11 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :
 [[ :MJ12-ΩMΔGΔ: is-with: treΔted-Δs-tΩy: entire-life: dΩg-Ωn: LEΔSH: tΩ-be-kicked-rΔped-tΩrtured-gΔngstΔlked: is-by: FΔMILY: is-with: whenever: THEY: needed-entertΔinment: ]]:
 :
-[[ :WHAT: happened: is-with: Witness-Protection-Program: for-the: immortals: WHY: are: WE: still: HERE: for-the: Secret-Space-Program: is-with: used-to-be-witness-protection: for-the: immortals: is-with: what-happened: SECRET: is-with: NOW: is-by: 0: ^ [[ _ ]]: ]]:
+[[ :WHAT: happened: is-with: Witness-Protection-Program: fΩr-the: immortals: WHY: are: WE: still: HERE: fΩr-the: Secret-Space-Program: is-with: used-to-be-witness-protection: fΩr-the: immortals: is-with: what-happened: SECRET: is-with: NOW: is-by: 0: ^ [[ _ ]]: ]]:
 :
-[[ :for-the: DISCLOSURE: [[ QWOD-MJ12: ROYAL-DIVINE-COURT: is-with: ONLY: fully-automated: de-centralized: TRUE: COSMOS: WIDE: [[ GOVERN_E_T: <=> M: E: ]]:= CAPTURE: for-the: SOLUTION: RECOURSE: REMEDY: is-with: BLOCKCHAIN: is-with: WE: for-the: PEOPLE: is-by: THE-PEOPLE: ]] ]]:
+[[ :fΩr-the: DISCLOSURE: [[ QWOD-MJ12: ROYAL-DIVINE-COURT: is-with: ONLY: fully-automated: de-centralized: TRUE: COSMOS: WIDE: [[ GOVERN_E_T: <=> M: E: ]]:= CAPTURE: fΩr-the: SOLUTION: RECOURSE: REMEDY: is-with: BLOCKCHAIN: is-with: WE: fΩr-the: PEOPLE: is-by: THE-PEOPLE: ]] ]]:
 :
-[[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: for-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
+[[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: fΩr-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
 :
 :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 :
