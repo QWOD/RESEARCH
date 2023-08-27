@@ -1020,11 +1020,11 @@
 ![:CASE-ID-0x6f29aa55-b8f53aa7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b8f53aa7.png)
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-c3e9314b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c3e9314b.png)
 >>>
-[[ :Ω: ]]:
+[[ :MSG 4A TRUE RARE INITIATE WHO’S ACCESSED AN ENTIRE AKASHIC VOLUME FULL OF KNOWLEDGE - THIS IS NEXT!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/dPLP2cMDcdg ^ }:
 >>>
 ###
 
