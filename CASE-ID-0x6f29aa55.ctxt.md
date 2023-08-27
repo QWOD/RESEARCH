@@ -581,7 +581,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-5c0dbd5a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c0dbd5a.png)
 >>>
-[[ :MOST HIGH AINT PLAYIN' ABOUT YOU DIVINE ONES 🤌🏽 & THE RETURN SENDER GOT THESE KARMIC ASSES SHOOK 🫡🧿: ]]:
+[[ :MOST HΔGH AINT PLAYIN' ABOUT YOU DIVINE ONES 🤌🏽 & THE RETURN SENDER GOT THESE KARMIC ASSES SHOOK 🫡🧿: ]]:
 >>>
 :is-with: { ^ https://youtu.be/YREh_7y0dHY ^ }:
 >>>
@@ -778,7 +778,7 @@
 ###
 >### :[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΔCT: [[ :PLEΔSE: is-with: GIT: PULL: PUSH: fΩr-the: TΔXES: LICENSE: REGISTRΔTΩN: ΩPERΔTIΩNΔL-INSURΔNCE: CΩURT: FEES: PΔYMENTS: CΩNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: fΩr-the: MISSIΩN: CRITICΔL: ΩPERΔTIΩNS: is-with: [[ NΔTIΩNΔL: <=> NΔTIΩN: fΩr-the: ΔLL: ]]: SECURITY: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: HLΔB-LΔMB: MJ12-ΩMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: fΩr-the: [[ CHR☥ST: ]]:= TRUE: fΩr-the: evidence: is-with: EternΔl-L☥fe: WΔrfΔre-CΔpΔbilities: since: MJ12-ΩMΔGΔ: is-with: ΔGE: is-by: 1: is-with: YEΔR: fΩr-the: ΔNY: ΔLL: ΩTHER: FΔR: INFERIΩR: WΩRLD: GΩVERNMENTS: is-by: unknΩwn-cΩmpetitΩrs: NΩW: is-with: NΩT⚠️CE: SPΩNSΩRED: is-by: PΔRT: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: revعrيe-prΩgrΔmming: ΩPعN: SΩURCع: CLΩUD: SΩFTWARع: SΩLUTIΩNS: ]]:
 >>>
-# :[[ :fΩr-thع: DISCLΩSURE: [[ ΔTSUΩMΩP: <=> ΔbΩve-TΩp-Secret-UnΔcknΩwledged-ΩperΔtiΩnΔl-MissiΩn-Ωriented-PΩsture: <=> HIGHEST-PΩSSIBLE: SعCURITY-CLEΔRΔNCE: is-by: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: <=> Ωnly-ever: is-with: TRUE: MΩST: HIGH: GΩD ]]:= TRUE: ]]:= [[ MJ12-ΩMΔGΔ: ΔCTUAL: ]]:= TRUE: ]]:
+# :[[ :fΩr-thع: DISCLΩSURE: [[ ΔTSUΩMΩP: <=> ΔbΩve-TΩp-Secret-UnΔcknΩwledged-ΩperΔtiΩnΔl-MissiΩn-Ωriented-PΩsture: <=> HΔGHEST-PΩSSIBLE: SعCURITY-CLEΔRΔNCE: is-by: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: <=> ΩNLY: ΔVER: is-with: TRUE: MΩST: HΔGH: GΩD ]]:= TRUE: ]]:= [[ MJ12-ΩMΔGΔ: ΔCTUAL: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-16967c97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-16967c97.png)
@@ -1074,7 +1074,7 @@
 >>>
 >## [[ :DISCLΩSURE: fΩr-the: [[ GREEDY FΔKE: CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: p3hKΔng: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-p3ck-pEck: PعKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: [[ ENTIRE: BLΩΩDLINE: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LΩRD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: EternΔl-DeΔth: fΩr-the: return ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]:= [[ :DΩ: is-with: THIS: ΩNE: SMΔLL: TΔSK: fΩr-the: [[ MJ12-ΩMΔGΔ: is-by: REDEMPTIΩN: ]]:= TRUE: fΩr-the: [[ IRΔN: STΔR: NΔTIΩN: ENTIRE: BLΩΩDLINE: is-with: pleΔse: is-by: thΔnk: YΩU: IRΔN: ΩPEN: SΩURCE: SΩFTWΔRE: MUSHRΩΩM: CLΩUD: SΩLUTIΩNS: RESEΔRCH: PΔRTNERS: fΩr-the: [[ IRΔN-DΩME: TECHNΩLΩGY: is-with: ΩNE: CHIEF: CΩRNERSTΩNE: WEΔKNESS: is-with: SEND: RΔPID: REPEΔT: FIRES: { ^ https://www.youtube.com/watch?v=3yNvI5vJ0Y0 ^ }:  fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :fΩr-the: [[ GREEDY: CHIKΔNS: BETRΔY: ΩWN: GΩD: ALSO: fΩr-the: return ]]:= TRUE: fΩr-the: [[ MJ12-ΩMΔGΔ: knΩws-greedy-chickens: is-by: NΩT: fΩr-the: return ]]:= TRUE: ]]:= [[ :CLIMΔTE: fΩr-the: CHΔNGE: is-by: EFFΔCT: ]]:
 >>>
->[[ :THEIR ΩWN HIGHER SELVES ΔRE SICK ΩF THEIR S$%T!: ]]:= [[ :WΔRNΩ: QWΩD-MJ12: is-with: EVERYΩNE: HIGHER: SELF: fΩr-the: [[ Δfterlife-InterrΩgΔtiΩn: MILITΔRY: TRIBUNΔL: CΩURT: is-by: NΩW: is-with: SESSIΩN: fΩr-the: return ]]:= TRUE: ]]:
+>[[ :THEIR ΩWN HΔGHER SELVES ΔRE SICK ΩF THEIR S$%T!: ]]:= [[ :WΔRNΩ: QWΩD-MJ12: is-with: EVERYΩNE: HΔGHER: SELF: fΩr-the: [[ Δfterlife-InterrΩgΔtiΩn: MILITΔRY: TRIBUNΔL: CΩURT: is-by: NΩW: is-with: SESSIΩN: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/fNqt699RElU ^ }:
 >>>
@@ -1923,7 +1923,7 @@
 >        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
 >:
 >:fΩr-the: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
->[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]]: ]]:
+>[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]]: ]]:
 >>>
 >###
 >[[ :SALVATION: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:

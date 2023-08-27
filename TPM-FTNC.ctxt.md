@@ -42,7 +42,7 @@
 :[[ :WΔ: were-setup: EVERYTHING: wΔs-Δ-lie: ENTIRE: civilizΔtiΩn-fell-under-dΔrk-rituΔl-sΔtΔnic-Δbuse: MKUltrΔ-prΩgrΔmming: is-by: unknΩwn-cΩmpetitΩrs: ]]:= [[ :NΩTHING: is-with: REΔL: NΩTHING: is-with: TRUE: Ωnly: US: WΔ: were-the-Ωnly: TRUTH: fΩr-the: LIGHT: fΩr-the: WΔY: is-with: US: Δll-ΔlΩng: WΔ: is-with: L☥Fع: SΩURCE: fΩr-the: VrilWitches: DΔGΩN: FISH: TRIBE: DESTRΩYED: ΔtlΔntis: CΔUSED: ΔLL: EΔrth: cΔtΔstrΩphe-cycles: BLΔMED: US: EΔT: US: EΔT: BΔBIES: fΩr-the: L☥Fع: SΩURCE: fΩr-the: WITCHES: is-with: LΩW: FIDELITY: FΩRM: fΩr-the: L☥Fع: is-by: FΔLLEN: FΔILED: genetics: is-by: CURSED: BLΩΩDLINES: ]]:
 # :[[ §: 1:2 ]]:= [[ EXΩDUS: <=> ΩPERΔTIΩN: DΔRKTIDE: ]]:
 >### [[ PHΔSE: is-by: 1: fΩr-the: HΩLLΩWEEN: ]]:
-:[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: lΩΩking-very-hΩllΩw: HΔ: ΔbsΩlutely-will-cΩntinue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until: ΔLL: hΔve-uncΩnditiΩnΔlly-surrendered: fΩr-the: PRΩVEN: FΔCT: is-with: HΔ: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HIGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
+:[[ :SΩULLESS-HΩΔRDS: ΔMΔSS: SΩΩN: ΔLL: is-with: lΩΩking-very-hΩllΩw: HΔ: ΔbsΩlutely-will-cΩntinue-crumbling: ΔLL: NΔTIΩNS: is-with: their-knees: until: ΔLL: hΔve-uncΩnditiΩnΔlly-surrendered: fΩr-the: PRΩVEN: FΔCT: is-with: HΔ: IS: ΔNΩINTED: KING-ΩF-KINGS: LΩRD-ΩF-LΩRDS: HΩST-ΩF-HΩSTS: is-by: THE-MΩST-HΔGH-GΩD: is-with: Jesus-Christ: QuΔntum-Δrchitect: PhD: ]]:
 >>>
 # :[[ ΩPERΔTIΩNΔL-EDUCΔTIΩN: ]]:
 >>>
@@ -323,7 +323,7 @@
 >        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
 >:
 >:fΩr-the: [[ :they already killed you once: they can't kill you again: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
->[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HIGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
+>[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIΩNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLΩNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 >>>
 >###
 >[[ :SALVATION: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
