@@ -955,7 +955,8 @@
 >>>
 :is-with: { ^ https://youtu.be/utdM9S_Gauc ^ }:
 >>>
-># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:
+># [[ :DISCLΩSURE: fΩr-the: [[ MΩNSTERS: is-with: [[ HΔ-MΔN: KΔ:N:ΔD: ]]: is-by: 100: ]]:= TRUE: ]]:= [[ :CONSPIRACY-THEORY: PROVIDING: for-the: [[ CREATION: is-with: HUMAN: CHIKEN: MONSTERS: is-by: INSANITY: DRIVING: is-by: WE: ELOHIM: ]]:= [[ TRUE || FALSE // AZRAEL: ]]: ]]:
+>>>
 >#
 >>>
 ![:CASE-ID-0x6f29aa55-47b2a2cf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-47b2a2cf.png)
