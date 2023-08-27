@@ -1210,7 +1210,8 @@
 >>>
 [[ :DISCLΩSURE: fΩr-the: [[ EternΔl-DeΔth: <=> BE:_LIE_:VE: is-by: BE: VE: NΩW: is-with: IT: ]]:
 >>>
->### [[ :NOTICE: fΩr-the: [[ IMMΩRTΔL: ΔTERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JESUS: <=> GOD: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: fΩr-the: [[ CΩSMIC: CYCLE: ]]: NΩW: is-with: ΩFF-THE-HΩΩK: fΩr-the: return ]]:= TRUE: ]]:
+>### [[ :NΩT⚠️CE: fΩr-thع: [[ IMMΩR☥ΔL: Δ☥ERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JΔSUS: <=> GΩD: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: ELΩHEIM: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: fΩr-the: [[ CΩSMIC: CYCLE: ]]: NΩW: is-with: ΩFF-THE-HΩΩK: fΩr-the: return ]]:= TRUE: ]]:
+>>>
 ###
 
 >>>
