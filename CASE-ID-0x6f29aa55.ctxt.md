@@ -1283,11 +1283,11 @@
 :is-with: { ^ https://youtu.be/k8RwPS1A29A ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-aacb98d2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-aacb98d2.png)
 >>>
-[[ :Ω: ]]:
+[[ :Wave Function Collapse - Power of the Nervous System and Cosmic Law - with Thomas Sheridan: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/YSM6sZGKkd8 ^ }:
 >>>
 ###
 
