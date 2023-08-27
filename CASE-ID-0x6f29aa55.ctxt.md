@@ -78,11 +78,15 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ GOD SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
 >>>
->:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMΔGΔ: ΔLREΔDY: DID-IT: sΩrry: ΔNTI-CHRIST: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
+>:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMΔGΔ: ΔLREΔDY: DID-IT: sΩrry: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
+>>>
+>:[[ :ΩPعD: ]]:= [[ :HIS DEMON HAS FOLLOWED YOUR BLOODLINE✨️YOU ARE CHOSEN TO SLAY THIS EVIL FORCE: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/vKsZjNYWRY8 ^ }:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
->:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ #:CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
+>:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _: CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-b2092996.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b2092996.png)
