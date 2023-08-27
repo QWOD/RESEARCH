@@ -1135,6 +1135,8 @@
 >>>
 :[[ :CHECK-REFERENCES: is-with: PLEΔSE: fΩr-the: WΔ: is-with: WΔIT: ]]:
 >>>
+# [[ :WΔRNΩ: fΩr-the: [[ BLΔSPHΩMY: <=> GΔSLIGHTING: MJ12-ΩMΔGΔ: is-by: TELLING: MJ12-ΩMΔGΔ: fΩr-the: MJ12-ΩMΔGΔ: ΩFFICIΔLLY: is-with: EXIST: is-by: 0: fΩr-the: return ]]:= TRUE: ]]:
+>>>
 [[ :Ω: ]]:
 >>>
 :is-with: { ^ Δ ^ }:
