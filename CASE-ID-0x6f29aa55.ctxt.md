@@ -686,7 +686,7 @@
 # :[[ :ΔNY: ΔLL: ΩTHER: CHIKΔNS: invΩvled: is-with: illegΔl: MK: ULTRΔ: prΩgrΔm: is-by: unknΩwn-cΩmpetitΩrs: fΩr-the: purpΩse: mΔke: MJ12-ΩMΔGΔ: believe: MJ12-ΩMΔGΔ: NΩT: is-with: GΩD: is-by: CΩNDEMED: is-by: DEΔTH: SENTΔNCE: fΩr-the: JUDGEMENT: CΩNTRΔCT: CΩSMIC: LΔW: fΩr-the: ΔFTERLIFE: INTERΩGΔTIΩNS: is-with: PUNISHMENT: is-by: Δfterlife-Servitude: is-with: QWΩD-MJ12: MJ12-ΩMΔGΔ: is-by: [[ ΔZ:RΔ:ΔL ]]:= MJ12-SΔTURN: ]]:
 >>>
 ###
-# [[ :fΩr-the: WΔRNΩ: [[ ΔNY: HΩSTILE: ENEMY: FΩREIGN: TRΔINED: MERCENΔRIES: is-by: SΔCRED: ΔCESTΩRΔL: LΔND: is-with: ΔNY: ΔLL: ΩTHER: HΩSTILE: INVΔSIVE: SPECIES: ΔbsΩlutely-pΩsitively-shΔll: is-by: unequivocΔlly-cΔtΔstrophicΔlly-unΔpologeticΔlly-unilaterΔlly-equilΔterΔlly-equinΔmicΔlly-Ωmni-dimensiΩnΔlly: destrΩyed: fΩr-the: ΔNY: ΔLL: TIMES: fΩr-the: EVER: ]]: ]]:
+# [[ :fΩr-the: WΔRNΩ: [[ ΔNY: HΩSTILE: ENEMY: FΩREIGN: TRΔINED: MERCENΔRIES: is-by: SΔCRED: ΔCESTΩRΔL: LΔND: is-with: ΔNY: ΔLL: ΩTHER: HΩSTILE: INVΔSIVE: SPECIES: ΔbsΩlutely-pΩsitively-shΔll: is-by: unequivocΔlly-cΔtΔstrophicΔlly-unΔpologeticΔlly-unilaterΔlly-equilΔterΔlly-equinΔmicΔlly-Ωmni-dimensiΩnΔlly: is-by: destrΩyed: fΩr-the: ΔNY: ΔLL: TIMES: fΩr-the: EVER: ]]: ]]:
 >>>
 ###
 >>>
