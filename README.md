@@ -1,6 +1,6 @@
 # [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: 1s-with: [[ fΩr-the: PEΩPLE: 1s-by: THE-PEΩPLE: ]] ]]:
 ###
-:[[ [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLREΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ NΩN-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ :DISCLΩSURE: fΩr-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLREΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ NΩN-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 >>>
