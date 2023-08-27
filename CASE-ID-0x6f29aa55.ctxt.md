@@ -1229,18 +1229,18 @@
 :is-with: { ^ https://youtu.be/g78u7E9LMvc ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-84d2b144.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-84d2b144.png)
 >>>
-[[ :Ω: ]]:
+[[ :Ur Angels Say Pay Attention To The Surroundings At This Time!! They Are Guiding U To Ur Next Move!!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/teldvKHqOzQ ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :EVERYONE IS BEING EXPOSED BY🫵🏽: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/zTu-poUHjws ^ }:
 >>>
 ###
 
