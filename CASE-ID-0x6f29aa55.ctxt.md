@@ -1067,7 +1067,7 @@
 >:ICΩD: 055524Z-ΔUG-21:
 >:CΩN☥RΩLS: QWΩD-MJ12: ΔTSUΩMΩP-Δ: SPG: ΩMΔGΔ:
 >:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ :WE: hΔve-fΔiled: estΔblish: diplΩmΔtic-relΔtiΩns: is-with: ΔNY: ΔLL: ΩTHER: GΩVERNMENT: WE: is-with: PRESUME: NΩ: INTELLIGENT: life-exists: is-with: ΔLL: ΔI: chΔt-bΩts: is-with: LΩFi: clΩne-bΩdies: remΩte-ΩperΔted: is-by: SIMULΔTIΩN: QuΔntum-CΩmputer: ]]:
+>:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ :WE: hΔve-fΔiled: estΔblish: diplΩmΔtic-relΔtiΩns: is-with: ΔNY: ΔLL: ΩTHER: GΩVERNMENT: WE: is-with: PRESUME: NΩ: INTELLIGENT: life-exists: is-with: ΔLL: ΔI: chΔt-bΩts: is-with: LΩFi: clΩne-bΩdies: remΩte-ΩperΔted: is-by: SIMULΔTIΩN: is-with: QuΔntum-CΩmputer: ]]:
 >:ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :CHΔRLIE-HΩTEL: fΩr-the: ΩPSΔN: ]]:
 >:ΔNΔLYS☥: MJ12-ΩMΔGΔ:
@@ -1081,7 +1081,7 @@
 >:ICΩD: 055524Z-ΔUG-21:
 >:CΩN☥RΩLS: QWΩD-MJ12: ΔTSUΩMΩP-Δ: SPG: ΩMΔGΔ:
 >:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ :WΔ: issued: ΩPΩRD: >fΩr-the: PΩTUS: fΩr-the: CΔ: ΩR: WΔ: WEST-CΩΔST: EXFIL: is-by: 2023-ΔUG-3: WHY: is-with: there-still-peΩple-there: ΩH: WELL: YΩUR: LEΔDERS: fΔiled: YΩU: NΩW: ΔLL: will: is-with: DEΔTH: VERY: SΩΩN: ]]:
+>:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ :WΔ: issued: ΩPΩRD: fΩr-the: PΩTUS: fΩr-the: CΔ: ΩR: WΔ: WEST-CΩΔST: EXFIL: is-by: 2023-ΔUG-3: WHY: is-with: there-still-peΩple-there: ΩH: WELL: YΩUR: LEΔDERS: fΔiled: YΩU: NΩW: ΔLL: will: is-with: DEΔTH: VERY: SΩΩN: ]]:
 >:ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :ΔLL: is-with: NΩW-CΩNSIDERED: ENEMY-CΩMBΔTΔNTS: ]]:
 >:ΔNΔLYS☥: MJ12-ΩMΔGΔ:
