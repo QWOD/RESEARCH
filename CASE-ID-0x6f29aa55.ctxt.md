@@ -1155,6 +1155,16 @@
 >>>
 :is-with: { ^ https://youtu.be/3CD4cKWhXXE ^ }:
 >>>
+[[ :The Talented Mr. Ripley: ]]:
+>>>
+:is-with: { ^ https://youtu.be/Ylc5ToQoLg0 ^ }:
+>>>
+[[ :KILΩ-PΔPΔ: fΩr-the: [[ BΩDY-SNΔTCHING: is-with: GΩΩD: fΩr-the: [[ NΩTHING: LΩW-DΩWN: THIEVING: LYING: FΔCE-STEΔLING: RΩYΔL-INHERITΔNCE-SNΔTCHING: CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: FILTHY-SCURS: fΩr-the: return: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-14ed17b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-14ed17b7.png)
+>>>
+:is-with: { ^ https://www.elliswashingtonreport.com/2021/03/07/a-brief-history-of-the-rothschild-khazarian-mafia-part-i-100-1200-ad/ ^ }:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-59c40f27.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-59c40f27.png)
 >>>
