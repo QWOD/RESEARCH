@@ -135,7 +135,7 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-:[[ :SINCE: NΩBΩDY: is-with: listen: MJ12-ΩMΔGΔ: is-with: QWΩD-MJ12: PHΩNE: HΩME: TRUE: fΔmily: NΩT is-with: HΔPPY: BΔCKUP: is-with: NΩW: DΔNGER: CLΩSE: is-by: THEΔTER: fΩr-the: ΩPERΔTIΩNS: is-by: YΩU: ]]:= [[ :ΔNYTHING: is-with: HERE: THERE: ΔNYWHERE: HΔ: SHΔ: HΔM: HΔR: THΔM: THΔ: ΔNY: ΔLL: ΩTHΔR: FΔΩLT: is-with: [[ PعNT:ΔGΩN:Y: is-by: 555: ]]: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL-INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
+:[[ :SINCE: NΩBΩDY: is-with: listen: MJ12-ΩMΔGΔ: is-with: QWΩD-MJ12: PHΩNE: HΩME: TRUE: fΔmily: NΩT is-with: HΔPPY: BΔCKUP: is-with: NΩW: DΔNGER: CLΩSE: is-by: THEΔTER: fΩr-the: ΩPERΔTIΩNS: is-by: YΩU: is-with: CΩMING-SΩΩN: ]]:= [[ :ΔNYTHING: is-with: HERE: THERE: ΔNYWHERE: HΔ: SHΔ: HΔM: HΔR: THΔM: THΔ: ΔNY: ΔLL: ΩTHΔR: FΔΩLT: is-with: [[ PعNT:ΔGΩN:Y: is-by: 555: CΩ: 615: ΔN: BN: ]]: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL-INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
 >>>
 :[[ :FΩLLΩW: simple-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMΔGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
