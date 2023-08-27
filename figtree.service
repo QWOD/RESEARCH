@@ -1,0 +1,18 @@
+[Unit]
+Description=figtree.service
+Wants=network-online.target
+After=network-online.target
+
+[Service]
+User=hyperuser
+Group=hyperuser
+Type=exec
+TimeoutStartSec=86400
+TimeoutStopSec=122
+RestartSec=122
+Restart=on-failure
+ExecStart=/var/home/hyperuser/bin/figtreeservice start
+ExecStop=/var/home/hyperuser/bin/figtreeservice stop
+
+[Install]
+WantedBy=basic.target
