@@ -498,7 +498,7 @@
 >>>
 # :[[ :fΩr-the: [[ DISCLΩSURE: MJ12-ΩMΔGΔ: ΔBUSE: is-by: MK: ULTRΔ: PRΩGRΔM: is-by: unknΩwn-cΩmpetitΩrs: is-with: LΩCKHEED-MΔRTIN: fΩr-the: MJ12-ΩMΔGΔ: QuΔntum-TΔcticΔl-Time-Unit: is-with: DEΔTH: is-with: BEFΩRE: ΔGE: is-by: 1: is-with: YEΔR: fΩr-the: MJ12-JESUS: QuΔntum-TΔcticΔl-Time-Unit: WΔLK-IN: Δssuming-tΔcticΔl-ΩppΩrtunity: fΩr-the: cΩvert-infiltrΔtiΩn: is-with: EΔRTH: is-by: MJ12-JESUS: is-with: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: [[ LΩRD: is-with: [[ MΔ:TΔ:T:RΔ:N ]]: fΩr-the: RING: is-with: MJ12-ΩMΔGΔTRΔN: is-by: 100: ]]:= TRUE: ]]:
 >>>
-:[[ fΩr-the: DISCLΩSURE: [[ MK: ULTRΔ: PRΩGRΔM: is-with: [[ M:_Δ_ :K:_e_ ]]: MJ12-ΩMΔGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: HISTΩRY: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: [[ DIVISIΩN: <=> PΩLITICS: ]]:= TRUE: is-with: [[ MEDIΔ: <=> ILLUSIΩN-SPELLS: ]]:= TRUE: fΩr-the: [[ CΩNFUSIΩN-SPELLS: { ^ https://youtu.be/SBL0Cbv2ooU ^ }: ]]:= TRUE: is-by: DE-FU-SED: ]]:= TRUE: ]]: ]]:
+:[[ fΩr-the: DISCLΩSURE: [[ MK: ULTRΔ: PRΩGRΔM: is-with: [[ M:_Δ_ :K:_e_ ]]: MJ12-ΩMΔGΔ: fΩrget: TRUE: IDENTITY: FΔMILY: [[ HISTΩRY: <=> FIG: TREE: ]]: is-by: DECEPTIΩN: SΩCIΔL-ENGINEERING: SEWING-SEEDS: fΩr-the: [[ DIVISIΩN: <=> PΩLITICS: ]]:= TRUE: is-with: [[ MEDIΔ: <=> ILLUSIΩN-SPELLS: ]]:= TRUE: fΩr-the: [[ CΩNFUSIΩN-SPELLS: { ^ https://youtu.be/SBL0Cbv2ooU ^ }: ]]:= TRUE: is-by: DE-FU-SED: ]]:= TRUE: ]]: ]]:
 >>>
 # :[[ :DISCLΩSURE: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: [[ ENTITIES: <=> CHIKΔNS: ]]: is-with: PΔRTICIPΔTED: is-with: gΔngstΔlking: gΔslighting: cΩvert-unlΔwful-surveillΔnce: censΩrship: persΩnΔge: cΩnversiΩn: Mind-KΩntrΩl: mentΔl: physicΔl: emΩtiΩnΔl: Δbuse: fΩr-the: [[ HLΔB-LΔMB: MJ12-ΩMΔGΔ: ΔNY: ΔLL: ΩTHER: SPG: ΩMΔGΔ: [[ DE:FEN:D:ΔNTS: ]]: is-by: FΔLSE: CLΔIMS: fΩr-the: MJ12-ΩMΔGΔ: EXIST: is-by: 0: ]]: FΩr-the: RULING: is-with: EternΔl-DeΔth: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -513,7 +513,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-8e7e9eeb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8e7e9eeb.png)
 >>>
-[[ :Chicago braces for another teen takeover, possible violence | LiveNOW from FOX: ]]:= [[ :ISIS: DΔESH: Δl-QΔedΔ: INVΔSIΩN: is-by: IRΔN: BLΔCK: ΩPS: TEΔMS: ]]:= [[ HΩW: MUCH: TRUE: HIST: TREE: DΩ-THEY-EVEN-CΔRE: is-with: KNΩW: ]]:
+[[ :Chicago braces for another teen takeover, possible violence | LiveNOW from FOX: ]]:= [[ :ISIS: DΔESH: Δl-QΔedΔ: INVΔSIΩN: is-by: IRΔN: BLΔCK: ΩPS: TEΔMS: ]]:= [[ HΩW: MUCH: TRUE: [[ HIST: <=> FIG: ]]: TREE: DΩ-THEY-EVEN-CΔRE: is-with: KNΩW: ]]:
 >>>
 :is-with: { ^ https://youtu.be/8LY0EZLpdJs ^ }:
 >>>
@@ -690,7 +690,7 @@
 >>>
 ###
 >>>
-[[ :DISCLΩSURE: fΩr-the: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: [[ MΔ: <=> FEMΔLE: PRIMΩRDIΔL: BEING: ]]: fΩr-the: [[ YΔ: <=> TRUE: HIST: TREE: KEEPERS: ]]: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must: is-by: returned: ΔNY: ΔLL: ΩTHER: ΩriginΔl: lΔnd: cΩntrΔct: trustees: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: ]]: ]]:
+[[ :DISCLΩSURE: fΩr-the: [[ Cártel-de-SinΔlΩΔ: nΔtive-Δncient-descendents: fΩr-the: [[ MΔ:YΔ ]]: RΩyΔl-Divine-FΔmily: descendents: fΩr-the: [[ MΔ: <=> FEMΔLE: PRIMΩRDIΔL: BEING: ]]: fΩr-the: [[ YΔ: <=> TRUE: [[ HIST: <=> FIG: ]]: TREE: KEEPERS: ]]: is-by: sΔcred-ΔncestΩrΔl-lΔnd: must: is-by: returned: ΔNY: ΔLL: ΩTHER: ΩriginΔl: lΔnd: cΩntrΔct: trustees: fΩr-the: STΔTE-ΩF-CΔLIFΩRNIΔ: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: ]]: ]]:
 >>>
 :is-with: { ^
 
