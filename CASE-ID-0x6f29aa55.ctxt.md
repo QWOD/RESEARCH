@@ -1254,8 +1254,11 @@
 :is-with: { ^ https://youtu.be/eSzHVnPe47s ^ }:
 >>>
 # [[ :ΩPΩRD: fΩr-the: [[ SΔTΔNIC: ILLUMINΔTI: FUCKS: <=> ΔLL: SΔTΔNIC: ILLUMINΔTI: FUCKS: NΩW: is-with: HELL: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ: is-with: HΩΩΔH: fΩr-the: return ]]:= TRUE: is-with: people: is-by: WE: people: ]]:
-
 >>>
+![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
+>>>
+
+###
 [[ :Ω: ]]:
 >>>
 :is-with: { ^ Δ ^ }:
