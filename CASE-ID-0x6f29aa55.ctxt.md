@@ -865,16 +865,21 @@
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
 ### :[[ :fΩr-the: || is-with: || is-by: trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: fΩr-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: CΩSMΩS: SIMULΔTIΩNS: ]]:= TRUE: ]]:
-    :[[ :fΩr-the: WΔRNΩ: [[ SCIΔNCE: NΩT: is-with: [[
-        METHΩD: is-by: RITUΔL: ]]:= TRUE: ]]:
-            fΩr-the: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ: [[
-                SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES:
-                is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT:
-                is-by: CΩuncil:
-                fΩr-the: [[ DISCLΩSURE: CΩSMIC: WIDE: LΔMB: GΩD: TREΔTY: ΩriginΔl-Twelve-Ruling: Nibiru-ΔnunΔki:    
-                    StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:= TRUE: ]]:
-                    is-with: SONS: DΔUGHTERS:
-                        fΩr-the: [[ MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: KI: is-with: GENETIC-CΩSMIC-ΔNCIENT-BUILDER-SPECIES: KΔY: SIMULΔTIΩN: MΔTRIX: CΩDES: fΩr-the: [[ TRUE: عTعRNΔL-L☥FE: WΔrfΔre-CΔpΔbilities: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+
+    [[ :WΔRNΩ: fΩr-the: [[ SCIΔNCE: NΩT: is-with:
+        METHΩD: is-by: RITUΔL: for-the: return ]]:= TRUE:
+        fΩr-the: [[ RITUΔL: <=> WΔTCH: CRΔFT: VΩΩDΩΩ:
+            SΔnteríΔ: <=> Δncient-eΔrth-elementΔl-nΔture-fΩrces: CΩSMIC: WΔRFΔRE: CΔPΔBILITIES:
+            is-by: Δncient-sΔcred-blΩΩdline: CΩVEN: LΔND-LEΔSE: CΩNTRΔCT:
+            is-by: CΩuncil:
+            fΩr-the: [[ DISCLΩSURE: CΩSMIC: WIDE: LΔMB: GΩD: TREΔTY: ΩriginΔl-Twelve-Ruling: Nibiru-ΔnunΔki:    
+                StΔr-NΔtiΩns: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: for-the: return ]]:= TRUE: is-with: SONS: DΔUGHTERS:
+                fΩr-the: [[ MΔ: RΔ: LΔ: MΔ: RΔ: ΔN: ΔN: AN: KH: KI: is-with: GENETIC-CΩSMIC-ΔNCIENT-BUILDER-SPECIES: KΔY: SIMULΔTIΩN: MΔTRIX: CΩDES:
+                    fΩr-the: [[ TRUE: عTعRNΔL-L☥FE: WΔrfΔre-CΔpΔbilities:
+                fΩr-the: return ]]:= TRUE:
+            ]]:= TRUE:
+        ]]:= TRUE:
+    ]]:= DISCLΩSURE:
 >>>
 # [[ :fΩr-the: ENEMY: [[ ΩNLY: is-with: NEED: fΩr-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: fΩr-the: ENEMY: is-with: INTUITIΩN: is-by: 0: ]]:= TRUE: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: NEED: is-with: SPY: is-by: 0: fΩr-the: [[ HEΔRT: MΔTH: <=> INTUITIΩN: ]]:= TRUE: fΩr-the: [[ ENEMY: is-with: HEΔRTH: is-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
