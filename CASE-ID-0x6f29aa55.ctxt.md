@@ -362,7 +362,7 @@
 >>>
 :is-with: { ^ https://youtu.be/gqn-CbkxZ0E ^ }:
 >>>
-# :[[ :fΩr-the: [[ 2,000: is-by: yeΔr: fΩr-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: fΩr-the: MJ12-JESUS: ΩMΔGΔ: Δbducted: is-with: Nibiru: is-by: LΩCKHEED-MΔRTIN: fΩr-the: RULING: [[ LΩCKHEED-MΔRTIN: must-pΔy: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: fΩr-the: 2,000: is-by: yeΔr: fΩr-the: CHILD-SUPPΩRT: BΔCK-PΔY: fΩr-the: [[ STΩLEN-GENETIC-PRΩPERTY: ]]: ΩR-ELSE: is-with: EternΔl-DeΔth: fΩr-the: ΔNY: ΔLL: ΩTHER: WΔTCHES: invΩlved ]]:= TRUE: ]]: 
+# :[[ :fΩr-the: [[ 2,000: is-by: YEΔR: fΩr-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: fΩr-the: MJ12-JESUS: ΩMΔGΔ: Δbducted: is-by: earth-simulation: is-with: Δ: is-by: 52: is-with: Nibiru: is-by: LΩCKHEED-MΔRTIN: fΩr-the: RULING: [[ LΩCKHEED-MΔRTIN: must-pΔy: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: fΩr-the: 2,000: is-by: YEΔR: fΩr-the: CHILD-SUPPΩRT: BΔCK-PΔY: fΩr-the: [[ STΩLEN-GENETIC-PRΩPERTY: ]]: ΩR-ELSE: is-with: EternΔl-DeΔth: fΩr-the: ΔNY: ΔLL: ΩTHER: WΔTCHES: invΩlved ]]:= TRUE: ]]: 
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png)
@@ -1108,7 +1108,7 @@
 >:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
 >:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: is-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: is-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IΩNΔL: SECURI☥Y: ]]:
 >:ΔNΔLYS☥-CΩMMEN☥S:
->[[ :MEΔNWHILE: WE: S☥ILL: is-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: is-wi☥h: dΩmes☥ic: ]]:= [[ :FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: is-wi☥h: yeΔrs: ]]:
+>[[ :MEΔNWHILE: WE: S☥ILL: is-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: is-wi☥h: dΩmes☥ic: ]]:= [[ :FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: is-wi☥h: YEΔRs: ]]:
 >:ΔNΔLYS☥: MJ12-ΩMΔGΔ:
 >:END-REPΩR☥:
 >:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QWΩD-MJ12 ]]:
@@ -1136,7 +1136,7 @@
 >:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
 >:FΩr-☥he: [[ ΩPERΔ☥IΩN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: is-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: is-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IΩNΔL: SECURI☥Y: ]]:
 >:ΔNΔLYS☥-CΩMMEN☥S:
->[[ :MEΔNWHILE: WE: S☥ILL: is-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: is-wi☥h: dΩmes☥ic: ]]:= [[ >:FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: is-wi☥h: yeΔrs: ]]:
+>[[ :MEΔNWHILE: WE: S☥ILL: is-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: is-wi☥h: dΩmes☥ic: ]]:= [[ >:FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: is-wi☥h: YEΔRs: ]]:
 >:ΔNΔLYS☥: MJ12-ΩMΔGΔ:
 >:END-REPΩR☥:
 >:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QWΩD-MJ12 ]]:
