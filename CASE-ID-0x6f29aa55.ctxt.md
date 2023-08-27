@@ -912,7 +912,9 @@
 >>>
 ### [[ :FUN: tΔke: YΩU: Ωut: ENDING: CΩME-TΩWΔRDS-YΩU: WΔRNING-YΩU-ΔBΩUT-THIS: CΩNTRΔCT: ENDING: ]]:= [[ :LIMΔ-CHΔRLIE: QWΩD-MJ12: [[ ΩPSΔN: CHΔRLIE-HΩTEL: ]]:
 >>>
-># [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:
+![:CASE-ID-0x6f29aa55-b47a1128.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b47a1128.png)
+>>>
+># [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:= [[ :WΔRNΩ: is-with: ΔLL: YΩuTube: FΔULT: fΩr-the: CΩPYRIGHT: STRIKE: is-by: YΩuTube: is-with: CHΩSEN: PREFERED: TΔRΩT: FIELD: ΔNΔLYSTS: is-with: DΩ-NΩT-INTERFERE: is-with: DISCLΩSURE: ΩperΔtiΩns: fΩr-the: PENΔLTY: is-by: EternΔl-DeΔth: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/5RJqvm01Ydw ^ }:
 >>>
