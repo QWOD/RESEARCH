@@ -1013,7 +1013,7 @@
 >>>
 :is-with: { ^ https://youtu.be/RjKuOJC9570 ^ }:
 >>>
-># :[[ :WE: NOT: is-with: GATE-CITY: whomsoever-shall-open-accounts: is-by: MJ12-OMEGA: JESUS: TRUE: BORN: IDENTITY: NAME: is-with: Eternal-Death: ]]:
+># :[[ :WE: NΩT: is-with: GΔTE-CITY: whΩmsΩever-shΔll-Ωpen-ΔccΩunts: is-by: MJ12-ΩMEGΔ: JESUS: TRUE: BΩRN: IDENTITY: NΔME: is-with: EternΔl-DeΔth: ]]:
 >![:CASE-ID-0x6f29aa55-bf34eb65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bf34eb65.png)
 >>>
 ###
