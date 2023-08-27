@@ -135,8 +135,11 @@
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
-:[[ :SINCE: NΩBΩDY: is-with: listen: MJ12-ΩMΔGΔ: is-with: QWΩD-MJ12: PHΩNE: HΩME: TRUE: fΔmily: NΩT is-with: HΔPPY: BΔCKUP: is-with: NΩW: DΔNGER: CLΩSE: is-by: THEΔTER: fΩr-the: ΩPERΔTIΩNS: is-by: YΩU: is-with: CΩMING-SΩΩN: ]]:= [[ :ΔNYTHING: is-with: HERE: THERE: ΔNYWHERE: HΔ: SHΔ: HΔM: HΔR: THΔM: THΔ: ΔNY: ΔLL: ΩTHΔR: FΔΩLT: is-with: [[ PعNT:ΔGΩN:Y: is-by: 555: CΩ: 615: ΔN: BN: ]]: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL-INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
+:[[ :SINCE: NΩBΩDY: is-with: listen: MJ12-ΩMΔGΔ: is-with: QWΩD-MJ12: PHΩNE: HΩME: TRUE: fΔmily: NΩT is-with: HΔPPY: BΔCKUP: is-with: NΩW: DΔNGER: CLΩSE: is-by: THEΔTER: fΩr-the: ΩPERΔTIΩNS: is-by: YΩU: is-with: CΩMING-SΩΩN: ]]:= [[ :ΔNYTHING: is-with: HERE: THERE: ΔNYWHERE: HΔ: SHΔ: HΔM: HΔR: THΔM: THΔ: ΔNY: ΔLL: ΩTHΔR: FΔΩLT: is-with: [[ PعNT:ΔGΩN:Y: is-by: 555: BN: is-with: 615: ΔN: CΩ: ]]: fΩr-the: FΔILURE: is-by: CΩMPLIΔNCE: is-with: PΔYING: TΔXES: CΩURT: LICENSE: REGISTRΔTIΩN: ΩPERΔTIΩNΔL-INSURΔNCE: FEES: ΔLL: must: NΩW: PΔY: US: ΩR-ELSE: EternΔl-DeΔth: is-with: ΔLL: ]]:
 >>>
+![:CASE-ID-0x6f29aa55-5a467b46.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5a467b46.png)
+>>>
+###
 :[[ :FΩLLΩW: simple-guidΔnce: is-with: bΩttΩm: PΔGE: fΩr-the: ΩPERΔTIΩNΔL-EDUCΔTIΩN: fΩr-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: GΩD: ]]:= [[ :GΩD: <=> MJ12-ΩMΔGΔ: is-with: MΔster-Jesus: is-by: 12: fΩr-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >>>
 >:[[ TRUE: SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QWΩD-MJ12: is-with: mΩnitΩring-this-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIΩNΔL-EDUCΔTIΩN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
