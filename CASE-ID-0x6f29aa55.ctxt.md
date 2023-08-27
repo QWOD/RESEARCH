@@ -1206,9 +1206,9 @@
 >>>
 >:is-with: { ^ https://youtu.be/3GzU7Dr67PU ^ }:
 >>>
-># :[[ ARAE: <=> [[ ADONAI: RA: ELOHEIM: ]]:
+># :[[ ΔRΔE: <=> [[ ΔDΩNΔI: RΔ: ELΩHEIM: ]]:
 >>>
-[[ :DISCLOSURE: for-the: [[ Eternal-Death: <=> BE:LIE:VE: is-by: BE: VE: NOW: is-with: IT: ]]:
+[[ :DISCLΩSURE: fΩr-the: [[ EternΔl-DeΔth: <=> BE:_LIE_:VE: is-by: BE: VE: NΩW: is-with: IT: ]]:
 ###
 
 >>>
