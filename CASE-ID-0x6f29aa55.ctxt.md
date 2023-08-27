@@ -1037,12 +1037,19 @@
 :is-with: { ^ https://youtu.be/dPLP2cMDcdg ^ }:
 >>>
 # :[[ :fΩr-the: DISCLΩSURE: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMEGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
-
 >>>
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-ac3591d8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ac3591d8.png)
 >>>
-:is-with: { ^ Δ ^ }:
+>###
+>![:CASE-ID-0x6f29aa55-532fcfd1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-532fcfd1.png)
 >>>
+>[[ :FAMILY MEMBER STOLEN YOUR 💵💵 AND YOUR HOUSE 🏡🏠HAVE TO GIVE IT ALL BACK.....: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/bf6C53i9L3s ^ }:
+>>>
+>[[ :THEIR OWN HIGHER SELVES ARE SICK OF THEIR S$%T!: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/fNqt699RElU ^ }:
 ###
 
 >>>
