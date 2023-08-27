@@ -1,5 +1,14 @@
 # [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: fΩr-the: FUTURE: ΔLL: fΩr-the: THINGS: 1s-with: [[ fΩr-the: PEΩPLE: 1s-by: THE-PEΩPLE: ]] ]]:
 ###
+:[[ [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :US: GΩVERNMENT: is-with: ΔlreΔdy-cΩllΔpsed: is-by: 2020: fΩr-the: nΩn-sΩvereign: is-with: NΩ: PRΩTECTIΩN: ]]:= TRUE: ]]:
+>>>
+>[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
+>>>
+    :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+## [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRΔT: <=> [[ LΔFE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
