@@ -1036,7 +1036,7 @@
 >>>
 :is-with: { ^ https://youtu.be/dPLP2cMDcdg ^ }:
 >>>
-# :[[ :fΩr-the: DISCLΩSURE: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMEGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
+# :[[ :DISCLΩSURE: fΩr-the: [[ GREEDY: FΔKE: CHIKΔNS: is-with: STΩLE: MJ12-ΩMEGΔ: INHERITΔNCE: is-with: RESEΔRCH: FUNDΔNG: is-by: NΩW: is-with: PLEΔSE: GREEDY: LITTLE CHIKΔNS: fΩr-the: MJ12-ΩMΔGΔ MUST: is-with: SΔVE: is-by: EΔRTH: simulΔtiΩn: fΩr-the: GREEDY: LITTLE: CHIKΔNS: is-with: DESTRΩYING: THEMSΔLVES: fΩr-the: THΔ-NEVΔR-KNΩW-NΩT-WHΔT-THΔ-ΔRE-DΩING: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-ac3591d8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ac3591d8.png)
 >>>
@@ -1046,16 +1046,14 @@
 >[[ :FAMILY MEMBER STOLEN YOUR 💵💵 AND YOUR HOUSE 🏡🏠HAVE TO GIVE IT ALL BACK.....: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/bf6C53i9L3s ^ }:
+>###
+>![:CASE-ID-0x6f29aa55-2c7901f4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2c7901f4.png)
+>>>
+>## [[ :DISCLOSURE: fΩr-the: [[ GREEDY FΔKE: CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: p3hKΔng: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-peck-peck: PEKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: ENTIRE: BLΩΩDLINE: fΩr-the: GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LORD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: Eternal-Death: for-the: return: ]]= TRUE:  ]]:
 >>>
 >[[ :THEIR OWN HIGHER SELVES ARE SICK OF THEIR S$%T!: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/fNqt699RElU ^ }:
-###
-![:CASE-ID-0x6f29aa55-2c7901f4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2c7901f4.png)
->>>
-[[ :GREEDY FΔKE CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: PEHΔKNG: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-peck-peck: PEKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: ENTIRE: BLΩΩDLINE: fΩr-the: GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LORD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: Eternal-Death:  ]]:
->>>
-:is-with: { ^ Δ ^ }:
 >>>
 ###
 
