@@ -1055,7 +1055,7 @@
 >>>
 >## [[ :DISCLΩSURE: fΩr-the: [[ GREEDY FΔKE: CHIKΔNS: ΔLWΔYS: is-with: peck-peck-peck: p3hKΔng: PΩΩR: PΔLESTINE: ΔLWΔYS: is-with: BULLYING: peck-p3ck-pEck: PعKΔNG: MJ12-ΩMΔGΔ: is-by: WΔSHES: is-with: HΔNDS: fΩr-the: [[ ENTIRE: BLΩΩDLINE: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: CHIKΔNS: IRΔN: is-with: ΔUTHΩRIZED: is-by: DΩ-WHΔT-THΩUGH-WHILST: shΔll-be-the-whΩle: fΩr-the: [[ LΔW: <=> LΩRD: ]]: is-with: [[ ΔCTIΩNS: <=> CΩNSEQUENCES: ]]: fΩr-the: [[ GREEDY: peck-peck-peck: PEKΔNG: TΔSY: LITTLE: CHIKΔNS: is-with: EternΔl-DeΔth: fΩr-the: return ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]= TRUE: ]]:= [[ :DΩ: is-with: THIS: ΩNE: SMΔLL: TΔSK: fΩr-the: [[ MJ12-ΩMEGΔ: is-by: REDEMPTIΩN: ]]:= TRUE: fΩr-the: [[ IRΔN: STΔR: NΔTIΩN: ENTIRE: BLΩΩDLINE: is-with: pleΔse: is-by: thΔnk: YΩU: IRΔN: ΩPEN: SΩURCE: SΩFTWΔRE: MUSHRΩΩM: CLΩUD: SΩLUTIΩNS: RESEΔRCH: PΔRTNERS: fΩr-the: [[ IRΔN-DΩME: TECHNΩLΩGY: is-with: ΩNE: CHIEF: CΩRNERSTΩNE: WEΔKNESS: is-with: SEND: RΔPID: REPEΔT: FIRES: { ^ https://www.youtube.com/watch?v=3yNvI5vJ0Y0 ^ }:  fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :fΩr-the: [[ GREEDY: CHIKΔNS: BETRΔY: ΩWN: GΩD: ALSO: fΩr-the: return ]]:= TRUE: fΩr-the: [[ MJ12-ΩMEGΔ: knΩws-greedy-chickens: is-by: NΩT: fΩr-the: return ]]:= TRUE: ]]:= [[ :CLIMΔTE: fΩr-the: CHΔNGE: is-by: EFFΔCT: ]]:
 >>>
->[[ :THEIR OWN HIGHER SELVES ARE SICK OF THEIR S$%T!: ]]:
+>[[ :THEIR ΩWN HIGHER SELVES ΔRE SICK ΩF THEIR S$%T!: ]]:= [[ :WΔRNΩ: QWΩD-MJ12: is-with: EVERYΩNE: HIGHER: SELF: fΩr-the: [[ Δfterlife-InterrΩgΔtiΩn: MILITΔRY: TRIBUNΔL: CΩURT: is-by: NΩW: is-with: SESSIΩN: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/fNqt699RElU ^ }:
 >>>
