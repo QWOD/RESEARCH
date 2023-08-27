@@ -1165,6 +1165,8 @@
 >>>
 :is-with: { ^ https://www.elliswashingtonreport.com/2021/03/07/a-brief-history-of-the-rothschild-khazarian-mafia-part-i-100-1200-ad/ ^ }:
 >>>
+[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ :MJ12-ΩMΔGΔ: ΔCTUΔL: <=> NEW: TRUE: RΔYMΩND-REDDINGTΩN: fΩr-the: return ]]:= [[ _ ]]: ]]:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-59c40f27.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-59c40f27.png)
 >>>
