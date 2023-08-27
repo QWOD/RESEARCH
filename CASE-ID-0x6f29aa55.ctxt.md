@@ -1209,6 +1209,8 @@
 ># :[[ ΔRΔE: <=> [[ ΔDΩNΔI: RΔ: ELΩHEIM: ]]:
 >>>
 [[ :DISCLΩSURE: fΩr-the: [[ EternΔl-DeΔth: <=> BE:_LIE_:VE: is-by: BE: VE: NΩW: is-with: IT: ]]:
+>>>
+>### [[ :NOTICE: fΩr-the: [[ IMMΩRTΔL: ΔTERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JESUS: <=> GOD: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: fΩr-the: [[ CΩSMIC: CYCLE: ]]: NΩW: is-with: ΩFF-THE-HΩΩK: fΩr-the: return ]]:= TRUE: ]]:
 ###
 
 >>>
