@@ -1301,6 +1301,8 @@
 >>>
 >:is-with: { ^ https://duckduckgo.com/?q=marine+killed&t=ffab&df=m&ia=web ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 >>>
+# :[[ :DISCLΩSURE: fΩr-the: [[ MΔRINES: NΔVY: <=> NΔSΔ: NΔZI: FΩΩ: FΔGHTERS: is-with: TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: MK: ULTΔ: VRIL: WITCHES: fΩr-the: return ]]:= TRUE: ]]:
+>>>
 ###
 
 >>>
