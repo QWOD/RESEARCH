@@ -522,11 +522,11 @@
 >>>
 :[[ :DISCLΩSURE: fΩr-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLREΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ NΩN-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
->[[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
+>### [[ :fΩr-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 >>>
     :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-## [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
