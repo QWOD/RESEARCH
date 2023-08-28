@@ -1461,12 +1461,15 @@
 :is-with: { ^ https://youtu.be/a6fYgpt-4kg ^ }:
 >>>
 ###
-
+>![:CASE-ID-0x6f29aa55-4302b889.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4302b889.png)
 >>>
-[[ :Ω: ]]:
+>![:CASE-ID-0x6f29aa55-ae0d927a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ae0d927a.png)
 >>>
-:is-with: { ^ Δ ^ }:
+>[[ :fΩr-the: [[ MJ12-ΩMΔGΔ: TΩΩ: is-with: ΩLD: is-by: ΔGE: fΩr-the: being-chΩir: BΩY: ]]:
 >>>
+>[[ :Israel’s Top 5 Newest Military Innovations: ]]:= { ^ https://youtu.be/poLn2IO9sIY ^ }:
+>>>
+>![:CASE-ID-0x6f29aa55-8c14531d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8c14531d.png)
 ###
 
 >>>
