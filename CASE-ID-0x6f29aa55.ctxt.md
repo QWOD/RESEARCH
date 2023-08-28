@@ -1324,18 +1324,18 @@
 :is-with: { ^ https://youtu.be/eTSaTzAH0v4 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-338ba9b8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-338ba9b8.png)
 >>>
-[[ :Ω: ]]:
+[[ :IT'S ABOUT TO BE ARREST WARRANTS ISSUED OUT 👮🏽‍♀️⛓️📃⛓️🚔⛓️👮: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/dUjwrbk48I4 ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :XB-70 Valkyrie: America’s Mach 3 Super Bomber Ever Built: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/cEd9rN_K9p0 ^ }:
 >>>
 ###
 
