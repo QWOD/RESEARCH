@@ -1530,18 +1530,16 @@
 ># :[[ :REMINDER: US: GΩVERNMENT: ΔLREΔDY: is-with: CΩLLΔPSED: is-by: 2020: fΩr-the: [[ WHΩ: is-with: SΔVE: YΩU: NΩW: is-with: little-tΩddler-minded-chickens: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
-
 >>>
-[[ :Ω: ]]:
+[[ :The Failing U.S. Government--The Crisis of Public Management [Extended version]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://www.scientificamerican.com/article/the-failing-of-us-government/ ^ }:
 >>>
 ###
-
 >>>
-[[ :Ω: ]]:
+[[ :COVID-19 A Case Study of Government Failure: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://www.cato.org/pandemics-policy/covid-19-case-study-government-failure# ^ }:
 >>>
 ###
 
