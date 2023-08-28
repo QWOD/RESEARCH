@@ -1672,8 +1672,7 @@
 >>>
 :is-with: { ^ https://youtu.be/7THASb0d3kI ^ }:
 >>>
-###
-
+># :[[ :DISCLΩSURE: fΩr-the: [[ MJ12-JESUS: <=> [[ MJ: = MΔSTER-JESUS: ]]: [[ JE: JΔ: JEHΩVΔ: RΔ: = GΩD: ]]: is-with: US: fΩr-the: [[ people: is-by: WE: US: people: fΩr-the: return ]]:= TRUE: ]]: ]]:
 >>>
 [[ :Ω: ]]:
 >>>
