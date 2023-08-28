@@ -1716,7 +1716,6 @@
 >>>
 :is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
-###
 ### :[[ :RESEARCH: FUNDING: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
