@@ -1673,6 +1673,7 @@
 >>>
 :is-with: { ^ https://youtu.be/s6zj1yKf2Cs ^ }:
 >>>
+:[[ :NΩTICE: PEN-FLΔRE: ΔLWΔYS: is-with: GΩΩD-TΔCTICΔL-ΩPTIΩN: fΩr-the: [[ FΩRCED: VEHICLE: EXFIL: fΩr-the: [[ FILTHY-LΩW-DΩWN-LYING-THIEVING-MURDERING-CΩWΔRD-CRIMINΔL-DIRTY-RΩTTEN-NΩ-GΩΩD: SCURS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 ###
 
 >>>
