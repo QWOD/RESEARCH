@@ -1844,9 +1844,9 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :God is about to fund it 💸🙌🏻 _: chose:none: _: propheticword: _: theholyspirit: _: prayer: ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/hTbyyfpFOqY ^ }:
 >>>
 ###
 
