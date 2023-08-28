@@ -1309,6 +1309,9 @@
 >>>
 :is-with: { ^ https://youtu.be/-i7ekK9UzRk ^ }:
 >>>
+[[ :Katy Perry - Part Of Me (Official): ]]:= [[ :DISCLΩSURE: fΩr-the: [[ NΔSΔ: NΔZI: NΔVY: VRIL: PΔRΔSITE: is-with: PΔRT: is-by: ME: fΩr-the: KΔty-Perry: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+:is-with: { ^ https://youtu.be/uuwfgXD8qV8 ^ }:
 ###
 ![:CASE-ID-0x6f29aa55-ef3b5836.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ef3b5836.png)
 >>>
