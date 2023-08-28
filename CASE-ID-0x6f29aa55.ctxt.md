@@ -1371,11 +1371,11 @@
 :is-with: { ^ https://youtu.be/vUXiNogUXdI ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-92868b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-92868b7c.png)
 >>>
-[[ :Ω: ]]:
+[[ :.: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/zkIvmyACsDw ^ }:
 >>>
 ###
 
