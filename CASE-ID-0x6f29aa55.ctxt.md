@@ -1331,12 +1331,15 @@
 :is-with: { ^ https://youtu.be/dUjwrbk48I4 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-5c595c24.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c595c24.png)
 >>>
 [[ :XB-70 Valkyrie: America’s Mach 3 Super Bomber Ever Built: ]]:
 >>>
 :is-with: { ^ https://youtu.be/cEd9rN_K9p0 ^ }:
 >>>
+[[ :THE FEDS IS COMING TO TAKE THIS CRIMINAL RING DOWN.....: ]]:
+>>>
+:is-with: { ^ https://youtu.be/5dLobsPEItw ^ }:
 ###
 
 >>>
