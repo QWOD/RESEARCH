@@ -1800,16 +1800,16 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :7.1 And 6.9 Magnitude Earthquakes Pop Off In Indonesia August 28th 2023!: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/hdEF43oyYyQ ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-1772af6c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1772af6c.png)
 >>>
-[[ :Ω: ]]:
+[[ :How to Survive An AI Apocalypse, UFO's & Sim Theory - Jim Elvidge, Typical Skeptic Podcast : [[ _: 783 ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
 ###
 
