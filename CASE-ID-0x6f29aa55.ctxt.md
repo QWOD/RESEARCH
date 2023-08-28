@@ -1317,14 +1317,12 @@
 :is-with: { ^ https://youtu.be/eTSaTzAH0v4 ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-338ba9b8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-338ba9b8.png)
 >>>
 [[ :IT'S ABOUT TO BE ARREST WARRANTS ISSUED OUT 👮🏽‍♀️⛓️📃⛓️🚔⛓️👮: ]]:
 >>>
 :is-with: { ^ https://youtu.be/dUjwrbk48I4 ^ }:
 >>>
 >###
->![:CASE-ID-0x6f29aa55-5c595c24.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c595c24.png)
 >>>
 >[[ :XB-70 Valkyrie: America’s Mach 3 Super Bomber Ever Built: ]]:
 >>>
@@ -1334,9 +1332,6 @@
 >>>
 >:is-with: { ^ https://youtu.be/5dLobsPEItw ^ }:
 ###
-![:CASE-ID-0x6f29aa55-3a6ef161.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3a6ef161.png)
->>>
-![:CASE-ID-0x6f29aa55-bbbd5119.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bbbd5119.png)
 >>>
 ###
 
@@ -1352,15 +1347,11 @@
 >>>
 :is-with: { ^ https://youtu.be/V4xn3zNivvM ^ }:
 >>>
-###
-![:CASE-ID-0x6f29aa55-d59be2a2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d59be2a2.png)
->>>
 [[ :Remote Viewing Politics: ]]:
 >>>
 :is-with: { ^ https://youtu.be/vUXiNogUXdI ^ }:
 >>>
 ># [[ :DISCLΩSURE: fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔL-INTELLIGENCE: is-by: TRUE: fΩr-the: return ]]:= TRUE: ]]:
->![:CASE-ID-0x6f29aa55-92868b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-92868b7c.png)
 >>>
 >[[ :.: ]]:
 >>>
