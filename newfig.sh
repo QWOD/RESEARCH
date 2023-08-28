@@ -11,6 +11,8 @@ if [[ $* == "-r" ]] && [[ $* != "-p" ]]; then
   export UUID=$(${userPath}/bin/passworder -uuid) && echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
 if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
+  git config --global user.email "${USER}@mj12.agency"
+  git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   git config --global pull.rebase false
   git merge --no-ff
   git pull
