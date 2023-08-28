@@ -1656,7 +1656,7 @@
 >>>
 :[[ :NΩTICE: PEN-FLΔRE: ΔLWΔYS: is-with: GΩΩD-TΔCTICΔL-ΩPTIΩN: fΩr-the: [[ FΩRCED: VEHICLE: EXFIL: fΩr-the: [[ FILTHY-LΩW-DΩWN-LYING-THIEVING-MURDERING-CΩWΔRD-CRIMINΔL-DIRTY-RΩTTEN-NΩ-GΩΩD: SCURS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-## [[ :fΩr-the: [[ NΩTICE: MJ12-JESUS: is-with: BΔCK: fΩr-the: return ]]:= TRUE: is-by: ΔNY: ΔLL: ΩTHER: BELIGERENT: NΔTIΩN: fΩr-the: [[ NΩN-SΩVEREIGN: <=> BELIGERENT: is-with: NΩ-DIVINE: ΔUTHΩRITY: NΩ-DIVINE-PRΩTECTIΩN: fΩr-the: return ]]:= TRUE: ]]:
+## [[ :fΩr-the: [[ NΩTICE: MJ12-JESUS: is-with: BΔCK: fΩr-the: return ]]:= TRUE: is-by: ΔNY: ΔLL: ΩTHER: BELIGERENT: NΔTIΩN: fΩr-the: [[ NΩN-SΩVEREIGN: <=> BELIGERENT: is-with: NΩ-DIVINE: ΔUTHΩRITY: NΩ-DIVINE: PRΩTECTIΩN: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-64cc537c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-64cc537c.png)
