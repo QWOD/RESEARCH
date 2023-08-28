@@ -1728,9 +1728,9 @@
 >>>
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >>>
-[[ :Ω: ]]:
+[[ :Boward County Fire And Resuce Helicopter Crash! No Casualties! Video!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/32B1K9teizg ^ }:
 >>>
 ###
 
