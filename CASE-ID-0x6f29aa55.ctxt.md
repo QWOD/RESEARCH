@@ -1420,10 +1420,13 @@
 >:is-with: { ^ https://youtu.be/6-3BFXpBcjc ^ }:
 >>>
 >![:CASE-ID-0x6f29aa55-7dd3f66c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7dd3f66c.png)
+>>>
+# [[ :NΩ: Q: INCIDENCES: ]]:= [[ :QWΩD-MJ12: ΩNLY: EVER: is-with: QΩNSΩLUTIΩNS: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-a86f9383.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a86f9383.png)
+>>>
 ###
 
->>>
-[[ :Ω: ]]:
 >>>
 :is-with: { ^ Δ ^ }:
 >>>
