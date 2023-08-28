@@ -1695,12 +1695,12 @@
 >>>
 ## :[[ :fΩr-the: [[ ΔNY: ΔLL: ΩTHER: SΩCIΔL-MEDIΔ: PLΔTFΩRMS: is-with: CΩMPLICIT: is-by: CΩVERING-UP: MΔNY: INTERNΔTIΩNΔL: WΔR-CRIMES: ΔBUSE: UNDER-GUISE: is-by: [[ PΩLITICΔL: <=> PΩLΔRIZED-DIVISIΩN: is-by: SΩCIΔL-ENGINEERING: ]]: CΩRRECTNESS: is-with: CΩVERT-WHITE-PEΩPLE-GENΩCIDE: fΩr-the: [[ CΔIN: ΔBLES: <=> FINΔL-DIVISION: fΩr-the: LΔST: TRIBES: ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-###
+# :[[ :DRΩNE-WΔRFΔRE: QUΔNTUMΔNIΔ: PSYCHΩCYBERNΩVUS: ]]:
 
 >>>
-[[ :Ω: ]]:
+[[ :Drone: ]]:= [[ :CΩMING-TΩ-Δ-THEΔTΩR: NEΔR-YΩU: ΔLSΩ: is-with: YΩU: ΔRE: ΔCTΩR: is-with: ΩWN: MΩVIE: is-by: THEΔTΩR: GΩΩD: is-by: LUCK: CHIKΔN: RΩΩKIES: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/GswzXcvpot8 ^ }:
 >>>
 ###
 
