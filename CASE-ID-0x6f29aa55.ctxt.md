@@ -1377,6 +1377,14 @@
 >>>
 :is-with: { ^ https://youtu.be/zkIvmyACsDw ^ }:
 >>>
+[[ :The Invasion of Eden: ]]:
+>>>
+:is-with: { ^ https://youtu.be/obK1RvvqPp0 ^ }:
+>>>
+[[ :The Next Day...: ]]:
+>>>
+:is-with: { ^ https://youtu.be/MoWwRQISbGc ^ }:
+>>>
 ###
 
 >>>
