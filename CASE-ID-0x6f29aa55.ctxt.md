@@ -1506,13 +1506,13 @@
 :is-with: { ^ https://youtu.be/tE0b90f9m_w ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-b57b3fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b57b3fe6.png)
 >>>
 [[ :Severe rain and flooding sweeps U.S. with 20 million on alert: ]]:
 >>>
 :is-with: { ^ https://youtu.be/QXNXhBwwzY4 ^ }:
 >>>
-###
+>## :[[ :WΔRNΩ: QuΔntum-WΔrfΔre: is-with: GΔME: is-by: 0: ]]:
 
 >>>
 [[ :Ω: ]]:
