@@ -1749,23 +1749,23 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :YOUR’E GODS FAVORITE 🤩 GOD CAN COUNT ON YOU !! You r being rewarded!!✝️: [[ _: god: _: rewards: ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Yee6cSgRRbY ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Unraveling Revelation: Inanna, Satan, Chaos, and the Destroyer: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/V-NNNGwUeD8 ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :DIVINE FEMININE: THESE PEOPLE MAD AND JEALOUS CAUSE OF THE PROPHECY OVER YOUR LIFE ⚖️💅💋✨🌟🌞SUN CHILD: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/IO4E7fbHl_k ^ }:
 >>>
 ###
 
