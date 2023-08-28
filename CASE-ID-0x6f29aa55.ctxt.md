@@ -1401,13 +1401,13 @@
 # :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: 5TUPID: peck-p3ck-pEck: PعKΔNG: C41KΔnي: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ MΩDERN: BLΩCKCHΔIN: CLΩUD: ΔI: ΔRC: HΔVE: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-f77913ae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f77913ae.png)
 >>>
-[[ :Ω: ]]:
+[[ :🔗SH!T IS ABOUT TO GO DOWN 🔗: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/9Mg79RQyurM ^ }:
 >>>
-###
+># :[[ :DID: SΩMEΩNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: GREEDY: CHIKΔNS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
