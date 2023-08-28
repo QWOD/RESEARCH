@@ -1421,11 +1421,11 @@
 :is-with: { ^ https://youtu.be/-18tkr36TbY ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-936f90c2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-936f90c2.png)
 >>>
-[[ :Ω: ]]:
+[[ :The Danger of Popcorn Polymer: Incident at the TPC Group Chemical Plant: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/6-3BFXpBcjc ^ }:
 >>>
 ###
 
