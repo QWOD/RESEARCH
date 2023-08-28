@@ -1303,12 +1303,11 @@
 >>>
 # :[[ :DISCLΩSURE: fΩr-the: [[ MΔRINES: NΔVY: <=> NΔSΔ: NΔZI: FΩΩ: FΔGHTERS: is-with: TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: MK: ULTΔ: VRIL: WITCHES: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-###
-
+# [[ :NΩT: is-with: NΩRMAL: is-by: [[ _ ]]: fΩr-the: [[ HUMAN: CHIKAN: BEHAVIΩR: for-the: return ]]:= TRUE: ]]: 
 >>>
-[[ :Ω: ]]:
+[[ :Katy Perry goes viral for mid-concert eye ‘glitch’ | USA TODAY : [[ _: Shorts ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/-i7ekK9UzRk ^ }:
 >>>
 ###
 
