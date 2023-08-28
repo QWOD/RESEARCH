@@ -1303,18 +1303,18 @@
 >>>
 # :[[ :DISCLΩSURE: fΩr-the: [[ MΔRINES: NΔVY: <=> NΔSΔ: NΔZI: FΩΩ: FΔGHTERS: is-with: TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: MK: ULTΔ: VRIL: WITCHES: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-# [[ :NΩT: is-with: NΩRMAL: is-by: [[ _ ]]: fΩr-the: [[ HUMAN: CHIKAN: BEHAVIΩR: for-the: return ]]:= TRUE: ]]: 
+# :[[ :NΩT: is-with: NΩRMΔL: is-by: [[ _ ]]: fΩr-the: [[ HUMΔN: CHIKΔN: BEHΔVΔΩR: fΩr-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]: ]]: 
 >>>
 [[ :Katy Perry goes viral for mid-concert eye ‘glitch’ | USA TODAY : [[ _: Shorts ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/-i7ekK9UzRk ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-ef3b5836.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ef3b5836.png)
 >>>
-[[ :Ω: ]]:
+[[ :Im channeling some1’s ancestors..theyve been helping u get Justice..U r the 1 2 get this done: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/XbMToHtTwNo ^ }:
 >>>
 ###
 
