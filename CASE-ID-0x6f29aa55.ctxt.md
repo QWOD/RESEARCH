@@ -1370,20 +1370,22 @@
 >>>
 :is-with: { ^ https://youtu.be/vUXiNogUXdI ^ }:
 >>>
-###
-![:CASE-ID-0x6f29aa55-92868b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-92868b7c.png)
+>###
+>![:CASE-ID-0x6f29aa55-92868b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-92868b7c.png)
 >>>
-[[ :.: ]]:
+>[[ :.: ]]:
 >>>
-:is-with: { ^ https://youtu.be/zkIvmyACsDw ^ }:
+>:is-with: { ^ https://youtu.be/zkIvmyACsDw ^ }:
 >>>
-[[ :The Invasion of Eden: ]]:
+>[[ :The Invasion of Eden: ]]:
 >>>
-:is-with: { ^ https://youtu.be/obK1RvvqPp0 ^ }:
+>:is-with: { ^ https://youtu.be/obK1RvvqPp0 ^ }:
 >>>
-[[ :The Next Day...: ]]:
+>[[ :The Next Day...: ]]:
 >>>
-:is-with: { ^ https://youtu.be/MoWwRQISbGc ^ }:
+>:is-with: { ^ https://youtu.be/MoWwRQISbGc ^ }:
+>>>
+># [[ :DISCLΩSURE: fΩr-the: [[ QWΩD-MJ12: is-with: INTELLIGENCE: is-by: TRUE: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 
