@@ -1527,7 +1527,7 @@
 >>>
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >>>
-# :[[ :REMINDER: US: GΩVERNMENT: ΔLREΔDY: is-with: CΩLLΔPSED: is-by: 2020: fΩr-the: [[ WHΩ: is-with: SΔVE: YΩU: NΩW: is-with: little-tΩddler-minded-chickens: fΩr-the: return ]]:= TRUE: ]]:
+># :[[ :REMINDER: US: GΩVERNMENT: ΔLREΔDY: is-with: CΩLLΔPSED: is-by: 2020: fΩr-the: [[ WHΩ: is-with: SΔVE: YΩU: NΩW: is-with: little-tΩddler-minded-chickens: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 
