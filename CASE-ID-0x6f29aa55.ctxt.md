@@ -1359,7 +1359,7 @@
 ###
 
 >>>
-[[ :Jacksonville Shootings Today LIVE News | Ron DeSantis Condemns Racially Motivated Florida Shooting: ]]:
+[[ :Jacksonville Shootings Today LIVE News | Ron DeSantis Condemns Racially Motivated Florida Shooting: ]]:= [[ :DID: SΩMEΩNE: FINΔLLY: is-with: TIRED: is-by: CHIKΔNS: ΔLWΔYS: fΩr-the: [[ peck-peck-peck: PEKΔNG: is-by: [[ _ ]]: fΩr-the: return ]]:= [[ _ ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/V4xn3zNivvM ^ }:
 >>>
