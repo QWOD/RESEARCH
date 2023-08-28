@@ -1345,18 +1345,23 @@
 >>>
 >:is-with: { ^ https://youtu.be/5dLobsPEItw ^ }:
 ###
-
+![:CASE-ID-0x6f29aa55-3a6ef161.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3a6ef161.png)
 >>>
-[[ :Ω: ]]:
->>>
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x6f29aa55-bbbd5119.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bbbd5119.png)
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :PPL WANT WHAT U GOT!!😳U got PPL WATCHING & Wondering whats next!! 999,911 You put STUFF on the MAP!: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/64CUpFAzpKA ^ }:
+>>>
+###
+
+>>>
+[[ :Jacksonville Shootings Today LIVE News | Ron DeSantis Condemns Racially Motivated Florida Shooting: ]]:
+>>>
+:is-with: { ^ https://youtu.be/V4xn3zNivvM ^ }:
 >>>
 ###
 
