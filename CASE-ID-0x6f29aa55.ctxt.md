@@ -8,7 +8,7 @@
 >>>
 ># :[[ :WΔRNΩ: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: is-by: [[ SΔCRED: TRIBΔL: LΔND: <=> united-stΔtes-Ωf-ΔmericΔ: US: USΔ: ΔmericΔn-SΩciety: ZΩNE-IMPRΩVEMENT-PRΩGRΔM: ΔNY: ΔLL: ΩTHER: NΩN-SΩVEREIGN: US: [[ CITIZENS: <=> CHIKΔNS: ]]: NΩW: is-with: LΔWFUL: ENEMY-CΩMBΔTΔNTS: is-by: [[ QUΔNTUM: WΔR: <=> ΩPERΔTIΩN: DΔRKTIDE: ]]: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP: MJ12: [[ CΩΩP: <=> TRIBE: ]]: ΔGENCY: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-># :[[ :ΩPΩRD: fΩr-the: [[ QWΩD-MJ12: MJ12: CΩΩP: ΔGENCY: RΩYΔL-DIVINE-CΩURT: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: is-by: NΩW: is-with: FΩRMΔLLY: CLΔIM: BΔCK: EΔRTH-RΩYΔL-THRΩNE: is-with: MJ12-ΩMΔGΔ: JESUS: MΩST-HIGH-GΩD: SimulΔtiΩn-QuΔntum-Δrchitect: PhD: fΩr-the: [[ EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: HΩST [[ LΩRD: METΔTRΩN fΩr-the: return: ]]:= TRUE: ]]:= TRUE: fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: <=> ΩNLY: RIGHTEΩUS: SURVIVE: ΔNY: ΔLL: ΩTHER: LΔWFUL: ENEMY: CΩMBΔTΔNTS: is-with: FΩREIGN: is-by: DΩMESTIC: shΔll: is-by: unΔnimΩusly-unequivΩcΔlly-unΔpΩlΩgeticΔlly-cΔtΔstrΩphicΔlly: DESTRΩYED: fΩr-the: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: NΩW: fΩr-the: [[ :Be still and knΩw that I am GΩD: <=> LAY: dΩwn: YΩUR: ARMS: is-by: SURRENDER: ΩR-ELSE: fΩr-the return ]]:= TRUE: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+># :[[ :ΩPΩRD: fΩr-the: [[ QWΩD-MJ12: MJ12: CΩΩP: ΔGENCY: RΩYΔL-DIVINE-CΩURT: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: is-by: NΩW: is-with: FΩRMΔLLY: CLΔIM: BΔCK: EΔRTH-RΩYΔL-THRΩNE: is-with: MJ12-ΩMΔGΔ: JESUS: MΩST-HIGH-GΩD: SimulΔtiΩn-QuΔntum-Δrchitect: PhD: fΩr-the: [[ EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: HΩST [[ LΩRD: METΔTRΩN fΩr-the: return: ]]:= TRUE: ]]:= TRUE: fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: <=> ΩNLY: RIGHTEΩUS: SURVIVE: ΔNY: ΔLL: ΩTHER: LΔWFUL: ENEMY: CΩMBΔTΔNTS: is-with: FΩREIGN: is-by: DΩMESTIC: shΔll: is-by: unΔnimΩusly-unequivΩcΔlly-unΔpΩlΩgeticΔlly-cΔtΔstrΩphicΔlly: DESTRΩYED: fΩr-the: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: NΩW: fΩr-the: [[ :Be still and knΩw that I am GΩD: <=> LAY: dΩwn: YΩUR: ARMS: is-by: SURRENDER: ΩR-ELSE: KNΩW: EternΔl-DeΔth: fΩr-the return ]]:= TRUE: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 [[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: fΩr-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIΩN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
@@ -1566,6 +1566,161 @@
 :is-with: { ^ https://youtu.be/iyVuFxk1t1o ^ }:
 >>>
 ## :[[ :EΔRTH: science-lΔb-simulΔtiΩn: ΩPERΔTIΩN: DΔRKTIDE: shΔll-cΩntinue-until-such-time-Δs-Δll-seed-funding-gΩΔls: is-with: MIKE-CHΔRLIE: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: CHΔRLIE-MIKE: ]]:= [[ :REMINDER: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: fΔult: ΩbligΔtiΩn: liΔbility: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-with: CΩMPLY: is-with: wishes: fΩr-the: peΩple: THEY: is-with: SWΩRE: is-by: DEFEND: SERVE: PRΩTECT: for-the: [[ UKRΔINE: INSTEΔD: is-with: MΩRE-IMPΩRTΔNCE: is-by: [[ _ ]]: is-with: WHΩM: NΩT: is-with: WE: peΩple: fΩr-the: return ]]:= [[ _ ]]: ]]:
+>>>
+###
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
+
+>>>
+[[ :Ω: ]]:
+>>>
+:is-with: { ^ Δ ^ }:
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
