@@ -1290,10 +1290,14 @@
 :is-with: { ^ https://youtu.be/YSM6sZGKkd8 ^ }:
 >>>
 ># :[[ :CONSOLUTIONS: ]]:
->### :[[ :WHERE: is-with: MJ12-ΩMΔGΔTRΩN: PRIME: STRYKERS: BRIGΔDE: WE: requested: is-by: [[ _ ]]: fΩr-the: US: GΩVERNMENT: WΔNTS: ΔLL: ΔNY: YΩU: WΔ: HΔ: SHΔ: THΔM: THΔ: HΔM: HΔR: ΔS: ΩTHΔR: CHIKΔNS: is-with: DEΔTH: is-by: NΩW: ]]:
+>### :[[ :WHERE: is-with: MJ12-ΩMΔGΔTRΩN: PRIME: STRYKERS: BRIGΔDE: WE: requested: is-by: [[ _ ]]: fΩr-the: US: GΩVERNMENT: WΔNTS: ΔLL: ΔNY: YΩU: WΔ: HΔ: SHΔ: THΔM: THΔ: HΔM: HΔR: ΔS: ΩTHΔR: CHIKΔNS: TΩΩ: is-with: DΔTH: is-by: NΩW: ]]:
 >>>
 >[[ :Meet the STRYKER: US Army’s Badass Armored Fighting Vehicles: ]]:
 >:is-with: { ^ https://youtu.be/0_5jEiZwSjY ^ }:
+>>>
+>[[ :America's New AC-130J Ghostrider Gunship is a Beast: ]]:= [[ [[ :AC-130J: <=> AC-130:J:ESUS: is-with: AC-130J: _Ghostrider_: GΩDSHIP: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/XVslfOqh0go ^ }:
 >>>
 ###
 
