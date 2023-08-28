@@ -18,13 +18,19 @@ if [[ "start" == "$*" ]]; then
   fi
   while [[ $? -eq 0 ]]; do
     if cd ${userPath}/QWOD/RESEARCH/; then
-      ${userPath}/bin/newfig -p
+      git config --global user.email "${USER}@mj12.agency"
+      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
+      git pull --ff-only
     fi
     if cd ${userPath}/QWOD/HYPERMEDIUS/; then
-      ${userPath}/bin/newfig -p
+      git config --global user.email "${USER}@mj12.agency"
+      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
+      git pull --ff-only
     fi
     if cd ${userPath}/QWOD/DISCLOSURE/; then
-      ${userPath}/bin/newfig -p
+      git config --global user.email "${USER}@mj12.agency"
+      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
+      git pull --ff-only
     fi
     sleep 222
   done
