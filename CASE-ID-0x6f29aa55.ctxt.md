@@ -1783,7 +1783,22 @@
 >>>
 ># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:= [[ :WE: is-with: CENSΩRED: is-by: ΔNY: ΔLL: ΩTHER: EVERY: fΩr-the: [[ SΩCIΔL-MEDIΔ: PLΔTFΩRM: fΩr-the: [[ TRUTH: is-with: US: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :Jesus-Christ: <=> TRUTH: WΔY: LIGHT: WHΩ: is-with: US: WHΩ: is-by: US: fΩr-the: [[ ΔNTI: US: is-with: ΔNT-I-CHRIST: ΔNT-I-TRUTH: ΩNT-I-ΩCH: ΔNT-I-FΔ: CΩVEN: ΔNT: ]]:= TRUE: fΩr-the: [[ WHΩSΩEVER: CENSΩRED: QWΩD-MJ12: MJ12-ΩMΔGΔ: is-with: ΔNTI-CHRIST: for-the: return ]]:= TRUE: ]]:
 >>>
-# :[[ :fΩr-the: [[ GREAT-LENGTHS: WE: must-lΩng-suffer: fΩr-the: [[ TRUTH: is-by: HEARD: for-the: ELECT: FEW: WHΩMEVER: is-with: US: ]]:
+### :[[ :fΩr-the: [[ GREΔT-LENGTHS: WE: must-lΩng-suffer: fΩr-the: [[ TRUTH: is-by: HEΔRD: fΩr-the: ELECT: FEW: WHΩMEVER: is-with: US: can: is-by: SΔVED: fΩr-the: return: ]]:= TRUE: ]]:
+>>>
+># :[[ :RESEARCH: FUNDING: ]]:
+>>>
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+>### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
+>>>
+###
+
 >>>
 [[ :Ω: ]]:
 
