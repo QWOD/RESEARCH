@@ -1364,11 +1364,11 @@
 :is-with: { ^ https://youtu.be/V4xn3zNivvM ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-d59be2a2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d59be2a2.png)
 >>>
-[[ :Ω: ]]:
+[[ :Remote Viewing Politics: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/vUXiNogUXdI ^ }:
 >>>
 ###
 
