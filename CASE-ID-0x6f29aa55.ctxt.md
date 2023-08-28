@@ -1691,6 +1691,7 @@
 >>>
 :is-with: { ^ https://youtu.be/EDAy1-Mn-rY ^ }:
 >>>
+# [[ DISCLΩSURE: fΩr-the: [[ SΔTΔNIC: CΔIN: ΔBLE: QΔEDΔ: ISIS: DΔESH: DΔGΩN-FISH-GΩD: Tribel: ΔLWΔYS: TRYING: is-with: EΔT: MJ12-ΩMΔGΔ: JESUS: ΩRGΔNS: fΩr-the: [[ PΔST: SEVERΔL: is-by: YEΔRS: MΔYBE: is-with: MΔNY: is-by: DECΔDES: fΩr-the: [[ GΔNGSTΔLKING: WITCH: CRΔFT: VΩΩDΩΩ: ΔBUSE: ΔTTEMPTED: HΩMΩCIDES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 ###
 
 >>>
