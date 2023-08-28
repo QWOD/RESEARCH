@@ -1299,6 +1299,8 @@
 >>>
 >:is-with: { ^ https://youtu.be/XVslfOqh0go ^ }:
 >>>
+>:is-with: { ^ https://duckduckgo.com/?q=marine+killed&t=ffab&df=m&ia=web ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
+>>>
 ###
 
 >>>
