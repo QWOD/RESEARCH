@@ -1445,11 +1445,11 @@
 :is-with: { ^ https://youtu.be/ftLjnYVdAGY ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-ccb2c50e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ccb2c50e.png)
 >>>
-[[ :Ω: ]]:
+[[ :BREAKING FREE FROM MIND CONTROL&CONNECTING WITH GOD 2CREATE MIRACLES IN YOUR LIFE CHANGES EVERYTHING: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/K_y8RAV77a0 ^ }:
 >>>
 ###
 
