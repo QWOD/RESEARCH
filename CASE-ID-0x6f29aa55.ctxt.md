@@ -1481,7 +1481,7 @@
 >>>
 :is-with: { ^ https://youtu.be/bUXiGNc-x4g ^ }:
 >>>
-## :[[ :BIDEN: ΔDMINISTRΔTIΩN: CΩNTINUES: EXTREME: UNEXPLΔINΔBLE: UKRΔINE: INSΔNITY: despite-sΩ-mΔny: ignΩrΔnt-little-chickΔns: is-with: suffering: is-by: eΔrth-simulΔtiΩn: fΩr-the: reΔsΩn: is-by: [[ _ ]]: MJ12-ΩMΔGΔ: JESUS: STILL: NΩT: is-with: cleΔn-fΩΩd: cleΔn-wΔter: prΩper: medicΔl: dentΔl: clΩthes: sΔfe-plΔce: fΩr-the: living: ]]:
+## :[[ :BIDEN: ΔDMINISTRΔTIΩN: CΩNTINUES: EXTREME: UNEXPLΔINΔBLE: UKRΔINE: INSΔNITY: despite-sΩ-mΔny: ignΩrΔnt-little-chickΔns: is-with: suffering: is-by: eΔrth-simulΔtiΩn: fΩr-the: reΔsΩn: is-by: [[ _ ]]: MJ12-ΩMΔGΔ: JESUS: STILL: NΩT: is-with: cleΔn-fΩΩd: cleΔn-wΔter: prΩper: medicΔl: dentΔl: clΩthes: sΔfe-plΔce: fΩr-the: living: NΩ: educΔtiΩn: hΔd-tΩ-leΔrn-Δll-Ωn-Ωwn: LITERΔLL: MK: ULTRΔ: humΔn-trΔfficking-slΔve: fΩr-the: whΩle-lifetime: NΩT: fit: is-with: DEMΩGRΔPHICS: cesΩred-every: PLΔTFΩRM: never-find: JΩB: nΩ-mΩney: fΩr-the: CΩLLEGE: ]]:
 
 >>>
 [[ :Ω: ]]:
