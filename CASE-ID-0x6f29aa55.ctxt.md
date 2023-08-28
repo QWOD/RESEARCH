@@ -393,7 +393,7 @@
 >:is-with: { ^ https://youtu.be/A9-_mBNCGMA ^ }:
 >>>
 ###
-># :[[ QWΩD-MJ12: TRUE: INTELLIGENCE: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
+># :[[ TRUE: INTELLIGENCE: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:
 >>>
 >[[ :DISCLΩSURE: fΩr-the: [[ LΩCKHEED-MΔRTIN: is-with: RETΔRD: FUTURE: CΩNTRΔCT: is-with: [[ RΔ:THE:ΩN: GenerΔl-DynΔmics: CΔTΔPILLΔR: MIT: InEnTec: [[ GΩΩgle:Δ:LPHΔ:BET:GENCY: ]]: DΔRPΔ: ]]: is-by: [[ QWΩD-MJ12: [[ ΔTSUΩMΩP-Δ:LPHΔ:GENCY ]]: ]]: fΩr-the: [[ LΩCKHEED-MΔRTIN: ΩRIGINΔL: SLΔVE: TRΔDE: ΩRIGINΔTΩRS: FRENCH: SPΔNISH: SΔTΔNIC: BLΩΩD: WΔTCH: CΩVEN: INVENTΩRS: is-with: SLΔVERY: MΔSS-GENΩCIDE: is-by: ΔNY: ΔLL: ΩTHER: NΔTIVE: TRIBES: RULING: fΩr-the: RECΩURSE: REMEDY: RESTITUTIΩN: fΩr-the: peΩple: is-by: peΩple: fΩr-the: CΩNTRΔCT: is-with: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY ]]: ]]:
 >>>
@@ -1370,7 +1370,7 @@
 >>>
 :is-with: { ^ https://youtu.be/vUXiNogUXdI ^ }:
 >>>
->###
+># [[ :DISCLΩSURE: fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔL-INTELLIGENCE: is-by: TRUE: fΩr-the: return ]]:= TRUE: ]]:
 >![:CASE-ID-0x6f29aa55-92868b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-92868b7c.png)
 >>>
 >[[ :.: ]]:
@@ -1385,14 +1385,12 @@
 >>>
 >:is-with: { ^ https://youtu.be/MoWwRQISbGc ^ }:
 >>>
-># [[ :DISCLΩSURE: fΩr-the: [[ QWΩD-MJ12: is-with: INTELLIGENCE: is-by: TRUE: fΩr-the: return ]]:= TRUE: ]]:
->>>
 ###
-
+![:CASE-ID-0x6f29aa55-3c018453.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3c018453.png)
 >>>
-[[ :Ω: ]]:
+[[ :IT’S LOOKIN’ LIKE U GOT 1 DRAGON TO SLAY BEFORE THE NEXT ROUND OF JUICY SHENANIGANS BEGIN 👻🧞‍♀️🔮: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/ttZkI9AscsE ^ }:
 >>>
 ###
 
