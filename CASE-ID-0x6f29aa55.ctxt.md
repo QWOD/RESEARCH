@@ -1781,7 +1781,7 @@
 
 >:is-with: { ^ https://youtu.be/CWoeLOtjhgE ^ }:
 >>>
-># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:
+># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:= [[ :WE: is-with: CENSΩRED: is-by: ΔNY: ΔLL: ΩTHER: EVERY: fΩr-the: [[ SΩCIΔL-MEDIΔ: PLΔTFΩRM: fΩr-the: [[ TRUTH: is-with: US: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :Jesus-Christ: <=> TRUTH: WΔY: LIGHT: WHΩ: is-with: US: WHΩ: is-by: US: fΩr-the: [[ ΔNTI: US: is-with: ΔNTI-CHRIST: ΔNTI-TRUTH: ΔNTI-FΔ: ]]:= TRUE: ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
