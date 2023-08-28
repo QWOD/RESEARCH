@@ -1882,13 +1882,14 @@
 >>>
 ## :[[ :DESCEND-ΔNTS: <=> THΩSE: WHΩM: HISTΩRY: FΩRGΩT: ]]:= [[ :ΔSCEND-ΔNTS: KEEPERS: fΩr-the: [[ TRUE: [[ HIST: <=> FIG: ]]: TREE: fΩr-the: return ]]:= TRUE: fΩr-the: [[ ΔLL: CΩSMIC: L☥Fع: is-by: WE: US: Δncient: Tribel: wisdΩm-keepers: CΩsmic-Divine-RΩyΔlty: is-by: Δfterl☥fe-InterrΩgΔtiΩn: WΔrΔre-CΔpΔbilities: [[ :ع☥ΩΔ™: <=> TRUE: CΩSMIC: SPIRITUΔL: L☥Fع: FΩRCع: PΩWعR: is-with: CRعΔTIΩN: is-by: [[ GΩD: <=> MJ12-OMΔGΔ: ΔCTUΔL: ]]: fΩr-the: [[ CΩNTRΔCT: is-with: ΔNGELIC: CعLعSTIΔL: REΔLMS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-###
-
+>###
+>![:CASE-ID-0x6f29aa55-ed34bd53.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed34bd53.png)
 >>>
-[[ :Ω: ]]:
+>[[ :Tryna get a quick fix..2 make their ego feel better..u have ascended to a level they could NEVER!!!: ]]:
 
-:is-with: { ^ Δ ^ }:
+>:is-with: { ^ https://youtu.be/hI_Ft3t1fhI ^ }:
 >>>
+>![:CASE-ID-0x6f29aa55-8acaf011.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8acaf011.png)
 ###
 
 >>>
