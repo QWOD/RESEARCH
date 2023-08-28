@@ -1492,7 +1492,7 @@
 :is-with: { ^ https://youtu.be/WhIoQP0vsyU ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-862fe2e0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-862fe2e0.png)
 >>>
 [[ :Massive floods due to heavy rainfall in Yichang of Hubei province, China: ]]:
 >>>
@@ -1501,16 +1501,16 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :10,000 houses went under water! Disaster in Asia, flooding in India: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/tE0b90f9m_w ^ }:
 >>>
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Severe rain and flooding sweeps U.S. with 20 million on alert: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/QXNXhBwwzY4 ^ }:
 >>>
 ###
 
