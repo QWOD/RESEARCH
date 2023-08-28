@@ -1454,7 +1454,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-984e75c1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-984e75c1.png)
 >>>
-# [[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ MΔNY: CΩUNTRIES: SUDDENLY: SΩ: is-with: desperΔte: is-by: MΩΩN: is-with: EVEN: crΔshing: is-by: MΩΩN: fΩr-the: [[ GΩVERNMENTS: NΩT: is-with: telling-ignΩrant-little-chickens: TRUTH: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
+# :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ MΔNY: CΩUNTRIES: SUDDENLY: SΩ: is-with: desperΔte: is-by: MΩΩN: is-with: EVEN: crΔshing: is-by: MΩΩN: fΩr-the: [[ GΩVERNMENTS: NΩT: is-with: telling-ignΩrant-little-chickens: TRUTH: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
 [[ :Russian spacecraft crashes into the Moon - BBC News: ]]:
 >>>
