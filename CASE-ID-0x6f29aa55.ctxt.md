@@ -1541,7 +1541,7 @@
 >>>
 :is-with: { ^ https://www.cato.org/pandemics-policy/covid-19-case-study-government-failure# ^ }:
 >>>
->## :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ IGNΩRΔNT: little-tΩddler-minded-self-destructing-humΔn-chicken-species: US: GΩVERNMENT: COULD-NΩT-EVEN: is-with: CΩVID-19: HΩW: US: is-with: HΔNDLE: QWΩD-MJ12: fΩr-the: return ]]:= [[ _ ]]: ]]:
+>## :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ IGNΩRΔNT: little-tΩddler-minded: self-destructing: humΔn-chicken-species: US: GΩVERNMENT: COULD-NΩT-EVEN: is-with: CΩVID-19: HΩW: US: is-with: HΔNDLE: fΩr-the: [[ QWΩD-MJ12: <=> TΩΩ-HΩT: fΩr-the: HΔNDLING: ]]:= TRUE: fΩr-the: return ]]:= [[ _ ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
