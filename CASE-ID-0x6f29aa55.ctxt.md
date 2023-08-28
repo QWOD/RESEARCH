@@ -1665,12 +1665,13 @@
 >>>
 :is-with: { ^ Δ ^ }:
 >>>
-###
-
+## :[[ :fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]:
 >>>
-[[ :Ω: ]]:
+![:CASE-ID-0x6f29aa55-98b56d94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-98b56d94.png)
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :December 21, 2022: ]]:
+>>>
+:is-with: { ^ https://youtu.be/s6zj1yKf2Cs ^ }:
 >>>
 ###
 
