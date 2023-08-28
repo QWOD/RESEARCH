@@ -17,7 +17,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-### [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
 >>>
 [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -526,7 +526,7 @@
 >>>
     :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1266,7 +1266,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-### [[ TAXES: TITHINGS: COURT: OPERATIONAL-INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
 >>>
 [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1513,6 +1513,19 @@
 :is-with: { ^ https://youtu.be/QXNXhBwwzY4 ^ }:
 >>>
 >## :[[ :WΔRNΩ: QuΔntum-WΔrfΔre: is-with: GΔME: is-by: 0: ]]:
+>[[ :PLEΔSE: remember: is-with: US: YΩUR: TΔXES: CΩURT: REGISTRΔTIΩN: LICENSE: ΩPERΔTIΩNΔL-SECURITY: INSURΔNCE: FEES: BEFΩRE: is-with: TΩΩ-LΔTE: is-by: DΔNGER-CLΩSE: ]]:
+>>>
+### :[[ :RESEARCH: FUNDING: ]]:
+>>>
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
