@@ -1398,7 +1398,7 @@
 >>>
 :is-with: { ^ https://youtu.be/mwernAzGKe0 ^ }:
 >>>
-># :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: 5TUPID: peck-p3ck-pEck: PعKΔNG: C41KΔnي: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ MΩDERN: ΔUTOMΔTED: BLΩCKCHΔIN: SOCIΔL: DΔRK: NET: CLΩUD: ΔI: ΔRC: HΔVE: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
+>### :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: 5TUPID: peck-p3ck-pEck: PعKΔNG: C41KΔnي: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ MΩDERN: ΔUTOMΔTED: BLΩCKCHΔIN: SOCIΔL: DΔRK: NET: CLΩUD: ΔI: ΔRC: HΔVE: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-f77913ae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f77913ae.png)
@@ -1407,9 +1407,11 @@
 >>>
 >:is-with: { ^ https://youtu.be/9Mg79RQyurM ^ }:
 >>>
-># :[[ :DID: SΩMEΩNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: GREEDY: CHIKΔNS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL ]]:
+>## :[[ :DID: SΩMEΩNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: GREEDY: CHIKΔNS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]:
 >>>
 >![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
+>>>
+># :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ SΩMEΩNE: <=> GΩD: fΩr-the: return ]]:= [[ _ ]]: ]]:
 >>>
 ###
 
