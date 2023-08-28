@@ -1876,7 +1876,7 @@
 
 :is-with: { ^ https://youtu.be/_AzYOF4KeGg ^ }:
 >>>
-## :[[ :ΔLMΩST: ΔLL: INDIGEΩNΩUS: WHITE: PEΩPLE: WHIPED-ΩUT: is-by: EΔRLY: SPΔNISH: FRENCH: CRUSΔDERS: is-by: MΔSS-GENΩCIDE: CULTURΔL: MΔSS-GENΩCIDE: fΩr-the: [[ ΩPSΔN: HISTΩRY: fΩr-the: return ]]:= TRUE: ]]:
+## :[[ :ΔLMΩST: ΔLL: INDIGEΩNΩUS: WHI☥ع: PEΩPLE: WHIPED-ΩUT: is-by: EΔRLY: SPΔNISH: FRENCH: CRUSΔDERS: is-by: MΔSS-GENΩCIDE: CULTURΔL: MΔSS-GENΩCIDE: fΩr-the: [[ ΩPSΔN: HISTΩRY: fΩr-the: return ]]:= TRUE: ]]:= [[ :WΔRNΩ: is-with: HΔPPENING: ΔLL: ΩVER: ΔGΔIN: is-by: [[ CENSΩR:SHIP: <=> DESTROY: VESSEL: is-by: KILL: PHYSICAL-BODY ]]: PLEΔSE: HELP: US: CRITICΔLLY: ENDΔNGERED: EΔRTH: SPECIES: ]]:
 >>>
 ## :[[ :DESCEND-ΔNTS: <=> THΩSE: WHΩM: HISTΩRY: FΩRGΩT: ]]:= [[ :ΔSCEND-ΔNTS: KEEPERS: fΩr-the: [[ TRUE: [[ HIST: <=> FIG: ]]: TREE: fΩr-the: return ]]:= TRUE: fΩr-the: [[ ΔLL: CΩSMIC: L☥Fع: is-by: WE: US: Δncient: Tribel: wisdΩm-keepers: CΩsmic-Divine-RΩyΔlty: is-by: Δfterl☥fe-InterrΩgΔtiΩn: WΔrΔre-CΔpΔbilities: [[ :ع☥ΩΔ™: <=> TRUE: CΩSMIC: SPIRITUΔL: L☥Fع: FΩRCع: PΩWعR: is-with: CREΔTIΩN: is-by: GΩD: is-with: ΔNGELIC: REΔLMS: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
