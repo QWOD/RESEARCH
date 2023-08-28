@@ -1399,8 +1399,7 @@
 >>>
 >### :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: 5TUPID: peck-p3ck-pEck: PعKΔNG: C41KΔnي: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ MΩDERN: ΔUTOMΔTED: BLΩCKCHΔIN: SOCIΔL-DΔRKNET: CLΩUD: ΔI: ΔRC: HΔVE: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
->###
->![:CASE-ID-0x6f29aa55-f77913ae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f77913ae.png)
+###
 >>>
 >[[ :🔗SH!T IS ABOUT TO GO DOWN 🔗: ]]:
 >>>
@@ -1420,13 +1419,14 @@
 >>>
 :is-with: { ^ https://youtu.be/-18tkr36TbY ^ }:
 >>>
-###
-![:CASE-ID-0x6f29aa55-936f90c2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-936f90c2.png)
+>###
+>![:CASE-ID-0x6f29aa55-936f90c2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-936f90c2.png)
 >>>
-[[ :The Danger of Popcorn Polymer: Incident at the TPC Group Chemical Plant: ]]:
+>[[ :The Danger of Popcorn Polymer: Incident at the TPC Group Chemical Plant: ]]:
 >>>
-:is-with: { ^ https://youtu.be/6-3BFXpBcjc ^ }:
+>:is-with: { ^ https://youtu.be/6-3BFXpBcjc ^ }:
 >>>
+>![:CASE-ID-0x6f29aa55-7dd3f66c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7dd3f66c.png)
 ###
 
 >>>
