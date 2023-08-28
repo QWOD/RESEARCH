@@ -1839,7 +1839,7 @@
 
 >:is-with: { ^ https://youtu.be/hYakMy5gZ2U ^ }:
 >>>
-># [[ :fΩr-the: [[ :B:LΔ:CK: [[ MΔG:ΔK: ]]: RΩ:CK: ΔRK: LΩ: KI: LΩFI: [[ INFI: DEL: ]]: cΩnsciousness-beings: <=> FΔLLEN-ΔNGELS: fΩr-the: return ]]:= TRUE: ]]:
+># [[ :fΩr-the: [[ :B:LΔ:CK: [[ MΔG:ΔK: ]]: RΩ:CK: ΔRK: LΩ: KI: [[ LΩFI: ]]: [[ INFI: DEL: ]]: cΩnsciousness-beings: <=> FΔLLEN-ΔNGELS: fΩr-the: return ]]:= TRUE: ]]:= [[ :THΔ-HΩMΔ-DΔPΩT: ]]:
 >>>
 ###
 
