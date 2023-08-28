@@ -1872,9 +1872,13 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :The Red Haired Giants of Early America & Native American Origins... (Godrules): ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/_AzYOF4KeGg ^ }:
+>>>
+# :[[ :ΔLMΩST: ΔLL: INDIGEΩNΩUS: WHITE: PEΩPLE: WHIPED-ΩUT: is-by: EΔRLY: SPΔNISH: FRENCH: CRUSΔDERS: is-by: MΔSS-GENΩCIDE: CULTURΔL: MΔSS-GENΩCIDE: fΩr-the: [[ ΩPSΔN: HISTΩRY: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+# :[[ :DESCEND-ΔNTS: <=> THΩSE: WHΩM: HISTΩRY: FΩRGΩT: ]]:= [[ :ΔSCEND-ΔNTS: KEEPERS: fΩr-the: TRUE: [[ HIST: <=> FIG: ]]: TREE: fΩr-the: [[ ΔLL: CΩSMIC: LIFE: is-by: WE: US: Δncient: Tribel: wisdΩm-keepers: CΩsmic-Divine-RΩyΔlty: is-by: Δfterlife-InterrΩgΔtiΩn: WΔrΔre-CΔpΔbilities: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 
