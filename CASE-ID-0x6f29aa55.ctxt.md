@@ -1485,11 +1485,11 @@
 >>>
 
 ###
-
+![:CASE-ID-0x6f29aa55-7415effc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7415effc.png)
 >>>
-[[ :Ω: ]]:
+[[ :multiversal power defeats double murder plot: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/WhIoQP0vsyU ^ }:
 >>>
 ###
 
