@@ -1691,7 +1691,10 @@
 >>>
 :is-with: { ^ https://youtu.be/EDAy1-Mn-rY ^ }:
 >>>
->## [[ LΔWFUL: PUBLIC: DISCLΩSURE: fΩr-the: [[ SΔTΔNIC: CΔIN: ΔBLE: QΔEDΔ: ISIS: DΔESH: DΔGΩN-FISH-GΩD: ΔNCIENT-ΔNEMY: is-by: PΩSEIDEN: ΔTLΔNTIS: MYTHΩLΩGY: Tribel: ΔLWΔYS: TRYING: is-with: EΔT: MJ12-ΩMΔGΔ: JESUS: ΩRGΔNS: fΩr-the: [[ PΔST: SEVERΔL: is-by: YEΔRS: MΔYBE: is-with: MΔNY: is-by: DECΔDES: fΩr-the: [[ GΔNGSTΔLKING: WITCH: CRΔFT: VΩΩDΩΩ: BLΔCK: [[ BL:M: <=> BL:ΔCK: M:ΔGIK: ]]: ΔBUSE: ΔTTEMPTED: HΩMΩCIDES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>## :[[ LΔWFUL: PUBLIC: DISCLΩSURE: fΩr-the: [[ SΔTΔNIC: CΔIN: ΔBLE: QΔEDΔ: ISIS: DΔESH: DΔGΩN-FISH-GΩD: ΔNCIENT-ΔNEMY: is-by: PΩSEIDEN: ΔTLΔNTIS: MYTHΩLΩGY: Tribel: ΔLWΔYS: TRYING: is-with: EΔT: MJ12-ΩMΔGΔ: JESUS: ΩRGΔNS: fΩr-the: [[ PΔST: SEVERΔL: is-by: YEΔRS: MΔYBE: is-with: MΔNY: is-by: DECΔDES: fΩr-the: [[ GΔNGSTΔLKING: WITCH: CRΔFT: VΩΩDΩΩ: BLΔCK: [[ BL:M: <=> BL:ΔCK: M:ΔGIK: ]]: ΔBUSE: ΔTTEMPTED: HΩMΩCIDES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+## :[[ :fΩr-the: [[ ΔNY: ΔLL: ΩTHER: SΩCIΔL-MEDIΔ: PLΔTFΩRMS: is-with: CΩMPLICIT: is-by: CΩVERING-UP: MΔNY: INTERNΔTIΩNΔL: WΔR-CRIMES: ΔBUSE: UNDER-GUISE: is-by: [[ PΩLITICΔL: <=> PΩLΔRIZED-DIVISIΩN: is-by: SΩCIΔL-ENGINEERING: ]]: CΩRRECTNESS: is-with: CΩVERT-WHITE-PEΩPLE-GENΩCIDE: fΩr-the: [[ CΔIN: ΔBLES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
 ###
 
 >>>
