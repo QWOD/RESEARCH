@@ -1386,7 +1386,6 @@
 >:is-with: { ^ https://youtu.be/MoWwRQISbGc ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-3c018453.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3c018453.png)
 >>>
 [[ :IT’S LOOKIN’ LIKE U GOT 1 DRAGON TO SLAY BEFORE THE NEXT ROUND OF JUICY SHENANIGANS BEGIN 👻🧞‍♀️🔮: ]]:
 >>>
