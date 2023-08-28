@@ -1167,7 +1167,7 @@
 >>>
 :is-with: { ^ https://youtu.be/Ylc5ToQoLg0 ^ }:
 >>>
-[[ :KILΩ-PΔPΔ: fΩr-the: [[ BΩDY-SNΔTCHING: is-with: GΩΩD: fΩr-the: [[ NΩTHING: LΩW-DΩWN: THIEVING: LYING: FΔCE-STEΔLING: RΩYΔL-INHERITΔNCE-SNΔTCHING: CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: FILTHY-SCURS: fΩr-the: return: ]]:= TRUE: ]]:= TRUE: ]]:
+[[ :KILΩ-PΔPΔ: fΩr-the: [[ BΩDY-SNΔTCHING: is-with: GΩΩD: fΩr-the: [[ NΩTHING: LΩW-DΩWN: THIEVING: LYING: FΔCE-STEΔLING: RΩYΔL-INHERITΔNCE-SNΔTCHING: YELLOW-BELLIE: CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: FILTHY-SCURS: WHY-I-ΩUTTΔ: fΩr-the: return: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-14ed17b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-14ed17b7.png)
 >>>
