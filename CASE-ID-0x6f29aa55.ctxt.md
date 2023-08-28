@@ -1452,11 +1452,13 @@
 :is-with: { ^ https://youtu.be/K_y8RAV77a0 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-984e75c1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-984e75c1.png)
 >>>
-[[ :Ω: ]]:
+# [[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ MΔNY: CΩUNTRIES: SUDDENLY: SΩ: is-with: desperΔte: is-by: MΩΩN: is-with: EVEN: crΔshing: is-by: MΩΩN: fΩr-the: [[ GΩVERNMENTS: NΩT: is-with: telling-ignΩrant-little-chickens: TRUTH: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :Russian spacecraft crashes into the Moon - BBC News: ]]:
+>>>
+:is-with: { ^ https://youtu.be/a6fYgpt-4kg ^ }:
 >>>
 ###
 
