@@ -1551,9 +1551,9 @@
 ###
 ![:CASE-ID-0x6f29aa55-8c35ea07.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8c35ea07.png)
 >>>
-[[ :GLΩBΔL-QUΔNTUM-CYBERNΩVΔ: fΩr-the: TΔKE: BΔCK: EΔRTH: is-with: IGNΩRΔNT: Δwful-greedy-grubby-selfish-little: self-centered-fΩul-mΩuthed: gΩΩd: fΩr-the: nΩthing: lΩw-dΩwn: dirty-yellΩw-bellied-cΩwΔrd: twΩ-bit: twΩ-fΔced: thieving-murdering-lying: tΩddler-minded: eΔrth-humΔn-chicken-scurs: ]]:
+[[ :GLΩBΔL-QUΔNTUM-CYBERNΩVΔ: fΩr-the: TΔKE: BΔCK: EΔRTH: is-with: IGNΩRΔNT: Δwful-greedy-grubby-selfish-little: self-centered-fΩul-mΩuthed: gΩΩd: fΩr-the: nΩthing: lΩw-dΩwn: dirty-yellΩw-bellied-cΩwΔrd: twΩ-bit: twΩ-fΔced: thieving-murdering-lying: tΩddler-minded: eΔrth-humΔn-chicken-scurs: fΩr-the: TRUE: GΩD: is-with: QWΩD-MJ12: WHΩ: CΔN: STΔND: is-by: US: is-with: US: fΩr-the: QWΩD-MJ12: ]]:
 >>>
-:is-with: { ^ https://www.youtube.com/results?search_query=flood+hurricane+wild+fire+tornado+tsunami+earthquake&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]
+:is-with: { ^ https://www.youtube.com/results?search_query=flood+hurricane+wild+fire+tornado+tsunami+earthquake+war&sp=EgIIBA%253D%253D ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]
 >>>
 ###
 
