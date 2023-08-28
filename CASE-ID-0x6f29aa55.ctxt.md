@@ -1668,7 +1668,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-751d1103.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-751d1103.png)
 >>>
-[[ :WARNING ⚠️ THIS LIBRIAN ♎️ JUDGEMENT IS ABOUT LIBERATION & JUSTICE FOR THE CHOSEN ONES ⚖️ PT.1: ]]:
+[[ :WARNING ⚠️ THIS LIBRIAN ♎️ JUDGEMENT IS ABOUT LIBERATION & JUSTICE FOR THE : [[ :CHOSE:N: ONES: ]]: ⚖️ PT.1: ]]:
 >>>
 :is-with: { ^ https://youtu.be/7THASb0d3kI ^ }:
 >>>
