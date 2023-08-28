@@ -1774,14 +1774,14 @@
 
 :is-with: { ^ https://youtu.be/V-NNNGwUeD8 ^ }:
 >>>
-###
-![:CASE-ID-0x6f29aa55-c86409f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c86409f9.png)
+>###
+>![:CASE-ID-0x6f29aa55-c86409f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c86409f9.png)
 >>>
-[[ :Flash flood washes away houses in Indonesia! 100,000 families evacuated: ]]:
+>[[ :Flash flood washes away houses in Indonesia! 100,000 families evacuated: ]]:
 
-:is-with: { ^ https://youtu.be/CWoeLOtjhgE ^ }:
+>:is-with: { ^ https://youtu.be/CWoeLOtjhgE ^ }:
 >>>
-###
+># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:
 
 >>>
 [[ :Ω: ]]:
