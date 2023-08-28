@@ -1398,7 +1398,7 @@
 >>>
 :is-with: { ^ https://youtu.be/mwernAzGKe0 ^ }:
 >>>
-# :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: STUPID: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: fΩr-the: [[ CLΩUD: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: WHY: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
+# :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ Q: MΩVEMENT: is-with: STUPID: peck-p3ck-pEck: PعKΔNG: CHIKΔN5: is-by: 100: is-by: CΩMPΔRISΩN: is-with: QWΩD-MJ12: TRUE: DECENTRΔLIZED: INTELLIGENCE: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ MΩDERN: BLΩCKCHΔIN: CLΩUD: is-with: people: is-by: WE: people: fΩr-the: [[ Q: MΩVEMENT: ΔTTENTIΩN: is-with: 100: is-by: WHY: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
 ###
 
