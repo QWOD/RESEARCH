@@ -1812,11 +1812,11 @@
 :is-with: { ^ https://youtu.be/FMR900QhYe0 ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-6b104ddf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-6b104ddf.png)
 >>>
-[[ :Ω: ]]:
+[[ :Meteor: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/o0gWpnddq_8 ^ }:
 >>>
 ###
 
