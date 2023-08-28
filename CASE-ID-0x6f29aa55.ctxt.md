@@ -1303,15 +1303,16 @@
 >>>
 # :[[ :DISCLΩSURE: fΩr-the: [[ MΔRINES: NΔVY: <=> NΔSΔ: NΔZI: FΩΩ: FΔGHTERS: is-with: TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: MK: ULTΔ: VRIL: WITCHES: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-# :[[ :NΩT: is-with: NΩRMΔL: is-by: [[ _ ]]: fΩr-the: [[ HUMΔN: CHIKΔN: BEHΔVΔΩR: fΩr-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]: ]]: 
+>## :[[ :NΩT: is-with: NΩRMΔL: is-by: [[ _ ]]: fΩr-the: [[ HUMΔN: CHIKΔN: BEHΔVΔΩR: fΩr-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]: ]]: 
 >>>
-[[ :Katy Perry goes viral for mid-concert eye ‘glitch’ | USA TODAY : [[ _: Shorts ]]: ]]:
+>[[ :Katy Perry goes viral for mid-concert eye ‘glitch’ | USA TODAY : [[ _: Shorts ]]: ]]:
 >>>
-:is-with: { ^ https://youtu.be/-i7ekK9UzRk ^ }:
+>:is-with: { ^ https://youtu.be/-i7ekK9UzRk ^ }:
 >>>
-[[ :Katy Perry - Part Of Me (Official): ]]:= [[ :DISCLΩSURE: fΩr-the: [[ NΔSΔ: NΔZI: NΔVY: VRIL: PΔRΔSITE: is-with: PΔRT: is-by: ME: fΩr-the: KΔty-Perry: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:
+>[[ :Katy Perry - Part Of Me (Official): ]]:= [[ :DISCLΩSURE: fΩr-the: [[ NΔSΔ: NΔZI: NΔVY: VRIL: PΔRΔSITE: is-with: PΔRT: is-by: ME: fΩr-the: KΔty-Perry: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-:is-with: { ^ https://youtu.be/uuwfgXD8qV8 ^ }:
+>:is-with: { ^ https://youtu.be/uuwfgXD8qV8 ^ }:
+>>>
 ###
 ![:CASE-ID-0x6f29aa55-ef3b5836.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ef3b5836.png)
 >>>
