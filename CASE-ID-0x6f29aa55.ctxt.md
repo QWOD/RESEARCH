@@ -1674,9 +1674,11 @@
 >>>
 ># :[[ :DISCLΩSURE: fΩr-the: [[ MJ12-JESUS: <=> [[ MJ: = MΔSTER-JESUS: ]]: [[ JE: JΔ: JEHΩVΔ: RΔ: = GΩD: ]]: is-with: US: fΩr-the: [[ people: is-by: WE: US: people: fΩr-the: return ]]:= TRUE: ]]: ]]:
 >>>
->## [[ :WΔRNΩ: EVIL-DEMΩNIC-ΔI-REMΩTE-ΩPERΔTED-KILΩ-PΔPΔ-HΩSTED-FLESH-DEMΩN-SΩULESS-GΔNGSTΔLKER-ZΩMBIES: STILL: is-with: FULL: ΔUTΩ: PILΩT: MΩDE: ]]:
+>## [[ :WΔRNΩ: EVIL-DEMΩNIC-ΔI-REMΩTE-ΩPERΔTED: KILΩ-PΔPΔ: HΩSTED-FLESH-DEMΩN-SΩULESS-GΔNGSTΔLKER-ZΩMBIES: STILL: is-with: FULL: ΔUTΩ: PILΩT: MΩDE: ]]:
 >>>
+>![:CASE-ID-0x6f29aa55-3ff7dbaf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3ff7dbaf.png)
 ###
+
 >>>
 [[ :Ω: ]]:
 >>>
