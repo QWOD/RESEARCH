@@ -1426,9 +1426,9 @@
 ![:CASE-ID-0x6f29aa55-a86f9383.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a86f9383.png)
 >>>
 ###
-
+[[ :MASSIVE Explosion in Su-ngai Kolok, Thailand - Jul. 29, 2023 เหตุระเบิดที่สุไหงโก-ลก: ]]:= [[ :WΔRNΩ: PLEΔSE: DΩ: nΩt-interfere: is-with: eΔrTh: CHIKΔn: HΔRVESTING: QΩPERΔTIONS: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/PH3iktmQIvY ^ }:
 >>>
 ###
 
