@@ -1561,7 +1561,7 @@
 >>>
 :is-with: { ^ https://youtu.be/iyVuFxk1t1o ^ }:
 >>>
-###
+## :[[ :EΔRTH: science-lΔb-simulΔtiΩn: ΩPERΔTIΩN: DΔRKTIDE: shΔll-cΩntinue-until-such-time-Δs-Δll-seed-funding-gΩΔls: is-with: Δchived: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: CHΔRLIE-MIKE: ]]:= [[ :REMINDER: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: fΔult: ΩbligΔtiΩn: liΔbility: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-with: CΩMPLY: is-with: wishes: fΩr-the: peΩple: THEY: is-with: SWΩRE: is-by: DEFEND: SERVE: PRΩTECT: ]]:
 
 >>>
 [[ :Ω: ]]:
