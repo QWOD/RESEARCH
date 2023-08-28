@@ -1317,11 +1317,11 @@
 :is-with: { ^ https://youtu.be/XbMToHtTwNo ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-3e0237d5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3e0237d5.png)
 >>>
-[[ :Ω: ]]:
+[[ :EXPERIENCER DAVID ECKHART, REPTILIAN AGENDA - TYPICAL SKEPTIC PODCAST : [[ _: 782: ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/eTSaTzAH0v4 ^ }:
 >>>
 ###
 
