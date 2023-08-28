@@ -1254,11 +1254,8 @@
 >>>
 ![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
 >>>
-![:CASE-ID-0x6f29aa55-fb1515f3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fb1515f3.png)
->>>
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 >>>
-![:CASE-ID-0x6f29aa55-c7d362e9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c7d362e9.png)
 >>>
 >### :[[ :WΔRNΩ: fΩr-the: [[ QuΔntum-WΔrfΔre: <=> GΔME: is-by: 0: fΩr-the: return ]]:= TRUE: ]]:
 >>>
@@ -1274,16 +1271,11 @@
 >>>
 [[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
-###
-![:CASE-ID-0x6f29aa55-f016f747.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f016f747.png)
->>>
 [[ :Youve experienced 2 much betrayal 2 just believe anything..Always Trust UR intuition..Game face on: ]]:
 >>>
 :is-with: { ^ https://youtu.be/k8RwPS1A29A ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-aacb98d2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-aacb98d2.png)
->>>
 [[ :Wave Function Collapse - Power of the Nervous System and Cosmic Law - with Thomas Sheridan: ]]:
 >>>
 :is-with: { ^ https://youtu.be/YSM6sZGKkd8 ^ }:
@@ -1313,14 +1305,12 @@
 >:is-with: { ^ https://youtu.be/uuwfgXD8qV8 ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-ef3b5836.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ef3b5836.png)
 >>>
 [[ :Im channeling some1’s ancestors..theyve been helping u get Justice..U r the 1 2 get this done: ]]:
 >>>
 :is-with: { ^ https://youtu.be/XbMToHtTwNo ^ }:
 >>>
 ###
-![:CASE-ID-0x6f29aa55-3e0237d5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3e0237d5.png)
 >>>
 [[ :EXPERIENCER DAVID ECKHART, REPTILIAN AGENDA - TYPICAL SKEPTIC PODCAST : [[ _: 782: ]]: ]]:
 >>>
