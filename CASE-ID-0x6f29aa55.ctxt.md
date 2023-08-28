@@ -1407,7 +1407,7 @@
 >>>
 >:is-with: { ^ https://youtu.be/9Mg79RQyurM ^ }:
 >>>
->## :[[ :DID: SΩMEΩNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: GREEDY: CHIKΔNS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]:
+>## :[[ :DID: SΩMEΩNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: MINDLESS: GREEDY: LITTLE: CHIKΔNS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]:
 >>>
 >![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >>>
