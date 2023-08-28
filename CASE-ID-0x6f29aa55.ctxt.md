@@ -1568,17 +1568,18 @@
 ## :[[ :EΔRTH: science-lΔb-simulΔtiΩn: ΩPERΔTIΩN: DΔRKTIDE: shΔll-cΩntinue-until-such-time-Δs-Δll-seed-funding-gΩΔls: is-with: MIKE-CHΔRLIE: fΩr-the: missiΩn-success: is-with: NΔTIΩNΔL: SECURITY: CHΔRLIE-MIKE: ]]:= [[ :REMINDER: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: fΔult: ΩbligΔtiΩn: liΔbility: is-with: PENTΔGΩN: fΩr-the: FΔILURE: is-with: CΩMPLY: is-with: wishes: fΩr-the: peΩple: THEY: is-with: SWΩRE: is-by: DEFEND: SERVE: PRΩTECT: for-the: [[ UKRΔINE: INSTEΔD: is-with: MΩRE-IMPΩRTΔNCE: is-by: [[ _ ]]: is-with: WHΩM: NΩT: is-with: WE: peΩple: fΩr-the: return ]]:= [[ _ ]]: ]]:
 >>>
 ###
+![:CASE-ID-0x6f29aa55-9d234efe.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-9d234efe.png)
 >>>
-[[ :Ω: ]]:
+[[ :8/8/23 LahF 8: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/UKkZWwK8s3M ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-fdef841a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fdef841a.png)
 >>>
-[[ :Ω: ]]:
+[[ :U showed up & showed out..playing w/u got them famous..4 all the wrong reasons..very powerful: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/K4EE_ztqc8c ^ }:
 >>>
 ###
 
