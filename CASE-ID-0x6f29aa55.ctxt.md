@@ -1473,11 +1473,15 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Evacuation of 22 million people! Flooding in Beijing! Typhoon Doskuri in China: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/yVoUoPT9JVA ^ }:
 >>>
-###
+[[ :The Marines Made Some New Toys: Tomahawks on Trucks || Peter Zeihan: ]]:
+>>>
+:is-with: { ^ https://youtu.be/bUXiGNc-x4g ^ }:
+>>>
+## :[[ :BIDEN: ΔDMINISTRΔTIΩN: CΩNTINUES: EXTREME: UNEXPLΔINΔBLE: UKRΔINE: INSΔNITY: despite-sΩ-mΔny-ignΩrΔnt-little-chickΔns-suffering: is-with: eΔrth-simulΔtiΩn: fΩr-the: reΔsΩn: is-by: [[ _ ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
