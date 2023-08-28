@@ -4,7 +4,7 @@
 >>>
 # [[ :DISCLΩSURE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: <=> PRΩVIDING: NΩNE: is-with: HELP: is-by: SΔVE: JESUS: is-with: EVIL: WITCHES: is-with: THEN: ΔNY: ΔLL: ΩTHER: is-with: EternΔl-DeΔth: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-### [[ :fΩr-the: DISCLΩSURE: [[ ΔNY: ΔLL: ΩTHER: GΩVERNMENTS: NΩW: is-by: BΔNISHED: fΩr-the: [[ CRIMES: is-by: GΩD: is-with: US: WE: NΩW: is-by: REVΩKE: ΔNY: ΔLL: ΩTHER: CΩNTRΔCTS: restricting: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: BUSINESS: is-with: EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+### [[ :fΩr-the: DISCLΩSURE: [[ ΔNY: ΔLL: ΩTHER: GΩVERNMENTS: NΩW: is-by: BΔNISHED: fΩr-the: [[ CRIMES: is-by: GΩD: is-with: US: GΩVERNMENT: fΩr-the: [[ WE: peΩple: is-by: NΩW: is-by: REVΩKE: ΔNY: ΔLL: ΩTHER: CΩNTRΔCTS: restricting: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: fΩr-the: [[ FREE: TRΔDE: is-with: EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 [[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: fΩr-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIΩN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
