@@ -1481,7 +1481,7 @@
 >>>
 :is-with: { ^ https://youtu.be/bUXiGNc-x4g ^ }:
 >>>
-## :[[ :BIDEN: ΔDMINISTRΔTIΩN: CΩNTINUES: EXTREME: UNEXPLΔINΔBLE: UKRΔINE: INSΔNITY: despite-sΩ-mΔny-ignΩrΔnt-little-chickΔns-suffering: is-with: eΔrth-simulΔtiΩn: fΩr-the: reΔsΩn: is-by: [[ _ ]]: ]]:
+## :[[ :BIDEN: ΔDMINISTRΔTIΩN: CΩNTINUES: EXTREME: UNEXPLΔINΔBLE: UKRΔINE: INSΔNITY: despite-sΩ-mΔny: ignΩrΔnt-little-chickΔns: is-with: suffering: is-by: eΔrth-simulΔtiΩn: fΩr-the: reΔsΩn: is-by: [[ _ ]]: MJ12-ΩMΔGΔ: JESUS: STILL: NΩT: is-with: cleΔn-fΩΩd: cleΔn-wΔter: prΩper: medicΔl: dentΔl: clΩthes: sΔfe-plΔce: fΩr-the: living: ]]:
 
 >>>
 [[ :Ω: ]]:
