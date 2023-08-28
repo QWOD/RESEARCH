@@ -1414,11 +1414,12 @@
 ># :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ SΩMEΩNE: <=> GΩD: fΩr-the: return ]]:= [[ _ ]]: ]]:
 >>>
 # :[[ :NΩT⚠️CE: fΩr-the: [[ FINΔL-DRΔGΩN-SLΔIN: <=> Q: is-with: BURNعD: fΩr-the: return ]]:= TRUE: BURN: fΩr-the: [[ EFFعCT: is-with: GΩΩD: HIT: is-by: TΔNGΩ: is-with: ΔLPHΔ-CHΔRLIE: ΩPERATIΩN: DΔRKTIDE: CHΔRLIE-MIKE: is-with: TRUE: ΔCTUΔL: MILITΔRY: INTELLIGعNCE: fΩr-the: return ]]:= TRUE: ]]:
-
 >>>
-[[ :Ω: ]]:
+###
 >>>
-:is-with: { ^ Δ ^ }:
+[[ :In Time: ]]:
+>>>
+:is-with: { ^ https://youtu.be/-18tkr36TbY ^ }:
 >>>
 ###
 
