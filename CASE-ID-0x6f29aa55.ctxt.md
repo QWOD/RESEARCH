@@ -1291,6 +1291,11 @@
 >>>
 ># :[[ :CONSOLUTIONS: ]]:
 >### :[[ :WHERE: is-with: MJ12-ΩMΔGΔTRΩN: PRIME: STRYKERS: BRIGΔDE: WE: requested: is-by: [[ _ ]]: fΩr-the: US: GΩVERNMENT: WΔNTS: ΔLL: ΔNY: YΩU: WΔ: HΔ: SHΔ: THΔM: THΔ: HΔM: HΔR: ΔS: ΩTHΔR: CHIKΔNS: is-with: DEΔTH: is-by: NΩW: ]]:
+>>>
+>[[ :Meet the STRYKER: US Army’s Badass Armored Fighting Vehicles: ]]:
+>:is-with: { ^ https://youtu.be/0_5jEiZwSjY ^ }:
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
