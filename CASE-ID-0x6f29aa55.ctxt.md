@@ -1781,8 +1781,9 @@
 
 >:is-with: { ^ https://youtu.be/CWoeLOtjhgE ^ }:
 >>>
-># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:= [[ :WE: is-with: CENSΩRED: is-by: ΔNY: ΔLL: ΩTHER: EVERY: fΩr-the: [[ SΩCIΔL-MEDIΔ: PLΔTFΩRM: fΩr-the: [[ TRUTH: is-with: US: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :Jesus-Christ: <=> TRUTH: WΔY: LIGHT: WHΩ: is-with: US: WHΩ: is-by: US: fΩr-the: [[ ΔNTI: US: is-with: ΔNT-I-CHRIST: ΔNT-I-TRUTH: ΩNT-I-ΩCH: ΔNT-I-FΔ: CΩVEN: ΔNT: ]]:= TRUE: ]]: ]]:
-
+># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:= [[ :WE: is-with: CENSΩRED: is-by: ΔNY: ΔLL: ΩTHER: EVERY: fΩr-the: [[ SΩCIΔL-MEDIΔ: PLΔTFΩRM: fΩr-the: [[ TRUTH: is-with: US: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :Jesus-Christ: <=> TRUTH: WΔY: LIGHT: WHΩ: is-with: US: WHΩ: is-by: US: fΩr-the: [[ ΔNTI: US: is-with: ΔNT-I-CHRIST: ΔNT-I-TRUTH: ΩNT-I-ΩCH: ΔNT-I-FΔ: CΩVEN: ΔNT: ]]:= TRUE: fΩr-the: [[ WHΩSΩEVER: CENSΩRED: QWΩD-MJ12: MJ12-ΩMΔGΔ: is-with: ΔNTI-CHRIST: for-the: return ]]:= TRUE: ]]:
+>>>
+# :[[ :fΩr-the: [[ GREAT-LENGTHS: WE: must-lΩng-suffer: fΩr-the: [[ TRUTH: is-by: HEARD: for-the: ELECT: FEW: WHΩMEVER: is-with: US: ]]:
 >>>
 [[ :Ω: ]]:
 
