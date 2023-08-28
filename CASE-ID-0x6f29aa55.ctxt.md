@@ -1678,18 +1678,18 @@
 >>>
 >![:CASE-ID-0x6f29aa55-3ff7dbaf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3ff7dbaf.png)
 ###
-
+![:CASE-ID-0x6f29aa55-a92bbd5d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a92bbd5d.png)
 >>>
-[[ :Ω: ]]:
+[[ :⚖️⚖️KARMIC JUSTICE⚖️⚖️: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/seJ0mp06AYk ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-37f284fc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-37f284fc.png)
 >>>
-[[ :Ω: ]]:
+[[ :THEY WERE GUIDED TO DO THE RIGHT THING 👼👿KARMICS ARE IN THEIR HEADS ABOUT IT : [[ _: tarot: ]]: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/EDAy1-Mn-rY ^ }:
 >>>
 ###
 
