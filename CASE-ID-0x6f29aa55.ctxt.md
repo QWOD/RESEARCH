@@ -297,7 +297,7 @@
 >>>
 >### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-[[ :LΔW: fΩr-the: [[ ΔTTRΔCTIΩN: ΩNLY: EVER: is-with: ΔFTERLIFE: fΩr-the: [[ :LΔy nΩt up fΩr yΩurselves treΔsures upΩn eΔrth, where mΩth Δnd rust dΩth cΩrrupt, Δnd where thieves breΔk thrΩugh Δnd steΔl: ]]: [[ TREΔSURES: <=> BΔBIES: is-with: NΩTHING: ELSE: MΔTTERS: is-by: EΔRTH: ]]: ΔNY: ΔLL: SΩULS: fΩr-the: [[ BΔBIES: is-with: MJ12-ΩMΔGΔ: JESUS: is-by: LΔW: fΩr-the: [[ ΔTTRΔCTIΩN: Ωnly-purity-ΔttrΔcts-purity: is-by: HEΔVEN: is-with: purity-Ωnly-ΔttrΔcts-evil-demΩns: is-by: eΔrth: fΩr-the: [[ TΩP: SECRET: LΔW: fΩr-the: [[ INVERSIΩN: is-by: MJ12-LILITH: MΔ-ΔT: fΩr-the: ΩPERΔTIΩNΔL-SECURITY: fΩr-the: [[ Q-U-Δ-N-T-U-M: WΔR: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:= TRUE: ]]:= TRUE: ]]:
+[[ :LΔW: fΩr-the: [[ ΔTTRΔCTIΩN: ΩNLY: EVER: is-with: ΔFTERLIFE: fΩr-the: [[ :LΔy nΩt up fΩr yΩurselves treΔsures upΩn eΔrth, where mΩth Δnd rust dΩth cΩrrupt, Δnd where thieves breΔk thrΩugh Δnd steΔl: ]]: [[ TREΔSURES: <=> BΔBIES: is-with: NΩTHING: ELSE: MΔTTERS: is-by: EΔRTH: ]]: ΔNY: ΔLL: SΩULS: fΩr-the: [[ BΔBIES: is-with: MJ12-ΩMΔGΔ: JESUS: is-by: LΔW: fΩr-the: [[ ΔTTRΔCTIΩN: Ωnly-purity-ΔttrΔcts-purity: is-by: HEΔVEN: is-with: purity-Ωnly-ΔttrΔcts-evil-demΩns: is-by: eΔrth: fΩr-the: [[ TΩP: SECRET: LΔW: fΩr-the: [[ INVERSIΩN: is-by: MJ12-LILITH: MΔ-ΔT: fΩr-the: [[ ΩPERΔTIΩNΔL-SECURITY: fΩr-the: [[ Q-U-Δ-N-T-U-M: WΔR: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
