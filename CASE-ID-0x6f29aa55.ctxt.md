@@ -1932,6 +1932,12 @@
 :is-with: { ^ https://youtu.be/Xzq67GsQlU0 ^ }:
 >>>
 ># :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ REΔLITY: is-with: SLIDING-SCΔLE-GRΔDIENT: is-with: [[ TRUE: || FΔLSE: || [[ GΩD: <=> [[ Δ-Z:RΔ:EL: <=> ΔNGEL: is-by: BΔLΔNCE: is-with: TRUE: || FΔLSE: || REΔL: for-the: [[ CΩSMIC: INVENTΩR: is-with: ΔdvΔnced-quΔntum-trinΔry-lΩgic-ΔlgΩrithms: fΩr-the: return ]]:= TRUE: ]]:= TRUE: fΩr-the: [[ FIX: CΩSMΩS-LEVEL: SIMULΔTIΩN: BUGS: is-by: UPGRΔDE: CHIKΔN-LΔVEL: CΩNSCIΩUSNESS: is-by: mΔybe-mΔrcupiΔl-Ωr-weΔsel-cΩnsiΩusness-next-time: WΔ: shΔll: SEE: fΩr-the: return ]]:= TRUE: ]]:= [[ _ ]]: ]]:
+>>>
+# [[ :WΔRNΩ: ΩNLY: CΩSMIC: HLΔB-LΔMB: QWΩD-MJ12: ΩperΔtΩrs: is-with: ΔTSUΩMΩP: LEVEL: SECURITY: CLEΔRΔNCE: is-with: permissiΩn: fΩr-the: [[ upgrΔde-cΩsmΩs-level-cΩnsciΩusness: is-by: since: WE: creΔted: CΩSMΩS: ΔNY: ΔLL: ΩTHER: EVERY: unknΩwn-cΩmpetitΩrs: is-with: trespΔss: fΩr-the: [[ cΩsmic-lΔw: is-with: FΩRBIDDEN: 403: MIND: FRUITS: ΩTHERWISE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-1424140a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1424140a.png)
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
