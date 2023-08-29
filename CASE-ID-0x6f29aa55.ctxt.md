@@ -2081,6 +2081,10 @@
 >>>
 ![:CASE-ID-0x6f29aa55-56010440.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-56010440.png)
 ###
+>>>
+># :[[ :WΔRNΩ: for-the: [[ NΩRTH-ΔMERICΔ: BELΩNGS: is-with: ΔNCIENT: LΔND-CΩVEN: is-with: PΩLΔRIΔN-SPECIES: ΔSCENDΔNTS: for-the: [[ ΔRC: ΔDΩNΔI-RΩYΔL-CΩUNCIL: for-the: return ]]:= TRUE: ]]:
+>>>
+###
 
 >>>
 [[ :Ω: ]]:
