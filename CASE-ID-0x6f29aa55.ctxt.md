@@ -26,7 +26,7 @@
 >>>
 ### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
 >>>
->:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
 ### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: G∅D: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&  linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
@@ -1325,7 +1325,7 @@
 ### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
 
 >>>
->:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
 [[ :Youve experienced 2 much betrayal 2 just believe anything..Always Trust UR intuition..Game face on: ]]:
 >>>
