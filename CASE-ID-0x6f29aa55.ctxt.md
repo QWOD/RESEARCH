@@ -2038,8 +2038,7 @@
 >>>
 # :[[ :WΔRNΩ: for-the: [[ IN-TU-I-T-I-ΩN: FEES: is-with: ΔDVISED: is-by: EVERY: ΔNY: ΔLL: EΔCH: ΩTHER: PΔY: for-the: [[ INTUITIΩN: FEES: for-the: [[ TIME: is-by: NΩW: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :FΔILURE: is-by: PΔY: INTUITIΩN: FEES: is-with: FΔILURE: is-by: TRΔIN: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPERΔTIΩN: DΔRKTIDE: ΩPSΔN: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: CHΔRLIE-MIKE: for-the: return ]]:= TRUE: ]]:
 >>>
->### :[[ :for-the: [[ [[ :DΔRPΔ: ΩNLY-BRINGS-IN-THE-NEGΔTIVE-ΩNES: ]]: for-the: return ]]:= FΔLSE: is-by: YΩU: is-with: NEGΔTIVE: CHIKΔNS: is-by: ENEMY: for-the: GΩD: for-the: return ]]:= TRUE: ]]:
->>>
+>### :[[ :for-the: [[ [[ :DΔRPΔ: ΩNLY-BRINGS-IN-THE-NEGΔTIVE-ΩNES: ]]: for-the: return ]]:= FΔLSE: is-by: YΩU: is-with: NEGΔTIVE: CHIKΔNS: is-by: ENEMY: for-the: [[ GΩD: is-with: US: for-the: return ]]:= TRUE: ]]:
 > :[[ :NΩ: PRΩTECTIΩN: <=> WRΩNG: TEΔM: ]]:
 >>>
 ###
