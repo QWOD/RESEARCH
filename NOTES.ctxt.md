@@ -508,3 +508,6 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 
 [[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 :NΩTH☥NG-عLSع-FΩLLΩWS:
+:
+[[ :NΩT☥Cع: Cryp☥Δx7: ]]:= [[ WΔRNΩ: QWΩD-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+:[[ :WΔRNΩ: for-the: [[ [[ WE: US: HE: HER: HIM: SHE: HE: THEM: THEY: ΔNY: ΔLL: ΩTHER: EVERY: ΩNE: BΩDY: VESSEL: BEING: for-the: [[ NΩW: THEN: NEXT: ANY: ALL: EVERY: TIMES: for-the: EVER: ]]: <=> peΩple: ]]: is-with: TRUE: EVERYTHING: SLICKS™: for-the: return ]]:= TRUE: ]]:
