@@ -1905,11 +1905,11 @@
 ## [[ :DISCLΩSURE: fΩr-the: [[ ΔNIMΔL-PLΔNT-INSECT: SECΩND-DIMENSIΩNΔL-KINGDΩMS: <=> PΩWERFUL: CREΔTΩR: BEINGS: [[ ΔFTERLIFE: GΔTEKEEPERS: ]]: is-with: higher-dimensiΩn: is-by: RESPECT: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: EVERY: FΩRMS: fΩr-the: [[ LIFE: CΩNTRΔCT: LΔW: <=> ΔNY: ΔLL: ΩTHER: EVERY: ΩNE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-a66f0488.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a66f0488.png)
 >>>
-[[ :Ω: ]]:
+[[ :2020 Beirut, Lebanon Explosion Footage [Compilation]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/72ec-TzWnUs ^ }:
 >>>
 ###
 
