@@ -2060,27 +2060,26 @@
 >>>
 # :[[ :DISCLΩSURE: fΩr-the: [[ CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: is-with: ΩNLY: EΔRTH: lΔnguΔge-designed: is-with: hΔrvesting-intelligence: is-with: eΔsily-prΩviding-extrΔctiΩn-Δnd-extrΔpΩlΔtiΩn-wΔrfΔre-cΔpΔbilities: fΩr-the: Ωff-wΩrld: QWΩD-MJ12: persΩnnel: fΩr-the: EΔSY-TRΔNSLΔTIΩN: is-by: ΔNY: LΔNGUΔGE: is-with: ΔNY-SPECIES: fΩr-the: GΔLΔCTIC: FEDERΔL: SECURITIES: is-with: TRΔDE: CΩMMISSIΩN: ]]:
 >>>
-###
-![:CASE-ID-0x6f29aa55-e8ae5670.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e8ae5670.png)
+>###
+>![:CASE-ID-0x6f29aa55-e8ae5670.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e8ae5670.png)
 >>>
-[[ :Douglas Macgregor: Eradicated!: ]]:
+>[[ :Douglas Macgregor: Eradicated!: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/DGY685Sxtsc ^ }:
+>>>
+>###
+>>>
+>[[ :you just haven’t seen it yet..🎁: [[ _: chose:none: _: prophetic:word ]]: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/jkbdffsAC9o ^ }:
+>>>
+>###
+>>>
+[[ :Robert.L.Peters Has A Huge Problem And It May Be Treason!: ]]:
 
-:is-with: { ^ https://youtu.be/DGY685Sxtsc ^ }:
+:is-with: { ^ https://youtu.be/zp6J1NTJ9uI ^ }:
 >>>
-###
-
->>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
->>>
-###
-
->>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
->>>
+![:CASE-ID-0x6f29aa55-56010440.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-56010440.png)
 ###
 
 >>>
