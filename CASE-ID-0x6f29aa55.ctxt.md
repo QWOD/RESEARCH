@@ -1921,7 +1921,8 @@
 [[ :This DM + His 3RD PARTY…DISRESPECTED The F😡CK OUT OF GOD‼️ : [[ _: OutLaw: _: Thief: _: STARLife: _: Yin _: yang ]]: ]]:
 
 :is-with: { ^ https://youtu.be/qqOsappf5zs ^ }:
-###
+>>>
+# :[[ :fΩr-the: [[ EN☥IRE-LIFع: SIMULTΔTIΩN: is-with: MULTIPLE-CHΩICE-EXΔM: fΩr-the: [[ CΩRRECT: ΔNSWER: ΔLWΔYS: is-with: GΩD: fΩr-the: return: ]]:= TRUE: || FΔLSE: ^ GΩD: ]]:= GΩD: ]]:
 
 >>>
 [[ :Ω: ]]:
