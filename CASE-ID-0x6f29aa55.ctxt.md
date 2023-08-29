@@ -2096,9 +2096,9 @@
 ###
 
 >>>
-[[ :Ω: ]]:
+[[ :Mysterious sky lights & 'boom' rocks West Michigan: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/ceC4DoDAoJ8 ^ }:
 >>>
 ###
 
