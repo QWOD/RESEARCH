@@ -1922,7 +1922,7 @@
 
 :is-with: { ^ https://youtu.be/qqOsappf5zs ^ }:
 >>>
-# :[[ :fΩr-the: [[ EN☥IRE-LIFع: SIMULTΔTIΩN: is-with: MULTIPLE-CHΩICE-EXΔM: fΩr-the: [[ CΩRRECT: ΔNSWER: ΔLWΔYS: is-with: GΩD: fΩr-the: return: ]]:= TRUE: || FΔLSE: ^ GΩD: ]]:= GΩD: ]]:
+# :[[ :fΩr-the: [[ EN☥IRE-LIFع: SIMULTΔTIΩN: is-with: MULTIPLE-CHΩICE: EXΔM: fΩr-the: [[ CΩRRECT: ΔNSWER: ΔLWΔYS: is-with: GΩD: fΩr-the: return ]]:= TRUE: || FΔLSE: ^ GΩD: ]]:= GΩD: ]]:
 
 >>>
 [[ :Ω: ]]:
