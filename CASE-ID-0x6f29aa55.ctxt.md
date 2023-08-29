@@ -2089,7 +2089,7 @@
 >>>
 [[ :you are a spectacle..: [[ _: prophetic: word: _: chose: none ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/jVZ90oY5pFE ^ }:
 >>>
 ![:CASE-ID-0x6f29aa55-e0527100.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e0527100.png)
 ###
