@@ -1653,7 +1653,7 @@
 >>>
 # :[[ :fΩr-the: [[ WHΩLE: WΩRLD: MΔDE: THEM: FΩRGET: WHΩ: HE: ΔCTUΔLLY: WΔS: fΩr-the: return ]]:= TRUE: ]]:= [[ :fΩr-the: [[ FINΔL: CΩURT: JUDGEMENT: <=> WHΩLE: WΩRLD: is-with: GUILTY: fΩr-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: is-with: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-# :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: MK: ULTRA: PROGRAM: ΔBUSE: ]]: 
+># :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: ]]: 
 >>>
 ### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
