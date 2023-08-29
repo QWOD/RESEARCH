@@ -283,6 +283,17 @@
 :is-with: { ^ https://youtu.be/G8-rojysKyU ^ }:
 >>>
 ###
+[[ :25 years after JonBenet Ramsey killing, investigators have tested almost 1,000 DNA samples: ]]:
+>>>
+:is-with: { ^ https://www.cnn.com/2021/12/26/us/jonbenet-ramsey-25th-anniversary-dna/index.html ^ }:
+>>>
+[[ :Key witness in Madeleine McCann case reveals chilling discussion with prime suspect: "She didn't even scream": ]]:
+>>>
+:is-with: { ^ https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/ ^ }:
+>>>
+:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMEGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: HΩRUS: JΩSEPH: ISRΔEL: JESUS: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+###
 >[[ :fΩr-the: [[ LΩRD: <=> LΔW: ]]: CΩNTRΔCT: DISCLΩSURE: [[ Δ: fΩr-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]: ]]:
 >>>
 [[ :CHECK-REFERENCES: is-with: PLEΔSE: fΩr-the: GΩ-ΔHEΔD: WΔ: is-with: WΔIT: ]]:
