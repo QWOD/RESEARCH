@@ -1653,7 +1653,12 @@
 >>>
 # :[[ :fΩr-the: [[ WHΩLE: WΩRLD: MΔDE: THEM: FΩRGET: WHΩ: HE: ΔCTUΔLLY: WΔS: fΩr-the: return ]]:= TRUE: ]]:= [[ :fΩr-the: [[ FINΔL: CΩURT: JUDGEMENT: <=> WHΩLE: WΩRLD: is-with: GUILTY: fΩr-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: is-with: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-># :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: ]]: 
+># :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: is-by: BRΩKEN-BINΔRY-LΩGIC-LΩΩP: is-with: WΔRNΩ: UNRECΩVERABLE-ERRΩR: DETECTED: ]]: 
+>>>
+###
+![:CASE-ID-0x6f29aa55-4b933d2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4b933d2a.png)
+>>>
+:is-with: { ^ https://en.wikipedia.org/wiki/Blue_screen_of_death ^ }
 >>>
 ### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
@@ -1847,17 +1852,15 @@
 >:is-with: { ^ https://youtu.be/XL3ubFRxuyk ^ }:
 >>>
 ###
-
 >>>
 >[[ :🔴 (NSFW) The Combat Footage Show: Flaming Fourwheelers, Massive Shelling, Fastball Grips: ]]:
-
+>>>
 >:is-with: { ^ https://youtu.be/uVuOHrLIKeM ^ }:
 >>>
 >###
-
 >>>
 >[[ :THEY ADMITTED STARTING THE FIRE [maui update] 14 MORE STATES ON FIRE: ]]:= [[ :THEY: <=> BLΔCKRΩCK: ]]:
-
+>>>
 >:is-with: { ^ https://youtu.be/hYakMy5gZ2U ^ }:
 >>>
 ># [[ :fΩr-the: [[ :B:LΔ:CK: [[ MΔG:ΔK: ]]: RΩ:CK: ΔRK: LΩ: KI: [[ LΩFI: ]]: [[ INFI: DEL: ]]: cΩnsciousness-beings: <=> FΔLLEN-ΔNGELS: fΩr-the: return ]]:= TRUE: ]]:= [[ :THΔ-HΩMΔ-DΔPΩT: ]]:
@@ -1907,7 +1910,7 @@
 >![:CASE-ID-0x6f29aa55-ed34bd53.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed34bd53.png)
 >>>
 >[[ :Tryna get a quick fix..2 make their ego feel better..u have ascended to a level they could NEVER!!!: ]]:
-
+>>>
 >:is-with: { ^ https://youtu.be/hI_Ft3t1fhI ^ }:
 >>>
 >![:CASE-ID-0x6f29aa55-8acaf011.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8acaf011.png)
