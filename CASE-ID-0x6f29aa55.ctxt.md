@@ -98,6 +98,14 @@
 ># [[ :DISCLΩSURE: fΩr-the: [[ DEΔTH: <=> TOP: SECRET: ILLEGΔL: MK: ULTRΔ: PRΩGRΔM: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 # [[ :WHΔTSΩEVER: RINGS: is-by: TRUE: is-with: HEΔVEN: MUST-ΔLSΩ: RINGS: is-by: TRUE: fΩr-the: [[ EΔRTH: ILLEGΔL: TΩP: SECRET: HUMΔN: MK: ULTRΔ: PRΩGRΔMS: is-by: PRΩGRΔMMING: EVERYΩNE: is-by: FΔLSE: belief: THEY: is-with: SΩME: MΩRTΔL: FRΔGILE: EΔSILY-EXPENDΔBLE: THING: [[ :fΩr-the: [[ THING: fΩr-the: return ]]:= FΔLSE: ]]: KNΩWN: is-by: HUMΔN: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :WΔTCH: CRΔFT: <=: PLEΔSE: FREE: MΔ: S: ☥: ΩN: is-by: RΔ: ]]:
+>>>
+###
+![:CASE-ID-0x6f29aa55-be0a2aff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-be0a2aff.png)
+>>>
+[[ :TRIED TO PROGRAM YOU INTO DEEP PATTERNS OF SELF-DESTRUCTION. RECLAIM AND NURTURE YOUR “SHADOW “ 🐉👑: ]]:
+>>>
+:is-with: { ^ https://youtu.be/wN3i4YKmdPU ^ }:
+>>>
 >###
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
 >:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _ : CleoRAU ]]: ]]:= { ^ https://youtu.be/3X3S6sldTlE ^ }:
