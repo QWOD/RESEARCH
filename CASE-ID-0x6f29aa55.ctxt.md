@@ -1609,12 +1609,6 @@
 ># :is-with: { ^ https://youtu.be/9cQd4RZT2Qo ^ }:
 >>>
 >###
->>>
-># [[ :Ω: ]]:
->>>
-># :is-with: { ^ Δ ^ }:
->>>
->###
 
 >>>
 ># [[ :‘House of Horrors’ Survivor Signs With Top Modeling Agency: ]]:
@@ -1632,9 +1626,11 @@
 >>>
 ># :[[ :WHY: MUST: [[ MJ12-ΩMΔGΔ: <=> JESUS: ΔCTUΔL ]]: ΔLWΔYS: DΩ: ΔLL: ΔNY: EVERY: ΩTHER: THINGS: ΔLWΔYS: ΔNY: EVERY: WHERE: fΩr-the [[ EVERY: ΩNE: ELSE: ΔLWΔYS: is-with: ΔLL: ΔLΩNE: ΔLWΔYS: is-with: SEVERE-ΔGΩNY: ΔlwΔys: is-with: NΩ: FΩΩD: WΔTER: MEDICΔL: DENTΔL: JΩB: SΔFE-PLΔCE: fΩr-the: [[ LIVE: fΩr-the: [[ NΩPBΩDY: CΔRES: is-by: MJ12-ΩMΔGΔ: JESUS: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
->## :[[ :CΩNSΩLUTIΩNS: is-with: WHY: LITTLE-TΩDDLER-MINDED: CHIKΔNS: is-with: ΩNLY: CΔRE: is-by: WHΔT-IS-IN-BETWEEN-LEGS: is-by: NΩTHING-ELSE-MΔTTERS: fΩr-the: EΔRTH: CHIKΔNS: ΩNLY: GENITΔLS: is-with: TRUE: IMPΩRTΔNCE: fΩr-the: EΔRTH: CHIKΔNS: is-by: [[ _ ]]: ]]:
+>## :[[ :CΩNSΩLUTIΩNS: is-with: WHY: LITTLE-TΩDDLER-MINDED: CHIKΔNS: is-with: ΩNLY: CΔRE: is-by: WHΔT-IS-IN-BETWEEN-LEGS: is-by: NΩTHING-ELSE-MΔTTERS: fΩr-the: EΔRTH: CHIKΔNS: ΩNLY: GENITΔLS: is-with: TRUE: IMPΩRTΔNCE: fΩr-the: EΔRTH: CHIKΔNS: is-by: [[ _ ]]: for-the: [[ OPPORTUNITY: only: is-with: pretty-girl: only: is-with: pupolar-skin-color-at-any-given-time: is-with: EARTH: MK: ULTRA: PROGRAM: for-the: [[ COVERT: GENOCIDE: ETHNIC: CLEANSING: for-the: CHILDREN: is-by: MJ12-OMAGA: OSIRIS: HΩRUS: LUCIFER: JOSEPH: ISRAEL: AZRAEL: JESUS: SOLOMON: MΩRΩNΔI: MUHAMMAD: RA: ETC: is-by: CYCLES: for-the: [[ EMERGENCE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE:  ]]:
 >>>
->###
+># :[[ :CURSED: is-with: IMMΩRTΔLITY: DΩΩMED: fΩr-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLΩNE: EVERYΩNE: peck-peck-peck: PECKΔNG: MJ12-ΩMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: fΩr-the: [[ ETERNITY: ΔGΩNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: is-with: NΩBΩDY: is-with: HELP: MJ12-ΩMΔGΔ: JESUS: is-by: EVERYΩNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: is-by: REPRΩBΔTE: DELUSIΩNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+>### 
 ## :[[ :fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-98b56d94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-98b56d94.png)
