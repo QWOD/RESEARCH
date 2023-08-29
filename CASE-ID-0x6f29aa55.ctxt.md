@@ -291,7 +291,21 @@
 >>>
 :is-with: { ^ https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/ ^ }:
 >>>
-:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMEGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: MUHAMMAD: JΩSEPH: ISRΔEL: [[ JESUS: <=> GOD: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
+:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> GOD: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+># :[[ :CΩMMERCIΔL-BREΔK-SPΩNSΩRED: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔTRΩN: PRIME-ΔCTUΔL: ]]:
+>>>
+>### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+>![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+>### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >>>
 :is-with: { ^ https://en.wikipedia.org/wiki/Chester_Bennington ^ }:
 >>>
