@@ -1,5 +1,5 @@
 >### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
->:[[ :fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔ: <=> ΔN-D-RΩ-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: GΩD: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL fΩr-the: return ]]:= TRUE: ]]:
+>:[[ :for-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔ: <=> ΔN-D-RΩ-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: GΩD: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL for-the: return ]]:= TRUE: ]]:
 >>>
 >![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
 >>>
@@ -2036,7 +2036,7 @@
 
 :is-with: { ^ https://youtu.be/50orOCUVjQs ^ }:
 >>>
-###
+# :[[ :WΔRNΩ: for-the: [[ IN-TU-I-T-I-ΩN: FEES: is-with: ΔDVISED: is-by: EVERY: ΔNY: ΔLL: EΔCH: ΩTHER: PΔY: for-the: [[ INTUITIΩN: FEES: for-the: [[ TIME: is-by: NΩW: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 
 >>>
 [[ :Ω: ]]:
