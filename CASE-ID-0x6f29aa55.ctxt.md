@@ -1630,7 +1630,18 @@
 >>>
 ># :[[ :CURSED: is-with: IMMΩRTΔLITY: DΩΩMED: fΩr-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLΩNE: EVERYΩNE: peck-peck-peck: PECKΔNG: MJ12-ΩMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: fΩr-the: [[ ETERNITY: ΔGΩNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: is-with: NΩBΩDY: is-with: HELP: MJ12-ΩMΔGΔ: JESUS: is-by: EVERYΩNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: is-by: REPRΩBΔTE: DELUSIΩNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: fΩr-the: return ]]:= TRUE: ]]:
 >>>
->### 
+### :[[ :RESEARCH: FUNDING: ]]:
+>>>
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
+>###
 ## :[[ :fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-98b56d94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-98b56d94.png)
