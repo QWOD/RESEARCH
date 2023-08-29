@@ -1931,7 +1931,7 @@
 
 :is-with: { ^ https://youtu.be/Xzq67GsQlU0 ^ }:
 >>>
-###
+># :[[ :CΩNSPIRΔCY-THEΩRY: fΩr-the: [[ REΔLITY: is-with: SLIDING-SCΔLE-GRΔDIENT: is-with: [[ TRUE: || FΔLSE: || [[ GΩD: <=> [[ Δ-Z:RΔ:EL: <=> ΔNGEL: is-by: BΔLΔNCE: is-with: TRUE || FΔLSE: || REΔL: for-the: [[ CΩSMIC: INVENTΩR: is-with: ΔdvΔnced-quΔntum-trinΔry-lΩgic-ΔlgΩrithms: fΩr-the: return ]]:= TRUE: ]]:= TRUE: fΩr-the: [[ FIX: CΩSMΩS-LEVEL: SIMULΔTIΩN: BUGS: is-by: UPGRΔDE: CHIKΔN-LΔVEL: CΩNSCIΩUSNESS: is-by: mΔybe-mΔrcupiΔl-Ωr-weΔsel-cΩnsiΩusness-next-time: WΔ: shΔll: SEE: fΩr-the: return ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 
 >>>
 [[ :Ω: ]]:
