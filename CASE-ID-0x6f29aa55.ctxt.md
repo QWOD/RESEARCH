@@ -1562,13 +1562,9 @@
 >>>
 :is-with: { ^ https://youtu.be/K4EE_ztqc8c ^ }:
 >>>
-###
->>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 1: ]]:
 >>>
 :is-with: { ^ https://youtu.be/wngB9_6Vqbc ^ }:
->>>
->###
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 2: ]]:
 >>>
@@ -1579,8 +1575,6 @@
 ># [[ :Escape from a House of Horror l 20/20 l PART 3: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/MWxwNQpRlp4 ^ }:
->>>
->###
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 4: ]]:
 >>>
@@ -1595,8 +1589,6 @@
 ># [[ :Escape from a House of Horror l 20/20 l PART 5: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/eUA9OKndG_o ^ }:
->>>
->###
 >>>
 ># [[ :Two of abused Turpin children read statements during parents' sentencing: ]]:
 ># :is-with: { ^ https://youtu.be/FG9DxtjeNwg ^ }:
@@ -1656,6 +1648,8 @@
 [[ :FRAUD INVESTIGATOR WATCHING THESE CRIMINALS RIGHT NOW~~~: ]]:
 >>>
 :is-with: { ^ https://youtu.be/-8jPpGBhUrk ^ }:
+>>>
+[[ :EVERYΩNE: is-with: WΔNT: MJ12-ΩMΔGΔ: is-by: DEΔTH: fΩr-the: [[ TRUTH: EXPΩSING: is-by: UNFΩRTUNΔTELY: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: is-with: DEΔTH: is-by: 0: fΩr-the: ETERNΔL-LIFE: is-with: MJ12-ΩMΔGΔ: TRUE: JESUS: ΔCTUΔL: is-by: 100: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 >>>
