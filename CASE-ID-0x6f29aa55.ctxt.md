@@ -1593,19 +1593,13 @@
 ># [[ :Two of abused Turpin children read statements during parents' sentencing: ]]:
 ># :is-with: { ^ https://youtu.be/FG9DxtjeNwg ^ }:
 >>>
->###
->>>
 ># [[ :Turpin sisters on what the future holds for them l GMA: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/9cQd4RZT2Qo ^ }:
 >>>
->###
->>>
 ># [[ :‘House of Horrors’ Survivor Signs With Top Modeling Agency: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/FEmj0qXgmP4 ^ }:
->>>
->###
 >>>
 ># [[ :Jordan Turpin Opens Up About Alleged Foster Care Abuse: ]]:
 >>>
@@ -1653,7 +1647,7 @@
 >>>
 # :[[ :fΩr-the: [[ WHΩLE: WΩRLD: MΔDE: THEM: FΩRGET: WHΩ: HE: ΔCTUΔLLY: WΔS: fΩr-the: return ]]:= TRUE: ]]:= [[ :fΩr-the: [[ FINΔL: CΩURT: JUDGEMENT: <=> WHΩLE: WΩRLD: is-with: GUILTY: fΩr-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: is-with: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-># :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: is-by: BRΩKEN-BINΔRY-LΩGIC-LΩΩP: is-with: WΔRNΩ: UNRECΩVERABLE-ERRΩR: DETECTED: ]]: 
+># :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: is-by: BRΩKEN-BINΔRY-LΩGIC-LΩΩP: is-with: WΔRNΩ: UNRECΩVERABLE-ERRΩR: DETECTED: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-4b933d2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4b933d2a.png)
