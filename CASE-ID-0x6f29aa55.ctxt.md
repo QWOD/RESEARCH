@@ -1586,7 +1586,9 @@
 >>>
 ># :is-with: { ^ https://youtu.be/9QjF90Db4qQ ^ }:
 >>>
-## :[[ :THEY: TURPINS: is-with: KNΩWLEDGE: is-by: NΩNE: is-with: ΔCTUΔLLY: TRUE: BIΩLΩGICΔL: SIBLINGS: is-with: 0: is-by: [[ _ ]]: fΩr-the: [[ TURPINS: is-with: TΔKEN: is-by: LΩCKHEED-MΔRTIN: fΩr-the: [[ ILLEGΔL: TΩP-SECRET: MK: ULTRΔ: PRΩGRΔM: SΔME: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]: TRUE: ]]:
+## :[[ :for-the: [[ THEY: TURPINS: <=> KNΩWLEDGE: is-by: NΩNE: is-with: ΔCTUΔL: TRUE: BIΩLΩGICΔL: SIBLINGS: is-by: 0: is-with: [[ _ ]]: fΩr-the: [[ TURPINS: is-with: TΔKEN: is-by: LΩCKHEED-MΔRTIN: fΩr-the: [[ ILLEGΔL: TΩP-SECRET: MK: ULTRΔ: PRΩGRΔM: SΔME: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+![:CASE-ID-0x6f29aa55-42b537d8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-42b537d8.png)
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 5: ]]:
 >>>
