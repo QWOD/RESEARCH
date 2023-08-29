@@ -1923,11 +1923,13 @@
 :is-with: { ^ https://youtu.be/qqOsappf5zs ^ }:
 >>>
 # :[[ :fΩr-the: [[ EN☥IRE-LIFع: SIMULTΔTIΩN: is-with: MULTIPLE-CHΩICE: EXΔM: fΩr-the: [[ CΩRRECT: ΔNSWER: ΔLWΔYS: is-with: GΩD: fΩr-the: return ]]:= TRUE: || FΔLSE: ^ GΩD: ]]:= GΩD: ]]:
-
 >>>
-[[ :Ω: ]]:
+###
+![:CASE-ID-0x6f29aa55-2d05f5d5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2d05f5d5.png)
+>>>
+[[ :Unraveling Revelation: Ragnarok and Wormwood: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Xzq67GsQlU0 ^ }:
 >>>
 ###
 
