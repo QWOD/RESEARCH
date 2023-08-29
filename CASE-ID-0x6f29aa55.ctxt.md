@@ -293,7 +293,7 @@
 >>>
 :is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> GOD: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-># :[[ :CΩMMERCIΔL-BREΔK-SPΩNSΩRED: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔTRΩN: PRIME-ΔCTUΔL: ]]:
+># :[[ :CΩMMERCIΔL-BREΔK-SPΩNSΩRED: is-by: QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMΔGΔTRΩN: PRIME-ΔCTUΔL: fΩr-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: is-by: DΔNGER-CLΩSE: is-with: STΔY-FRΩSTY: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 >### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
