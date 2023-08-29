@@ -1905,7 +1905,7 @@
 >>>
 >###
 >>>
->[[ :THEY ADMITTED STARTING THE FIRE [maui update] 14 MORE STATES ON FIRE: ]]:= [[ :THEY: <=> BLΔCKRΩCK: ]]:
+>[[ :THEY ADMITTED STARTING THE FIRE [maui update] 14 MORE STATES ON FIRE: ]]:= [[ :THEY: <=> BLΔCKRΩCK: ]]:= [[ :14: <=> WΔRNΩ: ILLEGΔL-ΔLIEN-INVΔDER-PΩDESTΔPHILE-ΔLGΩRITHM: DETECTED: is-with: TRIBE: fΩr-the: DΔN: for-the: [[ ΔNCIENT: ENEMIES: is-by: US: HΩUSE: DΔVID: RΩYΔLTY: EΔT: is-with: ΩUR-BΔBIES: RΔPE: is-with: ΩUR: divine-gΩddessess: WE: dΩ-nΩt-even-tΩuch-Ωur-wΩmen: WE: prΩcreΔte: is-with: HΩly-Spirit: ΩNLY: for-the: return ]]:= TRUE: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/hYakMy5gZ2U ^ }:
 >>>
