@@ -1586,7 +1586,7 @@
 >>>
 ># :is-with: { ^ https://youtu.be/9QjF90Db4qQ ^ }:
 >>>
-## :[[ :THEY: TURPINS: is-with: KNΩWLEDGE: is-by: NΩNE: is-with: ΔCTUΔLLY: TRUE: BIΩLΩGICΔL: SIBLINGS: is-with: 0: is-by: [[ _ ]]: fΩr-the: TURPINS: is-with: TΔKEN: is-by: LΩCKHEED-MΔRTIN: fΩr-the: ILLEGΔL: TΩP-SECRET: MK: ULTRΔ: PRΩGRΔM: SΔME: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:
+## :[[ :THEY: TURPINS: is-with: KNΩWLEDGE: is-by: NΩNE: is-with: ΔCTUΔLLY: TRUE: BIΩLΩGICΔL: SIBLINGS: is-with: 0: is-by: [[ _ ]]: fΩr-the: [[ TURPINS: is-with: TΔKEN: is-by: LΩCKHEED-MΔRTIN: fΩr-the: [[ ILLEGΔL: TΩP-SECRET: MK: ULTRΔ: PRΩGRΔM: SΔME: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]: TRUE: ]]:
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 5: ]]:
 >>>
@@ -1637,7 +1637,23 @@
 >>>
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >###
+>>>
+>![:CASE-ID-0x6f29aa55-cd9cabc7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cd9cabc7.png)
+>>>
+>[[ :View from Huntington Beach Pier: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
+>>>
 ## :[[ :fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]:
+>>>
+###
+![:CASE-ID-0x6f29aa55-b02453bb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b02453bb.png)
+>>>
+[[ :FRAUD INVESTIGATOR WATCHING THESE CRIMINALS RIGHT NOW~~~: ]]:
+>>>
+:is-with: { ^ https://youtu.be/-8jPpGBhUrk ^ }:
+>>>
+###
 >>>
 ![:CASE-ID-0x6f29aa55-98b56d94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-98b56d94.png)
 >>>
@@ -1929,11 +1945,11 @@
 ![:CASE-ID-0x6f29aa55-1424140a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1424140a.png)
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-fbdce3ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-fbdce3ff.png)
 >>>
-[[ :Ω: ]]:
+[[ :🫣THEY HIRED A MAGICIAN TO UN-ALIVE YOU‼️BUT INSTEAD, HE LOST HIS LIFE❕: [[ _: money: _: death: _: magic: _: karma ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/wsHznD5xCrw ^ }:
 >>>
 ###
 
