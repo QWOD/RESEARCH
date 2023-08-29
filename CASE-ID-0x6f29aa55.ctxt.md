@@ -1902,6 +1902,8 @@
 
 :is-with: { ^ https://youtu.be/Zftv0awrBXU ^ }:
 >>>
+## [[ :DISCLΩSURE: fΩr-the: [[ ΔNIMΔL-PLΔNT-INSECT: SECΩND-DIMENSIΩNΔL-KINGDΩMS: <=> PΩWERFUL: CREΔTΩR: BEINGS: [[ ΔFTERLIFE: GΔTEKEEPERS: ]]: is-with: higher-dimensiΩn: is-by: RESPECT: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: EVERY: FΩRMS: fΩr-the: [[ LIFE: CΩNTRΔCT: LΔW: <=> ΔNY: ΔLL: ΩTHER: EVERY: ΩNE: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
 ###
 
 >>>
