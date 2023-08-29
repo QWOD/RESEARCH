@@ -2030,11 +2030,11 @@
 :is-with: { ^ https://youtu.be/uEqwji4uHUk ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-1683723a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1683723a.png)
 >>>
-[[ :Ω: ]]:
+[[ :Lindsy Scharmyn - Entities/Alien Abduction, Past Life, Shamanic Teachings - Typical Skeptic Pod : [[ _: 785 ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/50orOCUVjQs ^ }:
 >>>
 ###
 
