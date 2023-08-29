@@ -2020,11 +2020,11 @@
 :is-with: { ^ https://youtu.be/hpL-z1UfQFE ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-1a26e0e1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1a26e0e1.png)
 >>>
-[[ :Ω: ]]:
+[[ :THE WORLD IS READY FOR YOU TO LAUNCH YOUR PROJECT! PROTECTED & READY TO GO 🔥🔥🔥 : [[ _: tarotcardreading ]]: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/uEqwji4uHUk ^ }:
 >>>
 ###
 
