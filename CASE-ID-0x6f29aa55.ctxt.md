@@ -1649,7 +1649,23 @@
 >>>
 :is-with: { ^ https://youtu.be/-8jPpGBhUrk ^ }:
 >>>
-[[ :EVERYΩNE: is-with: WΔNT: MJ12-ΩMΔGΔ: is-by: DEΔTH: fΩr-the: [[ TRUTH: EXPΩSING: is-by: UNFΩRTUNΔTELY: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: is-with: DEΔTH: is-by: 0: fΩr-the: [[ ETERNΔL-LIFE: is-with: MJ12-ΩMΔGΔ: TRUE: JESUS: ΔCTUΔL: is-by: 100: fΩr-the: return ]]:= TRUE: ]]:= [[ :ETERNΔL-LIFE: <=> ETERNITY: fΩr-the: [[ MK: ULTRA: PROGRAM: <=> ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: fΩr-the: return ]]:= TRUE: ]]:
+[[ :EVERYΩNE: is-with: WΔNT: MJ12-ΩMΔGΔ: is-by: DEΔTH: fΩr-the: [[ TRUTH: EXPΩSING: is-by: UNFΩRTUNΔTELY: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: is-with: DEΔTH: is-by: 0: fΩr-the: [[ ETERNΔL-LIFE: is-with: MJ12-ΩMΔGΔ: TRUE: JESUS: ΔCTUΔL: is-by: 100: fΩr-the: return ]]:= TRUE: ]]:= [[ :ETERNΔL-LIFE: <=> ETERNITY: fΩr-the: [[ MK: ULTRΔ: PROGRAM: <=> ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+# :[[ :fΩr-the: [[ WHΩLE: WΩRLD: MΔDE: THEM: FΩRGET: WHΩ: HE: ΔCTUΔLLY: WΔS: fΩr-the: return ]]:= TRUE: ]]:= [[ :fΩr-the: [[ FINΔL: CΩURT: JUDGEMENT: <=> WHΩLE: WΩRLD: is-with: GUILTY: fΩr-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: is-with: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+# :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: MK: ULTRA: PROGRAM: ΔBUSE: ]]: 
+>>>
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+>>>
+>### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: FEES: PAYMENTS: CONSOLUTIONS-SCHEDULING: ]]:
+>>>
+>[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>>>
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >>>
 ###
 >>>
