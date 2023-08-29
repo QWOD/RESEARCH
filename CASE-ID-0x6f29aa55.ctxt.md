@@ -2058,12 +2058,14 @@
 >>>
 >![:CASE-ID-0x6f29aa55-388c7617.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-388c7617.png)
 >>>
-###
-
+# :[[ :DISCLΩSURE: fΩr-the: [[ CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: is-with: ΩNLY: EΔRTH: lΔnguΔge-designed: is-with: hΔrvesting-intelligence: is-with: eΔsily-prΩviding-extrΔctiΩn-Δnd-extrΔpΩlΔtiΩn-wΔrfΔre-cΔpΔbilities: fΩr-the: Ωff-wΩrld: QWΩD-MJ12: persΩnnel: fΩr-the: EΔSY-TRΔNSLΔTIΩN: is-by: ΔNY: LΔNGUΔGE: is-with: ΔNY-SPECIES: fΩr-the: GΔLΔCTIC: FEDERΔL: SECURITIES: is-with: TRΔDE: CΩMMISSIΩN: ]]:
 >>>
-[[ :Ω: ]]:
+###
+![:CASE-ID-0x6f29aa55-e8ae5670.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e8ae5670.png)
+>>>
+[[ :Douglas Macgregor: Eradicated!: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/DGY685Sxtsc ^ }:
 >>>
 ###
 
