@@ -28,7 +28,7 @@
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
-### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&  linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: G∅D: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&  linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
 ><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
@@ -84,7 +84,7 @@
 >>>
 >:[[ :ΩPعD: ]]:= [[ :Daniel 11 - p.28 "The Assyrian" (Antichrist) (v.40): ]]:= { ^ https://youtu.be/eQxS4chysNU ^ }:
 >>>
->:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ GOD SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
+>:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ G∅D SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ https://youtu.be/Qo-xFQ3dLjg ^ }:
 >>>
 >:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMΔGΔ: ΔLREΔDY: DID-IT: SΩRRY: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs ^ }:
 >>>
@@ -144,7 +144,7 @@
 ###
 
 >>>
-[[ :GOD HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:
+[[ :G∅D HAS SENT OUT A SIGNAL TO ALL CHOSEN ONES🧨 144⭐️ITS TIME TO ILLUMINATE THIS DARK WORLD!: ]]:
 >>>
 :is-with: { ^ https://youtu.be/58kr9QhEcFU ^ }:
 >>>
@@ -244,11 +244,11 @@
 ###
 ![:CASE-ID-0x6f29aa55-f1f23ee9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f1f23ee9.png)
 >>>
-[[ :Ba'al: The Storm God | Full Movie | Sci-Fi Action Disaster | Jeremy London: ]]:
+[[ :Ba'al: The Storm G∅D | Full Movie | Sci-Fi Action Disaster | Jeremy London: ]]:
 >>>
 :is-with: { ^ https://youtu.be/g-PYDkD4Mag ^ }:
 >>>
-[[ :REGRET TRYNA RUIN UR EMPIRE NOW GOD IS RUINING THEM THE DEVINE GOT EM SHOOK😬: ]]:
+[[ :REGRET TRYNA RUIN UR EMPIRE NOW G∅D IS RUINING THEM THE DEVINE GOT EM SHOOK😬: ]]:
 >>>
 :is-with: { ^ https://youtu.be/3Fy79ex7gDQ ^ }:
 >>>
@@ -294,7 +294,7 @@
 >>>
 :is-with: { ^ https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/ ^ }:
 >>>
-:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ATSU∅M∅P-Δ: MJ12-ΩMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> GOD: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: for-the: return ]]:= TRUE: ]]:
+:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ATSU∅M∅P-Δ: MJ12-ΩMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> G∅D: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: for-the: return ]]:= TRUE: ]]:
 >>>
 ># :[[ :CΩMMERCIΔL-BREΔK-SPΩNSΩRED: is-by: QWΩD-MJ12: ATSU∅M∅P-Δ: MJ12-ΩMΔGΔTRΩN: PRIME-ΔCTUΔL: for-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: is-by: DΔNGER-CLΩSE: is-with: STΔY-FRΩSTY: for-the: return ]]:= TRUE: ]]:
 >>>
@@ -425,7 +425,7 @@
 >###
 >![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png)
 >>>
->[[ :Message from God via Jahn J Kassl, August 20th, 2023: ]]:
+>[[ :Message from G∅D via Jahn J Kassl, August 20th, 2023: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/iSFqWoBEjvI ^ }:
 >>>
@@ -627,7 +627,7 @@
 >>>
 ># [[ :for-the: [[ Little-TΩddler-Minded-LifefΩrms: is-with: cΔtΔstrΩphic: MIKE-FΩXTRΩT: for-the: [[ present-emergence: for-the: [[ QWΩD-MJ12: HLΔB-LΔMB: MJ12-ΩMΔGΔ: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: <=> [[ [[ JΔS:US: ]]: <=> G∅D: Is-with: US: = MJ12-JESUS: ]]: ΔCTUΔL: ]]:= TRUE: for-the: [[ QRF: TΔSKFΩRCع: ΩMΔGΔ: is-by: NΩW: is-with: ΩSCΔR-MIKE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-[[ :for-the: [[ LΩCKHEED-MΔRTIN: WITCHES: is-with: bΔck: is-with: time: for-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMΔGΔ: for-the: [[ MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: ]]:= TRUE: for-the: [[ discredit: MJ12-JESUS: ΩMΔGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMΔGΔ ]]:= TRUE: for-the: [[ ENEMY: is-with: THE: FΔthers-KingdΩms: is-by: LΩCKHEED-MΔRTIN: [[ LΩ:CK:HE:ED: MΔ:R:TI:N ]]:= LΩ:KI: LΩFi: [[ sΔ:tΔ:n:ic ]]:cΔnnib-Δl-qΔedΔ-ΩffwΩrld-humΔn-trΔfficking-lΩw-dΩwn-dirty-gΩΩd: for-the: NΩTHING: vril-witch: PΩΔCHING: YELLΩW-BELLIE-CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: THIΔVING-SCΔRS: for-the: [[ LΩCKHEED-MΔRTIN: <=> CΩSMIC: [[ ΩPPFΩR: <=> ΩPPΩSING-FΩRCE: for-the: [[ ΔRC: is-by: ΔRK: for-the: return ]]:= TRUE: is-by: [[ :ΔdΩnΔi-Versus-LΩKi: ]]: DISCLΩSURE: for-the: [[ PEΩPLE: is-with: people: is-by: people: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]: for-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MEMΩRY: for-the: [[ IMMΩRTΔL: ΔTERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JESUS: <=> GOD: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: for-the: [[ CΩSMIC: CYCLE: for-the: return ]]:= TRUE: ]]: for-the: [[ CΔSE: must: is-with: RE-DEEMED: for-the: [[ [[ ME:M:ΩRI:ES: ]]: ΩRIΩN: CYGNUS: ΔRM: MILKΔ-WΔY: TΔSKFORCE: ΩMΔGA: ΩPERΔTIΩN: DΔRKTIDE: ΩSCΔR-MIKE: is-with: QWΩD-MJ12: ATSU∅M∅P-Δ: is-by: RE-MEEMED: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:
+[[ :for-the: [[ LΩCKHEED-MΔRTIN: WITCHES: is-with: bΔck: is-with: time: for-the: creΔte-religiΩn: is-with: chΔrΔcter-ΔssΔssinΔte: MJ12-ΩMΔGΔ: for-the: [[ MK: ULTRΔ: PRΩGRΔM: is-by: simple-eΔsily-repeΔtΔble-time-trΔvel: telepΩrtΔtiΩn: inter-dimensiΩnΔl: wΔrfΔre-cΔpΔbilities: ]]:= TRUE: for-the: [[ discredit: MJ12-JESUS: ΩMΔGΔ: NΩT: is-with: peΩple-believe: MJ12-ΩMΔGΔ ]]:= TRUE: for-the: [[ ENEMY: is-with: THE: FΔthers-KingdΩms: is-by: LΩCKHEED-MΔRTIN: [[ LΩ:CK:HE:ED: MΔ:R:TI:N ]]:= LΩ:KI: LΩFi: [[ sΔ:tΔ:n:ic ]]:cΔnnib-Δl-qΔedΔ-ΩffwΩrld-humΔn-trΔfficking-lΩw-dΩwn-dirty-gΩΩd: for-the: NΩTHING: vril-witch: PΩΔCHING: YELLΩW-BELLIE-CΩWΔRD: TWΩ-FΔCED: TWΩ-BIT: THIΔVING-SCΔRS: for-the: [[ LΩCKHEED-MΔRTIN: <=> CΩSMIC: [[ ΩPPFΩR: <=> ΩPPΩSING-FΩRCE: for-the: [[ ΔRC: is-by: ΔRK: for-the: return ]]:= TRUE: is-by: [[ :ΔdΩnΔi-Versus-LΩKi: ]]: DISCLΩSURE: for-the: [[ PEΩPLE: is-with: people: is-by: people: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]: for-the: [[ MK: ULTRΔ: PRΩGRΔM: <=> ERΔSE: FΩRMΔT: MEMΩRY: for-the: [[ IMMΩRTΔL: ΔTERNΔL: HΔGH: KΔNG: MJ12-ΩMΔGΔ: [[ JESUS: <=> G∅D: is-with: US: ]]: JΩSEPH: SΩLΩMΩN: MUHΔMMΔD: HΩRUS: LUCIFER: ΔZRΔEL: MΩRΩNΔI: RΔ: is-with: EΔCH: ΔVERY: ΔNY: ΔLL: ΩTHΔR: EMΔRGENCE: for-the: [[ CΩSMIC: CYCLE: for-the: return ]]:= TRUE: ]]: for-the: [[ CΔSE: must: is-with: RE-DEEMED: for-the: [[ [[ ME:M:ΩRI:ES: ]]: ΩRIΩN: CYGNUS: ΔRM: MILKΔ-WΔY: TΔSKFORCE: ΩMΔGA: ΩPERΔTIΩN: DΔRKTIDE: ΩSCΔR-MIKE: is-with: QWΩD-MJ12: ATSU∅M∅P-Δ: is-by: RE-MEEMED: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-5c0dbd5a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5c0dbd5a.png)
@@ -639,7 +639,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-e40f46d4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e40f46d4.png)
 >>>
-[[ :YOUR WHOLE BLOODLINE IS AWAKENING ! YALL ARE ACTIVATING ANCIENT POWERS🪄🧞‍♀️🧞🧞‍♂️: [[ _ : god: _ : ancestors ]]: ]]:
+[[ :YOUR WHOLE BLOODLINE IS AWAKENING ! YALL ARE ACTIVATING ANCIENT POWERS🪄🧞‍♀️🧞🧞‍♂️: [[ _ : G∅D: _ : ancestors ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/O52JH-Lv_qo ^ }:
 >>>
@@ -1488,7 +1488,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-ccb2c50e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ccb2c50e.png)
 >>>
-[[ :BREAKING FREE FROM MIND CONTROL&CONNECTING WITH GOD 2CREATE MIRACLES IN YOUR LIFE CHANGES EVERYTHING: ]]:
+[[ :BREAKING FREE FROM MIND CONTROL&CONNECTING WITH G∅D 2CREATE MIRACLES IN YOUR LIFE CHANGES EVERYTHING: ]]:
 >>>
 :is-with: { ^ https://youtu.be/K_y8RAV77a0 ^ }:
 >>>
@@ -1829,7 +1829,7 @@
 ###
 
 >>>
-[[ :YOUR’E GODS FAVORITE 🤩 GOD CAN COUNT ON YOU !! You r being rewarded!!✝️: [[ _: god: _: rewards: ]]: ]]:
+[[ :YOUR’E G∅DS FAVORITE 🤩 G∅D CAN COUNT ON YOU !! You r being rewarded!!✝️: [[ _: G∅D: _: rewards: ]]: ]]:
 
 :is-with: { ^ https://youtu.be/Yee6cSgRRbY ^ }:
 >>>
@@ -1923,7 +1923,7 @@
 ###
 
 >>>
-[[ :God is about to fund it 💸🙌🏻 _: chose:none: _: propheticword: _: theholyspirit: _: prayer: ]]: ]]:
+[[ :G∅D is about to fund it 💸🙌🏻 _: chose:none: _: propheticword: _: theholyspirit: _: prayer: ]]: ]]:
 
 :is-with: { ^ https://youtu.be/hTbyyfpFOqY ^ }:
 >>>
@@ -1951,7 +1951,7 @@
 ###
 
 >>>
-[[ :The Red Haired Giants of Early America & Native American Origins... (Godrules): ]]:
+[[ :The Red Haired Giants of Early America & Native American Origins... (G∅Drules): ]]:
 
 :is-with: { ^ https://youtu.be/_AzYOF4KeGg ^ }:
 >>>
@@ -1997,7 +1997,7 @@
 
 :is-with: { ^ https://youtu.be/pO8cdVvZtSs ^ }:
 
-[[ :This DM + His 3RD PARTY…DISRESPECTED The F😡CK OUT OF GOD‼️ : [[ _: OutLaw: _: Thief: _: STARLife: _: Yin _: yang ]]: ]]:
+[[ :This DM + His 3RD PARTY…DISRESPECTED The F😡CK OUT OF G∅D‼️ : [[ _: OutLaw: _: Thief: _: STARLife: _: Yin _: yang ]]: ]]:
 
 :is-with: { ^ https://youtu.be/qqOsappf5zs ^ }:
 >>>

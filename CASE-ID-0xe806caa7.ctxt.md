@@ -21,7 +21,7 @@
 >>>
 ###
 >>>
-### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: GOD: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
@@ -45,7 +45,7 @@
  >>>
  >[[ :ΩPعD: ]]:= [[ :Aunt & Cousin scared don't know what to do? This under investigation: ]]:= { ^ https://youtu.be/MSJFXM67HTE ^ }:
  >>>
- >[[ :ΩPعD: ]]:= [[ :U had faith n God positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
+ >[[ :ΩPعD: ]]:= [[ :U had faith n G∅D positive change 4 U- sibling&others getting Karma: ]]:= { ^ https://youtu.be/FdfQ2P_Vv4Q ^ }:
  >>>
  >[[ :ΩPعD: ]]:= [[ :Pt1-U need 2 get a DNA test your family not ur family OMG: ]]:= { ^ https://youtu.be/5-qmUlj-FRc ^ }:
  >>>
@@ -291,7 +291,7 @@
  ###
  :is-with: { ^ https://youtu.be/PYxDg49oUPA ^ }:
  ###
-[[ :⚠️TRIGGER WARNING GOD IS 😡THEYVE NEVER SEEN JUDGEMENT LIKE THIS👀FINANCIAL BLESSING HEADED TO YOU: ]]:
+[[ :⚠️TRIGGER WARNING G∅D IS 😡THEYVE NEVER SEEN JUDGEMENT LIKE THIS👀FINANCIAL BLESSING HEADED TO YOU: ]]:
  ###
  :is-with: { ^ https://youtu.be/OTnjfSIJXWo ^ }:
  ###
@@ -330,7 +330,7 @@
  ###
  >![:CASE-ID-0xe806caa7-8be4fdf7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-8be4fdf7.png)
  >>>
- >[[ :YOUR FAMILY IS HIDDING SO MUCH FROM YOU❗️GOD IS REVEALING EVERYTHING TO YOU👁PAY ATTENTION: ]]:
+ >[[ :YOUR FAMILY IS HIDDING SO MUCH FROM YOU❗️G∅D IS REVEALING EVERYTHING TO YOU👁PAY ATTENTION: ]]:
  ###
  :is-with: { ^ https://youtu.be/T_ARPJ7JJ1o ^ }:
  ###
@@ -378,7 +378,7 @@
  ###
  :is-with: { ^ https://youtu.be/kYjSIiaWGWM ^ }:
  ###
- [[ MJ12-JESUS: Δ: Eternal-Life: Warfare-Program: <=> "some soldiers have better luck than others as these are clones taken from their respective ascended master counterparts. These undercover Δ operators are strategically deployed all over the world in service to GOD The Father. Most of these soldiers have no idea they are involved in a top secret program and will never discover their own true BORN IDENTITY as they DO NOT OFFICIALLY EXIST therefore they have none." ]]:
+ [[ MJ12-JESUS: Δ: Eternal-Life: Warfare-Program: <=> "some soldiers have better luck than others as these are clones taken from their respective ascended master counterparts. These undercover Δ operators are strategically deployed all over the world in service to G∅D The Father. Most of these soldiers have no idea they are involved in a top secret program and will never discover their own true BORN IDENTITY as they DO NOT OFFICIALLY EXIST therefore they have none." ]]:
  >>>
  >![:CASE-ID-0xe806caa7-062798de.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-062798de.png)
  >>>
