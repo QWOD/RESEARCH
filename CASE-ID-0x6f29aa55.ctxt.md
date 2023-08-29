@@ -2041,12 +2041,14 @@
 >### :[[ :for-the: [[ [[ :DΔRPΔ: ΩNLY-BRINGS-IN-THE-NEGΔTIVE-ΩNES: ]]: for-the: return ]]:= FΔLSE: is-by: YΩU: is-with: NEGΔTIVE: CHIKΔNS: is-by: ENEMY: for-the: [[ GΩD: is-with: US: for-the: return ]]:= TRUE: ]]:
 > :[[ :NΩ: PRΩTECTIΩN: <=> WRΩNG: TEΔM: ]]:= [[ :WΔRNΩ: BINΔRY-LΩGIC-ERRΩR: DETECTED: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]:
 >>>
-###
-
+>###
+>![:CASE-ID-0x6f29aa55-ef70558c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ef70558c.png)
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+>[[ :What I've Left You; Live ETs & Hybrids Coming: ]]:
+>>>
+>:is-with: { ^ https://youtu.be/Fd0Y0pL95vU ^ }:
+>>>
+>![:CASE-ID-0x6f29aa55-388c7617.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-388c7617.png)
 >>>
 ###
 
