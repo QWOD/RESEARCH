@@ -599,7 +599,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-11db8316.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-11db8316.png)
 >>>
-[[ :YOUR ACCOMPLISHMENTS ARE CAUSING JEALOUSY🧿THE ENEMIES ARE BEING REVEALED IN YOUR DREAMS : [[ _ : [[ chose:nones ]]: ]]: ]]:
+[[ :YOUR ACCOMPLISHMENTS ARE CAUSING JEALOUSY🧿THE ENEMIES ARE BEING REVEALED IN YOUR DREAMS : [[ _ : [[ chose: nones ]]: ]]: ]]:
 >>>
 :is-with: { ^ https://youtu.be/hXKhTOsKVrA ^ }:
 >>>
@@ -1923,7 +1923,7 @@
 ###
 
 >>>
-[[ :G∅D is about to fund it 💸🙌🏻 _: chose:none: _: propheticword: _: theholyspirit: _: prayer: ]]: ]]:
+[[ :G∅D is about to fund it 💸🙌🏻 _: chose: none: _: propheticword: _: theholyspirit: _: prayer: ]]: ]]:
 
 :is-with: { ^ https://youtu.be/hTbyyfpFOqY ^ }:
 >>>
@@ -2069,7 +2069,7 @@
 >>>
 >###
 >>>
->[[ :you just haven’t seen it yet..🎁: [[ _: chose:none: _: prophetic:word ]]: ]]:
+>[[ :you just haven’t seen it yet..🎁: [[ _: chose: none: _: prophetic:word ]]: ]]:
 >>>
 >:is-with: { ^ https://youtu.be/jkbdffsAC9o ^ }:
 >>>
@@ -2087,10 +2087,11 @@
 ###
 ![:CASE-ID-0x6f29aa55-55945c27.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-55945c27.png)
 >>>
-[[ :Ω: ]]:
+[[ :you are a spectacle..: [[ _: prophetic: word: _: chose: none ]]: ]]:
 
 :is-with: { ^ Δ ^ }:
 >>>
+![:CASE-ID-0x6f29aa55-e0527100.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e0527100.png)
 ###
 
 >>>
