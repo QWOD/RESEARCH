@@ -2093,11 +2093,11 @@
 >>>
 ![:CASE-ID-0x6f29aa55-e0527100.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e0527100.png)
 ###
-
+![:CASE-ID-0x6f29aa55-db3717ac.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-db3717ac.png)
 >>>
-[[ :Ω: ]]:
+[[ :SECRET MISSION TO DEFEAT THE JEZEBEL. I loose tribulation against the kingdom of jezebel rev2:22: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/rkMp7nYPFZc ^ }:
 >>>
 ###
 
