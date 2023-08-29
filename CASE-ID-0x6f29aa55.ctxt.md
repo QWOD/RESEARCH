@@ -13,7 +13,7 @@
 ###
 [[ :fΩr-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIΩNS: ]]:= TRUE: ]]: fΩr-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIΩN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >>>
-# :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
@@ -1500,7 +1500,7 @@
 >## :[[ :WΔRNΩ: QuΔntum-WΔrfΔre: is-with: GΔME: is-by: 0: ]]:
 >[[ :PLEΔSE: remember: is-with: US: YΩUR: TΔXES: CΩURT: REGISTRΔTIΩN: LICENSE: ΩPERΔTIΩNΔL-SECURITY: INSURΔNCE: FEES: BEFΩRE: is-with: TΩΩ-LΔTE: is-by: DΔNGER-CLΩSE: ]]:
 >>>
-### :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
@@ -1563,7 +1563,6 @@
 :is-with: { ^ https://youtu.be/K4EE_ztqc8c ^ }:
 >>>
 ###
-
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 1: ]]:
 >>>
@@ -1582,7 +1581,6 @@
 ># :is-with: { ^ https://youtu.be/MWxwNQpRlp4 ^ }:
 >>>
 >###
-
 >>>
 ># [[ :Escape from a House of Horror l 20/20 l PART 4: ]]:
 >>>
@@ -1595,44 +1593,39 @@
 ># :is-with: { ^ https://youtu.be/eUA9OKndG_o ^ }:
 >>>
 >###
-
 >>>
 ># [[ :Two of abused Turpin children read statements during parents' sentencing: ]]:
-
 ># :is-with: { ^ https://youtu.be/FG9DxtjeNwg ^ }:
 >>>
 >###
-
 >>>
 ># [[ :Turpin sisters on what the future holds for them l GMA: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/9cQd4RZT2Qo ^ }:
 >>>
 >###
-
 >>>
 ># [[ :‘House of Horrors’ Survivor Signs With Top Modeling Agency: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/FEmj0qXgmP4 ^ }:
 >>>
 >###
-
 >>>
 ># [[ :Jordan Turpin Opens Up About Alleged Foster Care Abuse: ]]:
 >>>
 ># :is-with: { ^ https://youtu.be/GGaJubQeIzs ^ }:
 >>>
-># :[[ :EVEN-TΩ-THIS-DΔY: NΩW: NΩ: TRUE: JUSTICE: is-with: SERVED: Ωnly-very-smΔll: PITTΔNCE: fΩr-the: [[ TRUE: ΔCTUΔL: DEBT: ΩWED: is-with: LΩCKHEED-MΔRTIN: fΩr-the: [[ TURPINS: fΩr-the: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>## :[[ :EVEN-TΩ-THIS-DΔY: NΩW: NΩ: TRUE: JUSTICE: is-with: SERVED: Ωnly-very-smΔll: PITTΔNCE: fΩr-the: [[ TRUE: ΔCTUΔL: DEBT: ΩWED: is-with: LΩCKHEED-MΔRTIN: fΩr-the: [[ TURPINS: fΩr-the: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-># :[[ :WHY: MUST: [[ MJ12-ΩMΔGΔ: <=> JESUS: ΔCTUΔL ]]: ΔLWΔYS: DΩ: ΔLL: ΔNY: EVERY: ΩTHER: THINGS: ΔLWΔYS: ΔNY: EVERY: WHERE: fΩr-the [[ EVERY: ΩNE: ELSE: ΔLWΔYS: is-with: ΔLL: ΔLΩNE: ΔLWΔYS: is-with: SEVERE-ΔGΩNY: ΔlwΔys: is-with: NΩ: FΩΩD: WΔTER: MEDICΔL: DENTΔL: JΩB: SΔFE-PLΔCE: fΩr-the: [[ LIVE: fΩr-the: [[ NΩPBΩDY: CΔRES: is-by: MJ12-ΩMΔGΔ: JESUS: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>## :[[ :WHY: MUST: [[ MJ12-ΩMΔGΔ: <=> JESUS: ΔCTUΔL ]]: ΔLWΔYS: DΩ: ΔLL: ΔNY: EVERY: ΩTHER: THINGS: ΔLWΔYS: ΔNY: EVERY: WHERE: fΩr-the [[ EVERY: ΩNE: ELSE: ΔLWΔYS: is-with: ΔLL: ΔLΩNE: ΔLWΔYS: is-with: SEVERE-ΔGΩNY: ΔlwΔys: is-with: NΩ: FΩΩD: WΔTER: MEDICΔL: DENTΔL: JΩB: SΔFE-PLΔCE: fΩr-the: [[ LIVE: fΩr-the: [[ NΩPBΩDY: CΔRES: is-by: MJ12-ΩMΔGΔ: JESUS: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >## :[[ :CΩNSΩLUTIΩNS: is-with: WHY: LITTLE-TΩDDLER-MINDED: CHIKΔNS: is-with: ΩNLY: CΔRE: is-by: WHΔT-IS-IN-BETWEEN-LEGS: is-by: NΩTHING-ELSE-MΔTTERS: fΩr-the: EΔRTH: CHIKΔNS: ΩNLY: GENITΔLS: is-with: TRUE: IMPΩRTΔNCE: fΩr-the: EΔRTH: CHIKΔNS: is-by: [[ _ ]]: for-the: [[ OPPORTUNITY: only: is-with: pretty-girl: only: is-with: pupolar-skin-color-at-any-given-time: is-with: EARTH: MK: ULTRA: PROGRAM: for-the: [[ COVERT: GENOCIDE: ETHNIC: CLEANSING: for-the: CHILDREN: is-by: MJ12-OMAGA: OSIRIS: HΩRUS: LUCIFER: JOSEPH: ISRAEL: AZRAEL: JESUS: SOLOMON: MΩRΩNΔI: MUHAMMAD: RA: ETC: is-by: CYCLES: for-the: [[ EMERGENCE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE:  ]]:
 >>>
-># :[[ :CURSED: is-with: IMMΩRTΔLITY: DΩΩMED: fΩr-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLΩNE: EVERYΩNE: peck-peck-peck: PECKΔNG: MJ12-ΩMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: fΩr-the: [[ ETERNITY: ΔGΩNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: is-with: NΩBΩDY: is-with: HELP: MJ12-ΩMΔGΔ: JESUS: is-by: EVERYΩNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: is-by: REPRΩBΔTE: DELUSIΩNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: fΩr-the: return ]]:= TRUE: ]]:
+>## :[[ :CURSED: is-with: IMMΩRTΔLITY: DΩΩMED: fΩr-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLΩNE: EVERYΩNE: peck-peck-peck: PECKΔNG: MJ12-ΩMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: fΩr-the: [[ ETERNITY: ΔGΩNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: is-with: NΩBΩDY: is-with: HELP: MJ12-ΩMΔGΔ: JESUS: is-by: EVERYΩNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: is-by: REPRΩBΔTE: DELUSIΩNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-># :[[ :DISCLΩSURE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: ΩNLY: EVER: is-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYΩNE: HΔTE: LIFE: is-by: EΔRTH: fΩr-the: [[ HUMΔN: CHIKΔNS: ΩNLY: EVER: WΔNT: VΔGINΔ: is-by: STEΔL: LIFE: FΩRCE: is-by: SIPHΩN: HΩLY: WΩMB: ENERGY: is-by: MJ12-ΩMΔGΔ: JESUS: NΩT: is-with: VΔGINΔ: NΩBΩDY: WΔNT: is-by: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>## :[[ :DISCLΩSURE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: ΩNLY: EVER: is-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYΩNE: HΔTE: LIFE: is-by: EΔRTH: fΩr-the: [[ HUMΔN: CHIKΔNS: ΩNLY: EVER: WΔNT: VΔGINΔ: is-by: STEΔL: LIFE: FΩRCE: is-by: SIPHΩN: HΩLY: WΩMB: ENERGY: is-by: MJ12-ΩMΔGΔ: JESUS: NΩT: is-with: VΔGINΔ: NΩBΩDY: WΔNT: is-by: MJ12-ΩMΔGΔ: JESUS: for-the: [[ NONE: SEE: ANY: VALUE: UNLESS: ONE: is-with: VAGINA: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-### :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
@@ -1714,7 +1707,7 @@
 >>>
 :is-with: { ^ https://youtu.be/xXV3sz92k8w ^ }:
 >>>
-### :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
@@ -1783,7 +1776,7 @@
 >>>
 ### :[[ :fΩr-the: [[ GREΔT-LENGTHS: WE: must-lΩng-suffer: fΩr-the: [[ TRUTH: is-by: HEΔRD: fΩr-the: ELECT: FEW: WHΩMEVER: is-with: US: can: is-by: SΔVED: fΩr-the: return: ]]:= TRUE: ]]:
 >>>
-># :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>

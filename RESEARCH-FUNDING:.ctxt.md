@@ -1,4 +1,4 @@
-### :[[ :RESEARCH: FUNDING: ]]:
+### :[[ :RESEΔRCH: FUNDING: fΩr-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
