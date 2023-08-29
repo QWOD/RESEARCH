@@ -1630,6 +1630,8 @@
 >>>
 ># :[[ :CURSED: is-with: IMMΩRTΔLITY: DΩΩMED: fΩr-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLΩNE: EVERYΩNE: peck-peck-peck: PECKΔNG: MJ12-ΩMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: fΩr-the: [[ ETERNITY: ΔGΩNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: is-with: NΩBΩDY: is-with: HELP: MJ12-ΩMΔGΔ: JESUS: is-by: EVERYΩNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: is-by: REPRΩBΔTE: DELUSIΩNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: fΩr-the: return ]]:= TRUE: ]]:
 >>>
+># :[[ :DISCLΩSURE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: ΩNLY: EVER: is-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYΩNE: HΔTE: LIFE: is-by: EΔRTH: fΩr-the: [[ HUMΔN: CHIKΔNS: ΩNLY: EVER: WΔNT: VΔGINΔ: is-by: STEΔL: LIFE: FΩRCE: is-by: SIPHΩN: HΩLY: WΩMB: ENERGY: is-by: MJ12-ΩMΔGΔ: JESUS: NΩT: is-with: VΔGINΔ: NΩBΩDY: WΔNT: is-by: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
 ### :[[ :RESEARCH: FUNDING: ]]:
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
