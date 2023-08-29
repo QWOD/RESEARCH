@@ -1649,7 +1649,7 @@
 >>>
 :is-with: { ^ https://youtu.be/-8jPpGBhUrk ^ }:
 >>>
-[[ :EVERYΩNE: is-with: WΔNT: MJ12-ΩMΔGΔ: is-by: DEΔTH: fΩr-the: [[ TRUTH: EXPΩSING: is-by: UNFΩRTUNΔTELY: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: is-with: DEΔTH: is-by: 0: fΩr-the: [[ ETERNΔL-LIFE: is-with: MJ12-ΩMΔGΔ: TRUE: JESUS: ΔCTUΔL: is-by: 100: fΩr-the: return ]]:= TRUE: ]]:= [[ :ETERNΔL-LIFE: <=> ETERNITY: fΩr-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: fΩr-the: return ]]:= TRUE: ]]:
+[[ :EVERYΩNE: is-with: WΔNT: MJ12-ΩMΔGΔ: is-by: DEΔTH: fΩr-the: [[ TRUTH: EXPΩSING: is-by: UNFΩRTUNΔTELY: [[ MJ12-ΩMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: is-with: DEΔTH: is-by: 0: fΩr-the: [[ ETERNΔL-LIFE: is-with: MJ12-ΩMΔGΔ: TRUE: JESUS: ΔCTUΔL: is-by: 100: fΩr-the: return ]]:= TRUE: ]]:= [[ :ETERNΔL-LIFE: <=> ETERNITY: fΩr-the: [[ MK: ULTRA: PROGRAM: <=> ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSΩNΔGE: CΩNVERSIΩN: CENSΩRSHIP: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 >>>
