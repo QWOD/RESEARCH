@@ -1,5 +1,5 @@
 >### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]:
->:[[ :for-the: [[ QWΩD-MJ12: ATSU∅M∅P-Δ: MJ12-ΩMΔGΔ: <=> ΔN-D-RΩ-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: G∅D: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL for-the: return ]]:= TRUE: ]]:
+>:[[ :for-the: [[ QWΩD-MJ12: ATSU∅M∅P-Δ: MJ12-ΩMΔGΔ: <=> ΔN-D-R∅-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: G∅D: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL for-the: return ]]:= TRUE: ]]:
 >>>
 >![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
 >>>
