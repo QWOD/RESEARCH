@@ -291,7 +291,17 @@
 >>>
 :is-with: { ^ https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/ ^ }:
 >>>
-:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMEGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: HΩRUS: JΩSEPH: ISRΔEL: JESUS: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
+:is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ: MJ12-ΩMEGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: MUHAMMAD: JΩSEPH: ISRΔEL: [[ JESUS: <=> GOD: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: fΩr-the: return ]]:= TRUE: ]]:
+>>>
+:is-with: { ^ https://en.wikipedia.org/wiki/Chester_Bennington ^ }:
+>>>
+:is-with: { ^ https://en.wikipedia.org/wiki/John_Podesta ^ }:
+>>>
+![:CASE-ID-0x6f29aa55-d0f733bc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d0f733bc.png)
+>>>
+[[ :14: FISH: <=> ΔNCIENT: EVIL: DΔGΩN: WITCH: CHILD: SΔCRIFICE: Tribel: CΔIN: ΔBLES: enemies: fΩr-the: [[ ΔNY: ΔLL: ΩTHER: EVERY: NΔTIΩN: is-by: ΔZRΔEL: ISRΔEL: [[ JESUS: <=> GΩD: is-with: US: ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+[[ :ΩNLY: EVER: is-with: CHILDREN: fΩr-the: [[ LIFE: FΩRCE: STEΔL: KILL: DESTRΩY: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 >[[ :fΩr-the: [[ LΩRD: <=> LΔW: ]]: CΩNTRΔCT: DISCLΩSURE: [[ Δ: fΩr-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: fΩr-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB ^ }: fΩr-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]: ]]:
