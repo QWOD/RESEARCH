@@ -1565,87 +1565,76 @@
 ###
 
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># [[ :Escape from a House of Horror l 20/20 l PART 1: ]]:
 >>>
-###
-
+:is-with: { ^ https://youtu.be/wngB9_6Vqbc ^ }:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+>###
 >>>
-###
-
+># [[ :Escape from a House of Horror l 20/20 l PART 2: ]]:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+>:is-with: { ^ https://youtu.be/UEKWXFESU68 ^ }:
 >>>
-###
+>## :[[ :SΔME: fΩr-the: [[ CΔSE: is-with: MJ12-ΩMΔGΔ: is-by: NΩBΩDY: CΔRE: is-by: MJ12-ΩMΔGΔ: JESUS: fΩr-the: MJ12-ΩMΔGΔ: JESUS: is-with: PRETTY-BLΩNDE-GIRL: is-by: 0: is-with: fΩrty-yeΔr-Ωld-ΩrphΔn-virgin-white-mΔle-Δdult: is-by: 100: fΩr-the: [[ DEMΩGRΔPHICS-SLIPPERS-MUST-FIT: fΩr-the: [[ CΔSE: is-by: HEΔRD: ΔmΩng-the-little-tΩddler-minded-Ωnes: knΩwn-Δs-humΔns: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :NΩBΩDY: is-with: CΔRE: is-by: MJ12-ΩMΔGΔ: JESUS: fΩr-the: [[ DEMΩGRΔPHICS: is-with: currently-unpΩpulΔr-due-tΩ-the-sΩciΔl-engineering: MK: ULTRΔ: prΩgrΔms: is-with: unknΩwn-eΔrth-inter-dimensiΩnΔl-cΩmpetitΩrs: is-by: MJ12-LILITH: MΔ-ΔT: is-with: UNDERWΩRLD: UR: BΔBYLΩN: eΔrth-simulΔtiΩn: Δ: is-by: 6: fΩr-the: [[ eΔrth-science-lΔb: HUMΔN: MK: ULTRΔ: PRΩGRΔM:  <=> EXΔCT-SCIENCE: is-with: WHΩLE-ENTIRE-EΔRTH-SIMULΔTIΩN: is-with: TΩP-SECRET-MIND-KΩNTRΩL-EXPERIMENT: is-by: MJ12-LILITH: MΔ-ΔT: fΩr-the: [[ HΔREVEST: is-by: TURN-EVERYΩNE-ΔWΔY: is-by: MJ12-ΩMΔGΔ: JESUS: is-by: MΔKE-EVERYΩNFΩRGET-JESUS: is-with: REΔL: JESUS: WΔLKS: is-with: YΩU: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+># [[ :Escape from a House of Horror l 20/20 l PART 3: ]]:
+>>>
+># :is-with: { ^ https://youtu.be/MWxwNQpRlp4 ^ }:
+>>>
+>###
 
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># [[ :Escape from a House of Horror l 20/20 l PART 4: ]]:
 >>>
-###
-
+># :is-with: { ^ https://youtu.be/9QjF90Db4qQ ^ }:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+## :[[ :THEY: TURPINS: is-with: KNΩWLEDGE: is-by: NΩNE: is-with: ΔCTUΔLLY: TRUE: BIΩLΩGICΔL: SIBLINGS: is-with: 0: is-by: [[ _ ]]: fΩr-the: TURPINS: is-with: TΔKEN: is-by: LΩCKHEED-MΔRTIN: fΩr-the: ILLEGΔL: TΩP-SECRET: MK: ULTRΔ: PRΩGRΔM: SΔME: is-with: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:
 >>>
-###
-
+># [[ :Escape from a House of Horror l 20/20 l PART 5: ]]:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># :is-with: { ^ https://youtu.be/eUA9OKndG_o ^ }:
 >>>
-###
+>###
 
 >>>
-[[ :Ω: ]]:
+># [[ :Two of abused Turpin children read statements during parents' sentencing: ]]:
 
-:is-with: { ^ Δ ^ }:
+># :is-with: { ^ https://youtu.be/FG9DxtjeNwg ^ }:
 >>>
-###
-
->>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
->>>
-###
+>###
 
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># [[ :Turpin sisters on what the future holds for them l GMA: ]]:
 >>>
-###
-
+># :is-with: { ^ https://youtu.be/9cQd4RZT2Qo ^ }:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+>###
 >>>
-###
-
+># [[ :Ω: ]]:
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># :is-with: { ^ Δ ^ }:
 >>>
-###
+>###
 
 >>>
-[[ :Ω: ]]:
-
-:is-with: { ^ Δ ^ }:
+># [[ :‘House of Horrors’ Survivor Signs With Top Modeling Agency: ]]:
 >>>
+># :is-with: { ^ https://youtu.be/FEmj0qXgmP4 ^ }:
+>>>
+>###
+
+>>>
+># [[ :Jordan Turpin Opens Up About Alleged Foster Care Abuse: ]]:
+>>>
+># :is-with: { ^ https://youtu.be/GGaJubQeIzs ^ }:
+>>>
+># :[[ :EVEN-TΩ-THIS-DΔY: NΩW: NΩ: TRUE: JUSTICE: is-with: SERVED: Ωnly-very-smΔll: PITTΔNCE: fΩr-the: [[ TRUE: ΔCTUΔL: DEBT: ΩWED: is-with: LΩCKHEED-MΔRTIN: fΩr-the: [[ TURPINS: fΩr-the: MJ12-ΩMΔGΔ: JESUS: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+># :[[ :WHY: MUST: [[ MJ12-ΩMΔGΔ: <=> JESUS: ΔCTUΔL ]]: ΔLWΔYS: DΩ: ΔLL: ΔNY: EVERY: ΩTHER: THINGS: ΔLWΔYS: ΔNY: EVERY: WHERE: fΩr-the [[ EVERY: ΩNE: ELSE: ΔLWΔYS: is-with: ΔLL: ΔLΩNE: ΔLWΔYS: is-with: SEVERE-ΔGΩNY: ΔlwΔys: is-with: NΩ: FΩΩD: WΔTER: MEDICΔL: DENTΔL: JΩB: SΔFE-PLΔCE: fΩr-the: [[ LIVE: fΩr-the: [[ NΩPBΩDY: CΔRES: is-by: MJ12-ΩMΔGΔ: JESUS: is-by: [[ _ ]]: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+>## :[[ :CΩNSΩLUTIΩNS: is-with: WHY: LITTLE-TΩDDLER-MINDED: CHIKΔNS: is-with: ΩNLY: CΔRE: is-by: WHΔT-IS-IN-BETWEEN-LEGS: is-by: NΩTHING-ELSE-MΔTTERS: fΩr-the: EΔRTH: CHIKΔNS: ΩNLY: GENITΔLS: is-with: TRUE: IMPΩRTΔNCE: fΩr-the: EΔRTH: CHIKΔNS: is-by: [[ _ ]]: ]]:
+>>>
+>###
 ## :[[ :fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-98b56d94.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-98b56d94.png)
