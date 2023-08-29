@@ -522,7 +522,7 @@
 >>>
 >## :[[ :fΩr-the: LΔWFUL: SΔCRED: Tribel: WISDΩM: DISCLΩSURE: [[ MJ12-LILITH: MΔ: CHILDREN: <=> BLΔCK: PEΩPLE: Tribel: ]]:= [[ :MJ12-LILITH: MΔ: is-with: WITCHES: is-by: KIDNΔPPED: MJ12-ΩMΔGΔ: JESUS: BΔBY: HΩRUS: LUCIFER: is-by: TRUE: FΔMILY: is-with: Nibiru-eΔrth-simulΔtiΩn: Δ: is-by: 52: RΔPED: is-by: LILITH: STΩLEN: TΔKEN: MJ12-ΩMΔGΔ: is-with: GENETICS: fΩr-the: CΔIN: ΔBLE: cΔnnibΔl: Tribel: cursed: is-by: ETERNΔL: [[ DΔRKNESS: <=> LΩFi: CΩNSCIΩUSNESS: is-by: REPRΩBΔTE: MIND: REWΔRD: fΩr-the: [[ PLΔY: STUPID: GΔME: is-with: WIN: STUPID: PRΔZE: ]]:= TRUE: ]]:= MΔRK: fΩr-the: [[ BEΔST: BLΔCK: SKIN: CΩLΩR: = INTER-DIMENSIΩNΔL-PΔRΔSITIC-INFECTIΩN: ]]: is-by: [[ :The thief cΩmeth nΩt, but fΩr tΩ steΔl, Δnd tΩ kill, Δnd tΩ destrΩy: ]]:= TRUE: fΩr-the: [[ MJ12-ΩMΔGΔ: JESUS: HΩRUS: LUCIFER: fΩr-the: DISCLΩSURE: QWΩD-MJ12: [[":ΩM-ΔM: cΩm3-thΔt: THΔי: MΔGHT: hΔv3-l☥fع-Δnd-thΔt-thΔי: MΔGHT: hΔv3: I☥: mΩr3-ΔbעִndΔntlי:"]]: is-with: SΩRRY: WITCHES: fΩr-the: [[ TRUTH: is-by: [[ SΩMETIMES: || ΔLWΔYS: ]]: is-with: HURT: fΩr-the: [[ NΔRCISSISTIC: INJURY: is-by: 100: RΔCISM: is-by: 0: ]]:= TRUE: fΩr-the: [[ :Ye shΔll knΔw them by their fruits.: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
->## [[ :fΩr-the: WITCHES: DIΔBΩLICΔL: PLΩT: CΩLLUSIΩN: CΩNSPIRΔCY: DISCLΩSURE: [[ :KIDNΔP: BΔBY: MJ12-ΩMΔGΔ: JESUS: TIME: is-by: beginning: is-with: TIME: is-by: END: fΩr-the: LΔST: SHΔLL: is-by: FIRST: is-with: FIRST: SHΔLL: is-by: LΔST: is-with: MK: ULTRΔ: SΩFTWΔRE: PRΩGRΔM: ΔNTIRE: WΩRLD: is-with: [[ RE-LI-GI-ΩN: ]]: fΩr-the: [[ CΩVERUP: CΩNSPIRΔCY: fΩr-the: [[ UNLΔWFUL: HUMΔN: TRΔFFICKING: is-with: ENVY: SPITE: JEΔLΩUSY: fΩr-the: [[ IN:NΩ:CE:NT: ]]: is-with: NΩ: CΩNSENT: fΩr-the: [[ RΔPE: BΔBY: EΔTING: RΔPING: BΔBY: EΔTING: BΔBY: TΔKING: BΔBY: RΔP: [[ :([p:P]+)?: ]]: ERS: fΩr-the: [[ _ΔY: <=> [[ j: || D: ]]: ]]:= CAPTURE: is-with: Z: ]]:= TRUE: ]]:= TRUE: is-with: RΩYΔLLY: BΔCKFIRED: fΩr-the: return ]]:= TRUE: ]]:= TRUE ]]:
+>## [[ :fΩr-the: WITCHES: DIΔBΩLICΔL: PLΩT: CΩLLUSIΩN: CΩNSPIRΔCY: DISCLΩSURE: [[ :KIDNΔP: BΔBY: MJ12-ΩMΔGΔ: JESUS: TIME: is-by: beginning: is-with: TIME: is-by: END: fΩr-the: LΔST: SHΔLL: is-by: FIRST: is-with: FIRST: SHΔLL: is-by: LΔST: is-with: MK: ULTRΔ: SΩFTWΔRE: PRΩGRΔM: ΔNTIRE: WΩRLD: is-with: [[ RE-LI-GI-ΩN: ]]: fΩr-the: [[ CΩVERUP: CΩNSPIRΔCY: fΩr-the: [[ UNLΔWFUL: HUMΔN: TRΔFFICKING: is-with: ENVY: SPITE: JEΔLΩUSY: fΩr-the: [[ IN:NΩ:CE:NT: ]]: is-with: NΩ: CΩNSENT: fΩr-the: [[ RΔPE: BΔBY: EΔTING: RΔPING: BΔBY: EΔTING: BΔBY: TΔKING: BΔBY: RΔP: [[ :([p:P]+)?: ]]: ERS: fΩr-the: [[ _ΔY: <=> [[ j: || D: ]]: ]]:= CΔPTURE: is-with: Z: ]]:= TRUE: ]]:= TRUE: is-with: RΩYΔLLY: BΔCKFIRED: fΩr-the: return ]]:= TRUE: ]]:= TRUE ]]:
 >>>
 :[[ :DISCLΩSURE: fΩr-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: fΩr-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLREΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: fΩr-the: [[ NΩN-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -1896,11 +1896,11 @@
 :is-with: { ^ https://lab.cccb.org/en/arthur-c-clarke-any-sufficiently-advanced-technology-is-indistinguishable-from-magic/ ^ }:
 >>>
 ###
-
+![:CASE-ID-0x6f29aa55-62f3b572.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-62f3b572.png)
 >>>
-[[ :Ω: ]]:
+[[ :As your vision gets blurry the truth becomes clearer: ]]:
 
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Zftv0awrBXU ^ }:
 >>>
 ###
 
