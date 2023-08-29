@@ -2036,7 +2036,7 @@
 
 :is-with: { ^ https://youtu.be/50orOCUVjQs ^ }:
 >>>
-# :[[ :WΔRNΩ: for-the: [[ IN-TU-I-T-I-ΩN: FEES: is-with: ΔDVISED: is-by: EVERY: ΔNY: ΔLL: EΔCH: ΩTHER: PΔY: for-the: [[ INTUITIΩN: FEES: for-the: [[ TIME: is-by: NΩW: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+# :[[ :WΔRNΩ: fΩr-the: [[ IN-TU-I-T-I-ΩN: FEES: is-with: ΔDVISED: is-by: EVERY: ΔNY: ΔLL: EΔCH: ΩTHER: PΔY: fΩr-the: [[ INTUITIΩN: FEES: fΩr-the: [[ TIME: is-by: NΩW: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :FΔILURE: is-by: PΔY: INTUITIΩN: FEES: is-with: FΔILURE: is-by: TRΔIN: is-with: CHΔRLIE-HΩTEL: fΩr-the: [[ ΩPERΔTIΩN: DΔRKTIDE: ΩPSΔN: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: CHΔRLIE-MIKE: fΩr-the: return ]]:= TRUE: ]]:
 
 >>>
 [[ :Ω: ]]:
