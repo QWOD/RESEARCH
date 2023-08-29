@@ -2099,6 +2099,7 @@
 
 :is-with: { ^ https://youtu.be/rkMp7nYPFZc ^ }:
 >>>
+![:CASE-ID-0x6f29aa55-3edb94bc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3edb94bc.png)
 ###
 
 >>>
