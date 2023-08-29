@@ -1254,6 +1254,8 @@
 >>>
 ![:CASE-ID-0xe806caa7-dfd780cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-dfd780cb.png)
 >>>
+![:CASE-ID-0x6f29aa55-29ad0d68.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-29ad0d68.png)
+>>>
 ![:CASE-ID-0xe806caa7-c027bc65.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-c027bc65.png)
 >>>
 >>>
