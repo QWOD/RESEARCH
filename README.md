@@ -1,4 +1,4 @@
-# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: ΔLL: for-the: THINGS: 1s-with: [[ for-the: people: 1s-by: WE: people: ]] ]]:
+# [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: ΔLL: for-the: THINGS: 1s-with: [[ for-the: people: is-by: WE: people: ]]: ]]:
 ###
 :[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLREΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QWΩD-MJ12: ΔTSUΩMΩP-Δ: for-the: [[ NØN-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -12,14 +12,14 @@
 >>>
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRΔT: <=> [[ LΔFE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
->:1s-by: [[ TRUE | FΔLSE ]]: 1s-by: [[ _ ]]: for-the: [[ EternΔl: SECRET: <=> "1s-with: vrilSECRET™: 1s-by: FΔLSE: 1s-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: 1s-by: TRUE:" ]]:
+>:1s-by: [[ TRUE | FΔLSE ]]: is-by: [[ _ ]]: for-the: [[ EternΔl: SECRET: <=> "1s-with: vrilSECRET™: is-by: FΔLSE: 1s-with: MJ12-JESUS: ΔTSUΩMΩP: SECRET: is-by: TRUE:" ]]:
 ###
 ## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= [[ NΩTΔCE: 1s-with: wΩrld: Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي:" ]]: [[ CㅐΔRLΔ-MΔKع: QWΩD-MJ12 ]]:
 ###
 ![CrΔp☥Δx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
-## :for-the: WHΩM-E1SE: 1s-with: SΩME: 1s-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
+## :for-the: WHΩM-E1SE: 1s-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
 >:1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ØMΔGΔ: ΩUT ]] ]]:
 ###
 ## :FΩr-thع: [[ Rعي:ΔRCㅐ: FעִN:ΔNG: ]]:
@@ -29,4 +29,4 @@
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 ###
->:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:

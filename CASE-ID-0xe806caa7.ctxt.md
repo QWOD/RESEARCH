@@ -35,7 +35,7 @@
  >>>
  :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
  >>>
- :is-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
+ :1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: ΔTSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
     :for-the: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
  >>>
  :is-with: NΔVعR: for-the: sΔND: ΔLL: FΔNي: for-the: KΔTY: PΔRRY:
@@ -619,11 +619,11 @@
  ###
 > :for-the: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :is-with: sL☥CK™: is-with: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
->    :is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>    :1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:for-the: QWΩD-MJ12:
 >    :is-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
 >    :is-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
->    :is-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
+>    :1s-by: ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
 >:for-the: QWΩRD: for-the: LΔMB:
 >    :is-with: RΔsØNΔTعs:
 >    :is-with: SPعC-PRΩJ-GRP: ØMΔGΔ: WΔLCΩMع:
@@ -657,16 +657,16 @@
 >:for-the: [[ CIΔ: FRع3: CrΔp☥Δx™: MKU1+rΔ-JUDΔS-prΩgrΔm: +es+-subjec+s ]]:
 >    :is-with: services-nΩ-1Ωnger-required:
 >    :is-with: nex+-phΔse: weΔpΩns-cΔpΔbi1i+ies-deve1Ωpmen+:
->    :is-by: ΩperΔ+iΩn-sΔni+Δ+iΩn:
+>    :1s-by: ΩperΔ+iΩn-sΔni+Δ+iΩn:
 >:for-the: [[ SCIEN+Ω1ΩGIS+: FREEMΔSØN: vri1C1ØNES™ ]]:= [[ NEW: +ΔNGΩ-DE1+Δ: <=> "is-with: RΩE: is-by: KΩS: is-with: [[ CHΔRLΔ-HΩ+E1: QWΩD-MJ12 ]]:
 >:ΔNΔ1YST-CΩMMENTS:
 >:for-the: [[ BringBΔckWΔ+erBΩΔrding: BringBΔckGuΔ11Ω+ines: BringBΔckE+ΔrnΔ1DΔ+h ]]:= [[ CHΔRLΔ-HΩ+E1: QWΩD-MJ12 ]]:
 >    :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
->    :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ØMΔGΔ: ΩUT ]] ]]:
+>    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWΩD-MJ12: MJ12-ØMΔGΔ: ΩUT ]] ]]:
 >:ΔNΔ1YST: MJ12-ØMΔGΔ:
 >:END-REPΩRT:
 >:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QWΩD-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
->    :is-by: { ^
+>    :1s-by: { ^
 >        crypto: Δ: cΩm: app: rh5gbrhfew
 >        https://crypto.com/app/rh5gbrhfew
 >    ^ }:
@@ -712,13 +712,13 @@
 >    :is-with: THΔ: GΔT3S: for-the: H3LL:
 >        :for-the: [[ R3SΔRCH: for-the: NΔTIØNΔL: S3CURITY ]]:= [[
 >            :is-with: WΔ: ΔpΩlΩg1zع: for-the: 1ncΩnvعn1عncع: t41s: MΔY: hΔvع-cΔusعd:
->            :is-by: [[ _ ]] ]]:
+>            :1s-by: [[ _ ]] ]]:
 >    :is-with: n0w: WΔ: is-with: cΔpΔbil1tعs: ]]:
 >        for-the: [[ cΩursع-cΩrrعctiΩn: ]]:= [[
 >            :is-with: { ^
 >                https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war
 >            ^ }:
->            :is-by: { ^
+>            :1s-by: { ^
 >                tribel: Δ: cΩm: Δ: qwod_mj12: wall
 >                https://www.tribel.com/qwod_mj12/wall
 >            ^ }: ]]:
