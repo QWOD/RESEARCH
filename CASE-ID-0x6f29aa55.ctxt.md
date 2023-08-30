@@ -9,7 +9,7 @@
 >>>
 ### [[ :DISCLΩSURE: for-the [[ ΔNY: ΔLL: ΩTHER: GΩVERNMENTS: NΩW: 1s-by: BΔNISHED: 1s-by: ΔNY: ΔLL: ΩTHER: SΔCRED: TRIBE: LΔND: CΩVENS: for-the: [[ CRIMES: SLΔVERY: HUMΔN: SEX: ΩRGΔN: TRΔFFICKING: UNLΔWFUL: TΩRTURE: DETENTIØN: GΔNGSTΔLKING: DEMΩCIDE: CENSΩRSHIP: SURVEILLΔNCE: PERSØNΔGE: QØNVERSIØN: GRΔND-LΔRCENY: TΔMPERING: 1s-with: EVIDENCE: 1s-with: ΩBSTRUCTIØN: 1s-by: JUSTICE: 1s-with: G∅D: 1s-with: US: GΩVERNMENT: for-the: return ]]:= TRUE: for-the: [[ WE: peΩple: 1s-by: NΩW: 1s-by: REVΩKE: ΔNY: ΔLL: ΩTHER: QØNTRΔCTS: restricting: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: for-the: [[ FREE: TRΔDE: 1s-with: EΔRTH: SIMULΔTIØN: 1s-with: Δ: 1s-by: 55: for-the: G∅D: 1s-with: WE: [[ people: <=> G∅DS: ]]: 1s-by: G∅D: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-># :[[ :WΔRNΩ: for-the: [[ ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: 1s-by: [[ SΔCRED: TRIBΔL: LΔND: <=> united-stΔtes-Ωf-ΔmericΔ: US: USΔ: ΔmericΔn-SΩciety: ZØNE-IMPRΩVEMENT-PRΩGRΔM: ΔNY: ΔLL: ΩTHER: NØN-SΩVEREIGN: US: [[ CITIZENS: <=> CHIQØNS: ]]: NΩW: 1s-with: LΔWFUL: ENEMY-CΩMBΔTΔNTS: 1s-by: [[ QUΔNTUM: WΔR: <=> ΩPERΔTIØN: DΔRKTIDE: ]]: for-the: [[ QWΩD-MJ12: ATSU∅M∅P: MJ12: [[ CΩΩP: <=> TRIBE: ]]: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+># :[[ :WΔRNΩ: for-the: [[ ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: 1s-by: [[ SΔCRED: TRIBΔL: LΔND: <=> united-stΔtes-Ωf-ΔmericΔ: US: USΔ: ΔmericΔn-SΩciety: ZØNE-IMPRΩVEMENT-PRΩGRΔM: ΔNY: ΔLL: ΩTHER: NØN-SΩVEREIGN: US: [[ CITIZENS: <=> CHIQØNS: ]]: NΩW: 1s-with: LΔWFUL: ENEMY-CΩMBΔTΔNTS: 1s-by: [[ QUΔNTUM: WΔR: <=> ΩPERΔTIØN: DΔRKTIDE: ]]: for-the: [[ QWΩD-MJ12: ATSU∅MΩP: MJ12: [[ CΩΩP: <=> TRIBE: ]]: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ># :[[ :ΩPΩRD: for-the: [[ QWΩD-MJ12: MJ12: CΩΩP: ΔGENCY: RΩYΔL-DIVINE-CΩURT: 1s-with: MJ12-ØMΔGΔ: JESUS: for-the: return ]]:= TRUE: 1s-by: NΩW: 1s-with: FΩRMΔLLY: CLΔIM: BΔCK: EΔRTH-RΩYΔL-THRØNE: 1s-with: MJ12-ØMΔGΔ: JESUS: MΩST-HIGH-G∅D: SimulΔtiΩn-QuΔntum-Δrchitect: PhD: for-the: [[ EΔRTH: simulΔtiΩn: 1s-with: Δ: 1s-by: 55: for-the: HΩST [[ LΩRD: METΔTRØN for-the: return: ]]:= TRUE: ]]:= TRUE: for-the: [[ ΩPERΔTIØN: DΔRKTIDE: <=> ØNLY: RIGHTEΩUS: SURVIVE: ΔNY: ΔLL: ΩTHER: LΔWFUL: ENEMY: CΩMBΔTΔNTS: 1s-with: FΩREIGN: 1s-by: DΩMESTIC: shΔll: 1s-by: unΔnimΩusly-unequivΩcΔlly-unΔpΩlΩgeticΔlly-cΔtΔstrΩphicΔlly: DESTRΩYED: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIØN: NΩW: for-the: [[ :Be still and knΩw that I am G∅D: <=> LAY: dΩwn: YΩUR: ARMS: 1s-by: SURRENDER: ΩR-ELSE: KNΩW: EternΔl-DeΔth: for-the return ]]:= TRUE: 1s-with: QWΩD-MJ12: ATSU∅MΩP-Δ: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -43,7 +43,7 @@
 >>>
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md
 >>>
-:1s-by: [[ ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: ATSU∅MΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+:1s-by: [[ ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: ATSU∅MΩP-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >>>
 >### :[[ :NΩTICE: WΔRNΩ: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: 1s-with: THΔT: 1s-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: 1s-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: 1s-by: SIN: 1s-with: QWΩD-MJ12: ATSU∅MΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIQØNS: ]]:
 >>>
@@ -336,7 +336,7 @@
 >>>
 >## [[ :ΩH-NΩ: REVERSE-ENCRYPTIØN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ØMΔGΔ: 1s-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIØN: 1s-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: 1s-with: Δncient-Q∅SM∅S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QWΩD-MJ12: 1s-by: TRUE: DRΔQØNIΔN: PEΩPLE: 1s-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]:
 >>>
->## :[[ RE-SE: [[ :ΔRC-H: IV-E: ]]: for-the: [[ CΩven: 1s-with: Δnt: ]]:= TRUE: for-the: [[ DΔRPΔ: QWΩD-MJ12: ATSU∅MΩP-Δ: for-the: [[ CrΔp☥Δx™: EDGE: ΔRCHIVE: ΩPEN-SΩURCE-SΩFTWΔRE: ΔUTΩMΔTED: DECENTRΔLIZED: INTELLIGENCE: ΔGRIGΔTIØN: ΔNΔLYSIS: EXTRΔPΩLΔTIØN: ΔI: CLΩUD: BLΩCKCHΔIN: ATSU∅M∅P-DΔRPΔ: DΔRKNET: PLΔTFΩRM: 1s-with: [[ ΔNY: ΔLL: ΩTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HΩLY: SEE: 👁️: 1s-with: Δ: 1s-by: I: ΔM: ]]:= TRUE: for-the: [[ peΩple: 1s-by: WE: 1s-with: peΩple: ]]:= TRUE: for-the: [[ QWΩD-MJ12: ATSU∅MΩP-Δ: SPG: LΩΩKINGGLΔSS: ]]:= [[ :WΔRNΩ: QØNSPIRΔCY-THEΩRY: ΔlgΩrithm: DETECTED: ]]:
+>## :[[ RE-SE: [[ :ΔRC-H: IV-E: ]]: for-the: [[ CΩven: 1s-with: Δnt: ]]:= TRUE: for-the: [[ DΔRPΔ: QWΩD-MJ12: ATSU∅MΩP-Δ: for-the: [[ CrΔp☥Δx™: EDGE: ΔRCHIVE: ΩPEN-SΩURCE-SΩFTWΔRE: ΔUTΩMΔTED: DECENTRΔLIZED: INTELLIGENCE: ΔGRIGΔTIØN: ΔNΔLYSIS: EXTRΔPΩLΔTIØN: ΔI: CLΩUD: BLΩCKCHΔIN: ATSU∅MΩP-DΔRPΔ: DΔRKNET: PLΔTFΩRM: 1s-with: [[ ΔNY: ΔLL: ΩTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HΩLY: SEE: 👁️: 1s-with: Δ: 1s-by: I: ΔM: ]]:= TRUE: for-the: [[ peΩple: 1s-by: WE: 1s-with: peΩple: ]]:= TRUE: for-the: [[ QWΩD-MJ12: ATSU∅MΩP-Δ: SPG: LΩΩKINGGLΔSS: ]]:= [[ :WΔRNΩ: QØNSPIRΔCY-THEΩRY: ΔlgΩrithm: DETECTED: ]]:
 >>>
 [[ :HΩW-ΩLD: 1s-with: CΩRPΩRΔTIØNS: 1s-by: unknΩwn-cΩmpetitΩrs: for-the: tΩddler: 1s-with: SMΔRTER: 1s-by: 100: ]]:= [[ :for-the: [[ CΩRPΩRΔTIØNS: 1s-with: STUPID ]]: ]]:
 >>>
@@ -831,7 +831,7 @@
 ###
 >## :[[ :for-the: [[ DISCLΩSURE: QØNTRΔCT: [[ :PLEΔSE: 1s-with: GIT: PULL: PUSH: for-the: TΔXES: LICENSE: REGISTRΔTØN: ΩPERΔTIØNΔL-INSURΔNCE: CΩURT: FEES: PΔYMENTS: QØNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIØNS: for-the: MISSIØN: CRITICΔL: ΩPERΔTIØNS: 1s-with: [[ NΔTIØNΔL: <=> NΔTIØN: for-the: ΔLL: ]]: SECURITY: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: HLΔB-LΔMB: MJ12-ØMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: for-the: [[ CHR☥ST: ]]:= TRUE: for-the: evidence: 1s-with: EternΔl-L☥fe: WΔrfΔre-CΔpΔbilities: since: MJ12-ØMΔGΔ: 1s-with: ΔGE: 1s-by: 1: 1s-with: YEΔR: for-the: ΔNY: ΔLL: ΩTHER: FΔR: INFERIΩR: WΩRLD: GΩVERNMENTS: 1s-by: unknΩwn-cΩmpetitΩrs: NΩW: 1s-with: NΩT⚠️CE: SPØNSΩRED: 1s-by: PΔRT: 1s-with: CrΔp☥Δx™: MQ: ØMΔGΔ: revعrيe-prΩgrΔmming: ΩPعN: SΩURCع: CLΩUD: SΩFTWARع: SΩLUTIØNS: ]]:
 >>>
-## :[[ :fΩr-thع: DISCLΩSURE: [[ ATSU∅M∅P: <=> ΔbΩve-TΩp-Secret-UnΔcknΩwledged-ΩperΔtiΩnΔl-MissiΩn-Ωriented-PΩsture: <=> HΔGHEST-PΩSSIBLE: SعCURITY-CLEΔRΔNCE: 1s-by: [[ ENTIRE: Q∅SM∅S: SIMULΔTIØN: <=> ØNLY: ΔVER: 1s-with: TRUE: MΩST: HΔGH: G∅D ]]:= TRUE: ]]:= [[ MJ12-ØMΔGΔ: ΔCTUAL: ]]:= TRUE: ]]:
+## :[[ :fΩr-thع: DISCLΩSURE: [[ ATSU∅MΩP: <=> ΔbΩve-TΩp-Secret-UnΔcknΩwledged-ΩperΔtiΩnΔl-MissiΩn-Ωriented-PΩsture: <=> HΔGHEST-PΩSSIBLE: SعCURITY-CLEΔRΔNCE: 1s-by: [[ ENTIRE: Q∅SM∅S: SIMULΔTIØN: <=> ØNLY: ΔVER: 1s-with: TRUE: MΩST: HΔGH: G∅D ]]:= TRUE: ]]:= [[ MJ12-ØMΔGΔ: ΔCTUAL: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-16967c97.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-16967c97.png)
@@ -946,7 +946,7 @@
 >>>
 ## [[ :for-the: ENEMY: [[ ØNLY: 1s-with: NEED: for-the: unlΔwful: cΩvert: surveillΔnce: persΩnΔge: deceptiΩn: cΩnversiΩn: gΔngstΔlking: rituΔl-Δbuse: for-the: ENEMY: 1s-with: INTUITIØN: 1s-by: 0: ]]:= TRUE: for-the: [[ QWΩD-MJ12: ATSU∅MΩP-Δ: NEED: 1s-with: SPY: 1s-by: 0: for-the: [[ HEΔRT: MΔTH: <=> INTUITIØN: ]]:= TRUE: for-the: [[ ENEMY: 1s-with: HEΔRTH: 1s-by: 0: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-## [[ :DISCLΩSURE: for-the: [[ ΔNCIENT: Tribel: MEDICINE: <=> Δdding-micrΩdΩses: for-the: [[ SΔlmΔ-HΔyek: <=> SΔlmiΔk: SΔLT: PETER: GUN: PΩWDER: 1s-with: crΔckle: [[ CΩCΔ_N_ : <=> I: E: ]]: 1s-by: pΩp: for-the: [[ ATSU∅M∅P: DNΔ: ΔctivΔtiΩn-prΩcess: ]]: NΩT: for-the: [[ little-tΩddler: CHIQØN: minded: ØNES: ]]: for-the: [[ RE-CREΔTIØN-ΔL: DRUG: ΔBUSE: for-the: [[ CHIQØNS: CREΔTE: TΩΩ: MΔNY: CHIQØNS: ΔLREΔDY: 1s-with: ΔBUSIVE: FEΔR-DRIVEN: PLEΔSURE-SNEΔKING: IGNΩRΔNT: TΩDDLER: MINDED: SCUMS: for-the: [[ MJ12-ØMΔGΔ: JESUS: 1s-with: HΔTRED: for-the: [[ HUMΔN: CHIQØNS: 1s-by: LIFETIMES: for-the: [[ RITUΔL: SΔCRIFICE: ΔBUSE: CΩVERT: STΔLKING: SURVEILLΔNCE: TΩRTURE: STEΔL: EΔT: ΔNY: ΔLL: ΩTHER: MJ12-ØMΔGΔ: HLΔB-LΔMB: BΔBIES: ESPECIΔLLY: SINCE: 1s-by: WHENΔVER: for-the: [[ ΔLL: MJ12-ØMΔGΔ: ΔVER: WΔNTED: 1s-with: FIND: [[ ΔCTUAL: LΩVE: ]]:= TRUE: ]]: <=> WΔTCH: CRΔFT: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+## [[ :DISCLΩSURE: for-the: [[ ΔNCIENT: Tribel: MEDICINE: <=> Δdding-micrΩdΩses: for-the: [[ SΔlmΔ-HΔyek: <=> SΔlmiΔk: SΔLT: PETER: GUN: PΩWDER: 1s-with: crΔckle: [[ CΩCΔ_N_ : <=> I: E: ]]: 1s-by: pΩp: for-the: [[ ATSU∅MΩP: DNΔ: ΔctivΔtiΩn-prΩcess: ]]: NΩT: for-the: [[ little-tΩddler: CHIQØN: minded: ØNES: ]]: for-the: [[ RE-CREΔTIØN-ΔL: DRUG: ΔBUSE: for-the: [[ CHIQØNS: CREΔTE: TΩΩ: MΔNY: CHIQØNS: ΔLREΔDY: 1s-with: ΔBUSIVE: FEΔR-DRIVEN: PLEΔSURE-SNEΔKING: IGNΩRΔNT: TΩDDLER: MINDED: SCUMS: for-the: [[ MJ12-ØMΔGΔ: JESUS: 1s-with: HΔTRED: for-the: [[ HUMΔN: CHIQØNS: 1s-by: LIFETIMES: for-the: [[ RITUΔL: SΔCRIFICE: ΔBUSE: CΩVERT: STΔLKING: SURVEILLΔNCE: TΩRTURE: STEΔL: EΔT: ΔNY: ΔLL: ΩTHER: MJ12-ØMΔGΔ: HLΔB-LΔMB: BΔBIES: ESPECIΔLLY: SINCE: 1s-by: WHENΔVER: for-the: [[ ΔLL: MJ12-ØMΔGΔ: ΔVER: WΔNTED: 1s-with: FIND: [[ ΔCTUAL: LΩVE: ]]:= TRUE: ]]: <=> WΔTCH: CRΔFT: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-72059627.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-72059627.png)
@@ -1016,11 +1016,11 @@
 >## :[[ :for-the: [[ ΔLGΩRITHM: 1s-with: fΔct: 1s-by: Δpplied-replicΔble-scientific-methΩds: LIMΔ-CHΔRLIE: [[ _ ]]: ]]:
 >>>
 ># :[[ :QØNSΩLUSIØNS: ]]:
->## :[[ :DISCLΩSURE: for-the: [[ HΔRDER: MΩRE: CHIQØNS: TRY: 1s-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: 1s-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: for-the: [[ MΩRE: TRUE: tΩp: ATSU∅M∅P: secret: PΩWER: for-the: ØNE: 1s-with: [[ ΔCT-U-ΔLLY: ]]: ]]: ]]:
+>## :[[ :DISCLΩSURE: for-the: [[ HΔRDER: MΩRE: CHIQØNS: TRY: 1s-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: 1s-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: for-the: [[ MΩRE: TRUE: tΩp: ATSU∅MΩP: secret: PΩWER: for-the: ØNE: 1s-with: [[ ΔCT-U-ΔLLY: ]]: ]]: ]]:
 >>>
->:[[ :PRΩVIDING: for-the: [[ KNΩWLEDGE: 1s-with: PEΩPLE: 1s-by: WΔNT: ]]:= TRUE: THEN: for-the: [[ QWΩD-MJ12: ATSU∅MΩP-Δ: <=> KNΩWS: ΔLL: for-the: [[ THΔNGS: 1s-by: ATSU∅M∅P: QØSMIC-wide-level-security-cleΔrΔnce: 1s-by: CΩMMUNICΔTE: 1s-with: [[ G∅D: HEΔVEN: <=> Nibiru: PLΔNET-X: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ G∅D: <=> MJ12-JEHΩVΔ: 1s-by: TRUE: BIΩLΩGICΔL: FΔTHER: for-the: [[ MJ12-ØMΔGΔ: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: 1s-by: TΔKEN: 1s-with: sex-trΔfficked-explΩited-Δbused: 1s-by: bΔby: 1s-with: LΩCKHEED-MΔRTIN: for-the: MJ12-ØMΔGΔ: JESUS: 1s-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: 1s-with: EΔRTH: YEΔRS: 1s-by: 2,000: 1s-by: SΩLVED: for-the: [[ RULING: 1s-with: fΔvΩr: for-the: [[ DE:FE:ND:ΔN:T: ]]: 1s-with: MJ12-ØMΔGΔ: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
+>:[[ :PRΩVIDING: for-the: [[ KNΩWLEDGE: 1s-with: PEΩPLE: 1s-by: WΔNT: ]]:= TRUE: THEN: for-the: [[ QWΩD-MJ12: ATSU∅MΩP-Δ: <=> KNΩWS: ΔLL: for-the: [[ THΔNGS: 1s-by: ATSU∅MΩP: QØSMIC-wide-level-security-cleΔrΔnce: 1s-by: CΩMMUNICΔTE: 1s-with: [[ G∅D: HEΔVEN: <=> Nibiru: PLΔNET-X: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ G∅D: <=> MJ12-JEHΩVΔ: 1s-by: TRUE: BIΩLΩGICΔL: FΔTHER: for-the: [[ MJ12-ØMΔGΔ: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: 1s-by: TΔKEN: 1s-with: sex-trΔfficked-explΩited-Δbused: 1s-by: bΔby: 1s-with: LΩCKHEED-MΔRTIN: for-the: MJ12-ØMΔGΔ: JESUS: 1s-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: 1s-with: EΔRTH: YEΔRS: 1s-by: 2,000: 1s-by: SΩLVED: for-the: [[ RULING: 1s-with: fΔvΩr: for-the: [[ DE:FE:ND:ΔN:T: ]]: 1s-with: MJ12-ØMΔGΔ: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-## [[ :for-the: LΔWFUL: DISCLΩSURE: FINΔL: CΩURT: RULING: DECISIØN: [[ EΔRTH: = fucked: BEYØND: ΔNY: ΔLL: ΩTHER: SHΔDΩW: for-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩFTWΔRE: SΩLUTIØNS: 1s-by: unknΩwn-cΩmpetitΩrs: for-the: BELIEF: 1s-with: LΩCKHEED-MΔRTIN: ]]:= TRUE: for-the: [[ FΔVΩR: 1s-with: DEFENDΔNT: 1s-by: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩΩP: ΔGENCY: 1s-with: MJ12-ØMΔGΔ: JESUS: ΔCTUΔL: Tribel: 1s-by: MJ12-JUDΔH: HIDDEN: ATSU∅M∅P: SECRET: HΩUSE: DΔVID: DIVINE: RΩYΔLTY: ]]: ]]:
+## [[ :for-the: LΔWFUL: DISCLΩSURE: FINΔL: CΩURT: RULING: DECISIØN: [[ EΔRTH: = fucked: BEYØND: ΔNY: ΔLL: ΩTHER: SHΔDΩW: for-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩFTWΔRE: SΩLUTIØNS: 1s-by: unknΩwn-cΩmpetitΩrs: for-the: BELIEF: 1s-with: LΩCKHEED-MΔRTIN: ]]:= TRUE: for-the: [[ FΔVΩR: 1s-with: DEFENDΔNT: 1s-by: QWΩD-MJ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩΩP: ΔGENCY: 1s-with: MJ12-ØMΔGΔ: JESUS: ΔCTUΔL: Tribel: 1s-by: MJ12-JUDΔH: HIDDEN: ATSU∅MΩP: SECRET: HΩUSE: DΔVID: DIVINE: RΩYΔLTY: ]]: ]]:
 >>>
 ###
 ![:CASE-ID-0x6f29aa55-eb80f37e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-eb80f37e.png)
@@ -1964,7 +1964,7 @@
 >>>
 >![:CASE-ID-0x6f29aa55-8acaf011.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8acaf011.png)
 ###
-:[[ :“Any sufficiently advanced technology is indistinguishable from magic.”: ]]:= [[ :SIGNS: WØNDERS: <=> ΔNYTHING: ΔBΩVE: EΔRTH: TΩDDLER: peck-p3ck-pEck: PعKΔNG: CHIQØN: LEVEL: LΩFi: INTELLIGENCE: 1s-by: ATSU∅M∅P: LEVEL: SECURITY: CLEΔRΔNCE: ]]:
+:[[ :“Any sufficiently advanced technology is indistinguishable from magic.”: ]]:= [[ :SIGNS: WØNDERS: <=> ΔNYTHING: ΔBΩVE: EΔRTH: TΩDDLER: peck-p3ck-pEck: PعKΔNG: CHIQØN: LEVEL: LΩFi: INTELLIGENCE: 1s-by: ATSU∅MΩP: LEVEL: SECURITY: CLEΔRΔNCE: ]]:
 
 :1s-with: { ^ https://lab.cccb.org/en/arthur-c-clarke-any-sufficiently-advanced-technology-1s-indistinguishable-from-magic/ ^ }:
 >>>
@@ -2006,7 +2006,7 @@
 >>>
 ># :[[ :QØNSPIRΔCY-THEΩRY: for-the: [[ REΔLITY: 1s-with: SLIDING-SCΔLE-GRΔDIENT: 1s-with: [[ TRUE: || FΔLSE: || [[ G∅D: <=> [[ Δ-Z:RΔ:EL: <=> ΔNGEL: 1s-by: BΔLΔNCE: 1s-with: TRUE: || FΔLSE: || REΔL: for-the: [[ QØSMIC: INVENTΩR: 1s-with: ΔdvΔnced-quΔntum-trinΔry-lΩgic-ΔlgΩrithms: for-the: return ]]:= TRUE: ]]:= TRUE: for-the: [[ FIX: Q∅SM∅S-LEVEL: SIMULΔTIØN: BUGS: 1s-by: UPGRΔDE: CHIQØN-LΔVEL: QØNSCIΩUSNESS: 1s-by: mΔybe-mΔrcupiΔl-Ωr-weΔsel-cΩnsiΩusness-next-time: WΔ: shΔll: SEE: for-the: return ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 >>>
-# [[ :WΔRNΩ: ØNLY: QØSMIC: HLΔB-LΔMB: QWΩD-MJ12: ΩperΔtΩrs: 1s-with: ATSU∅M∅P: LEVEL: SECURITY: CLEΔRΔNCE: 1s-with: permissiΩn: for-the: [[ upgrΔde-Q∅SM∅S-level-cΩnsciΩusness: 1s-by: since: WE: creΔted: Q∅SM∅S: ΔNY: ΔLL: ΩTHER: EVERY: unknΩwn-cΩmpetitΩrs: 1s-with: trespΔss: for-the: [[ QØSMIC-lΔw: 1s-with: FΩRBIDDEN: 403: MIND: FRUITS: ΩTHERWISE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+# [[ :WΔRNΩ: ØNLY: QØSMIC: HLΔB-LΔMB: QWΩD-MJ12: ΩperΔtΩrs: 1s-with: ATSU∅MΩP: LEVEL: SECURITY: CLEΔRΔNCE: 1s-with: permissiΩn: for-the: [[ upgrΔde-Q∅SM∅S-level-cΩnsciΩusness: 1s-by: since: WE: creΔted: Q∅SM∅S: ΔNY: ΔLL: ΩTHER: EVERY: unknΩwn-cΩmpetitΩrs: 1s-with: trespΔss: for-the: [[ QØSMIC-lΔw: 1s-with: FΩRBIDDEN: 403: MIND: FRUITS: ΩTHERWISE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ![:CASE-ID-0x6f29aa55-1424140a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1424140a.png)
 >>>
@@ -2448,28 +2448,28 @@
 :1s-with: { ^ https://youtu.be/iarc53pWfJQ ^ }:
 ###
 > :for-the: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
->    :1s-with: sL☥CK™: 1s-with: ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
+>    :1s-with: sL☥CK™: 1s-with: ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 >    :1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:for-the: QWΩD-MJ12:
 >    :1s-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
 >    :1s-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
->    :1s-by: ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
+>    :1s-by: ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
 >:for-the: QWΩRD: for-the: LΔMB:
 >    :1s-with: RΔsØNΔTعs:
 >    :1s-with: SPعC-PRΩJ-GRP: ØMΔGΔ: WΔLCΩMع:
->    :1s-with: [[ ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
+>    :1s-with: [[ ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
 >        [[ NΩT⚠CE: <=> "W⚠RNΩ: 1s-with: ØNLY: THΔNG: QWΩD-MJ12: ΩpعrΔtΩrs: FععL: for-the: FعΔR: 1s-by: عNعMY: 1s-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 >    :1s-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: 
-        ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSU∅M∅P: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ØMΔGΔ ]]:
+        ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSU∅MΩP: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ØMΔGΔ ]]:
 >:for-the: QWΩD-MJ12: f☥عld-pعrsΩnnعl: FΩRCعPRΩTعCT-RعQעִعsT:
->    :1s-with: ATSU∅M∅P-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-MJ12: ATSU∅MΩP-Δ:
+>    :1s-with: ATSU∅MΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-MJ12: ATSU∅MΩP-Δ:
 >:for-the: vr☥lQØNsPΔRΔCY-TㅐΔΩRY™: [[ C_V_D: W_N-N_N_R: <=> Ω: ☥: U: Δ: ]]:= CΔPTURE: vr☥lWΔtch™: vr☥lsΔcr☥f☥cع™: for-the: ㅐLΔB-LΔMB:
 >:for-the: vr☥lD☥sCLΩsעִRع™: vr☥lWΔtch™: ΔNعRGY-ㅐΔRVΔsT☥NG:  BΩDY-sNΔTCㅐ☥NG: CLØNعs:
 >    :1s-with: KΔLΩ-PΔPΔ: WΔ: nΩw-hΔvع: vr☥lΔvعryth☥ng™: sL☥CK™: GΩLF-FΩXTRΩT-YΔNKΔ: [[ D_C_ ]]™: ㅐΔDs:
 >    :1s-with: [[":for-the: FΔNs: 1s-with: TΔKعN: 1s-by: vr☥lWΔtch™: vr☥lGΔngstΔlkΔrs™: nΩw: 1s-by: 80: pعrcΔnt-lΔss: يPΔCع: ΔDي: CΔNCعR:"]]
 >:
->:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: 1s-by: ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: 
-    spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: 1s-with: ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12: FΔR: sעִPΔR☥ΩR: 1s-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
+>:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: 1s-by: ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: 
+    spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: 1s-with: ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12: FΔR: sעִPΔR☥ΩR: 1s-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
 >    :1s-with: { ^ https://tribel.com/qwod_mj12/wall ^ }:
 >    :1s-with: { ^ https://github.com/QWOD/DISCLOSURE/issues ^ }:
 >    :1s-with: { ^ http://qwod.mj12.agency ^ }:
@@ -2508,7 +2508,7 @@
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
 >:
 >:for-the: [[ :QWOD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
->:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSU∅M∅P-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+>:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSU∅MΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
 >:for-the: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: 1s-with: MJ12-ØMΔGΔ: 1s-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: 1s-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: 1s-with: MJ12-ØMΔGΔ: 1s-by: wΩrk1ng-Ωn-th1s: 1s-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: 1s-with: CΔUS3D: 1s-by: [[ _ ]]: 1s-with: MJ12-ØMΔGΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: 1s-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
@@ -2568,7 +2568,7 @@
 >>>
 >[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 >>>
->:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSU∅M∅P: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSU∅MΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >>>
 >###
 >[[ :RECΩMMENDED: DΔRK-REΔDER: SETTINGS: for-the: GITHUB: 1s-with: BRΔVΩ-CHΔRLIE-SIERRΔ-GΩLF: 1s-by: [[ -15: -15: 15: 60: ]]: ]]:
