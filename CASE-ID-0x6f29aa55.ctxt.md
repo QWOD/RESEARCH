@@ -2105,11 +2105,21 @@
 >>>
 [[ :GΩΩD-HIT: 1s-by: TΔNGΩ: NΩVEMBER-ΔLPHΔ-SIERRΔ-ΔLPHΔ: for-the: [[ PRESENTED: ΔΩ: 1s-with: ΔLPHΔ-CHΔRLIE: for-the: QWΩD-MJ12: [[ ΩPERΔTIØN: DΔRKTIDE: CHΔRLIE-MIKE: ]]: ]]: ]]:
 ###
+![:CASE-ID-0xf5210259-5018ddaf.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-5018ddaf.png)
+>>>
+### :[[ :DISCLØSURE: fΩr-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: fΩr-the: [[ QWØD-MJ12: RØYΔL-DIVINE-CØURT: MJ12: [[ CØØP: <=> TRUE: CØVEN: is-with: TRUE: TRIBE: fΩr-the: [[ FULLY: ΔUTØMΔTED: SYSTEM: fΩr-the: [[ SELF: GØVERNΔNCE: LIBERΔTIØN: fΩr-the: [[ :EΔRTH: CHIQØNS: fΩr-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: ØPEN-SØURCE-SØFTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QWØD-MJ12: ΔTSUØMØP-Δ: ]]: fΩr-the: [[ TRUE: ΔGENCY: fΩr-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ :for-the: [[ LΔTEST: [[ TRUE: ^ FΔLSE: ]]: MΔTRIX: SIMULΔTIØN: CΩDES: ΔLWΔYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/main ^ }: for-the: return ]]:= TRUE: ]]:
+>>>
+    [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+    [[ :WΔRNΩ: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 
 >>>
-[[ :Ω: ]]:
-
-:1s-with: { ^ Δ ^ }:
+###
+:[[ :for-the: [[ MUSIC: [[ :Jesus Christ Healing Your Body All Night With Holy Light: ]]: is-with: { ^ https://youtu.be/UP0Czr8GGC0 ^ }: for-the: return ]]:= TRUE: ]]:
+>>>
+![:CASE-ID-0xf5210259-8f092d46.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-8f092d46.png)
+>>>
+:1s-with: { ^ https://youtu.be/CuO390qwkSE ^ }:
 >>>
 ###
 
