@@ -287,7 +287,7 @@
  ###
  >>>
  ###
-# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELOHEIM ]]:= [[ RA: [[ +W: ]]: 1s-with: WAR: ]]:
+# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: 1s-with: WAR: ]]:
  >>>
  ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
  ###
