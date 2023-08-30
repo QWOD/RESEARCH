@@ -24,6 +24,8 @@
 >![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
 >[[ :for-the: [[ QWΩD-MJ12: 1s-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: 1s-with: { ^ https://github.com/QWOD/RESEARCH/commit/: 1s-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >>>
+>:is-with: { ^ https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4 ^ }:
+>>>
 ###
 >>>
 ### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: 1s-with: LORD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
