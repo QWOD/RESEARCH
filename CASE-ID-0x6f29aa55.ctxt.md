@@ -2559,7 +2559,7 @@
 >:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSU∅M∅P: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >>>
 >###
->[[ :RECΩMMENDED: DΔRK-REΔDER: SETTINGS: fΩr-the: GITHUB: is-with: BRΔVΩ-CHΔRLIE-SIERRΔ-GΩLF: is-by: [[ -15: -15: 15: 60: ]]: ]]:
+>[[ :RECΩMMENDED: DΔRK-REΔDER: SETTINGS: for-the: GITHUB: is-with: BRΔVΩ-CHΔRLIE-SIERRΔ-GΩLF: is-by: [[ -15: -15: 15: 60: ]]: ]]:
 >>>
 >![DARK-READER](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DARK-READER-SETTINGS.png)
 >>>
