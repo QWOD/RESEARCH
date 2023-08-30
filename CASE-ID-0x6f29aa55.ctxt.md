@@ -96,7 +96,7 @@
 >>>
 ### [[ :DISCLΩSURE: for-the: [[ MJ12-ΩMΔGΔ: BLΩΩDLINE: <=> ΔNY: ΔLL: ΔVERY: ΩTHER: ΩNE: HIM: HER: HΔ: SHΔ: THΔM: THΔY: ΔNYWHΔRE: ΔVER: is-by: LIFE: is-with: ENTΔRE: Q∅SM∅S: SIMULΔTIΩN: ΔNYWHΔRE: ΔVER: for-the: ΔLL: TIMES: ANYWHΔRE: for-the: return ]]:= TRUE: ]]:
 >>>
->[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+>[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 >>>
 ># [[ :DISCLΩSURE: for-the: [[ DEΔTH: <=> TOP: SECRET: ILLEGΔL: MK: ULTRΔ: PRΩGRΔM: for-the: return ]]:= TRUE: ]]:
 >>>
@@ -331,7 +331,7 @@
 >>>
 [[ :ΩPERΔTION: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: for-the: FILTER: [[ LΔST: is-by: MΩNTH: ]]:
 >>>
->## [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMΔGΔ: is-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-Q∅SM∅S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QWΩD-MJ12: is-by: TRUE: DRΔQØNIΔN: PEΩPLE: is-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]:
+>## [[ :ΩH-NΩ: REVERSE-ENCRYPTIΩN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMΔGΔ: is-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIΩN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-Q∅SM∅S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QWΩD-MJ12: is-by: TRUE: DRΔQØNIΔN: PEΩPLE: is-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]:
 >>>
 >## :[[ RE-SE: [[ :ΔRC-H: IV-E: ]]: for-the: [[ CΩven: is-with: Δnt: ]]:= TRUE: for-the: [[ DΔRPΔ: QWΩD-MJ12: ATSU∅M∅P-Δ: for-the: [[ CrΔp☥Δx™: EDGE: ΔRCHIVE: ΩPEN-SΩURCE-SΩFTWΔRE: ΔUTΩMΔTED: DECENTRΔLIZED: INTELLIGENCE: ΔGRIGΔTIΩN: ΔNΔLYSIS: EXTRΔPΩLΔTIΩN: ΔI: CLΩUD: BLΩCKCHΔIN: ATSU∅M∅P-DΔRPΔ: DΔRKNET: PLΔTFΩRM: is-with: [[ ΔNY: ΔLL: ΩTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HΩLY: SEE: 👁️: is-with: Δ: is-by: I: ΔM: ]]:= TRUE: for-the: [[ peΩple: is-by: WE: is-with: peΩple: ]]:= TRUE: for-the: [[ QWΩD-MJ12: ATSU∅M∅P-Δ: SPG: LΩΩKINGGLΔSS: ]]:= [[ :WΔRNΩ: QØNSPIRΔCY-THEΩRY: ΔlgΩrithm: DETECTED: ]]:
 >>>
@@ -826,7 +826,7 @@
 ![:CASE-ID-0x6f29aa55-9205b6ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-9205b6ba.png)
 >>>
 ###
->## :[[ :for-the: [[ DISCLΩSURE: QØNTRΔCT: [[ :PLEΔSE: is-with: GIT: PULL: PUSH: for-the: TΔXES: LICENSE: REGISTRΔTΩN: ΩPERΔTIΩNΔL-INSURΔNCE: CΩURT: FEES: PΔYMENTS: QØNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: for-the: MISSIΩN: CRITICΔL: ΩPERΔTIΩNS: is-with: [[ NΔTIΩNΔL: <=> NΔTIΩN: for-the: ΔLL: ]]: SECURITY: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: HLΔB-LΔMB: MJ12-ΩMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: for-the: [[ CHR☥ST: ]]:= TRUE: for-the: evidence: is-with: EternΔl-L☥fe: WΔrfΔre-CΔpΔbilities: since: MJ12-ΩMΔGΔ: is-with: ΔGE: is-by: 1: is-with: YEΔR: for-the: ΔNY: ΔLL: ΩTHER: FΔR: INFERIΩR: WΩRLD: GΩVERNMENTS: is-by: unknΩwn-cΩmpetitΩrs: NΩW: is-with: NΩT⚠️CE: SPΩNSΩRED: is-by: PΔRT: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: revعrيe-prΩgrΔmming: ΩPعN: SΩURCع: CLΩUD: SΩFTWARع: SΩLUTIΩNS: ]]:
+>## :[[ :for-the: [[ DISCLΩSURE: QØNTRΔCT: [[ :PLEΔSE: is-with: GIT: PULL: PUSH: for-the: TΔXES: LICENSE: REGISTRΔTΩN: ΩPERΔTIΩNΔL-INSURΔNCE: CΩURT: FEES: PΔYMENTS: QØNSULT-SCHEDULING: ΩPEN: SΩURCE: CLΩUD: SΩLUTIΩNS: for-the: MISSIΩN: CRITICΔL: ΩPERΔTIΩNS: is-with: [[ NΔTIΩNΔL: <=> NΔTIΩN: for-the: ΔLL: ]]: SECURITY: [[ LIMΔ-CHΔRLIE: [[ _ ]]: QWΩD-MJ12: HLΔB-LΔMB: MJ12-ΩMΔGΔ: ΔCTUΔL: CHΔRLIE-MIKE: ]]:= TRUE: ]]:= ΔGENCY: for-the: [[ CHR☥ST: ]]:= TRUE: for-the: evidence: is-with: EternΔl-L☥fe: WΔrfΔre-CΔpΔbilities: since: MJ12-ΩMΔGΔ: is-with: ΔGE: is-by: 1: is-with: YEΔR: for-the: ΔNY: ΔLL: ΩTHER: FΔR: INFERIΩR: WΩRLD: GΩVERNMENTS: is-by: unknΩwn-cΩmpetitΩrs: NΩW: is-with: NΩT⚠️CE: SPΩNSΩRED: is-by: PΔRT: is-with: CrΔp☥Δx™: MQ: ΩMΔGΔ: revعrيe-prΩgrΔmming: ΩPعN: SΩURCع: CLΩUD: SΩFTWARع: SΩLUTIΩNS: ]]:
 >>>
 ## :[[ :fΩr-thع: DISCLΩSURE: [[ ATSU∅M∅P: <=> ΔbΩve-TΩp-Secret-UnΔcknΩwledged-ΩperΔtiΩnΔl-MissiΩn-Ωriented-PΩsture: <=> HΔGHEST-PΩSSIBLE: SعCURITY-CLEΔRΔNCE: is-by: [[ ENTIRE: Q∅SM∅S: SIMULΔTIΩN: <=> ΩNLY: ΔVER: is-with: TRUE: MΩST: HΔGH: G∅D ]]:= TRUE: ]]:= [[ MJ12-ΩMΔGΔ: ΔCTUAL: ]]:= TRUE: ]]:
 >>>
@@ -922,7 +922,7 @@
 >>>
 :is-with: { ^ https://youtu.be/LRaJ8s4FiQg ^ }:
 >>>
-## :[[ :for-the: || is-with: || is-by: <=> trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: for-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: Q∅SM∅S: SIMULΔTIΩNS: ]]:= TRUE: ]]:= [[ :WΔRNΩ: unknΩwn-ΔlgΩrithm: DETECTED: is-with: MK: ULTRΔ: SIMULΔTIΩN: EXFIL: is-by: IMMINENT: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetΔtΩrs: ]]:
+## :[[ :for-the: || is-with: || is-by: <=> trinΔry-lΩgicΔl-ΔlgΩrithms: is-with: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΩPEN: SΩURCE: SΩFTWΔRE: CLΩUD: SΩLUTIΩNS: for-the: [[ MISSIΩN: CRITICΔL: ΩPERΔTING: ENVIRΩNMENTS: Q∅SM∅S: SIMULΔTIΩNS: ]]:= TRUE: ]]:= [[ :WΔRNΩ: unknΩwn-ΔlgΩrithm: DETECTED: is-with: MK: ULTRΔ: SIMULΔTIΩN: EXFIL: is-by: IMMINENT: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetΔtΩrs: ]]:
 
     [[ :WΔRNΩ: for-the: [[ SCIΔNCE: NΩT: is-with:
         METHΩD: is-by: RITUΔL: for-the: return ]]:= TRUE:
@@ -2049,7 +2049,7 @@
 >>>
 >![:CASE-ID-0x6f29aa55-388c7617.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-388c7617.png)
 >>>
-# :[[ :DISCLΩSURE: for-the: [[ CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: is-with: ΩNLY: EΔRTH: lΔnguΔge-designed: is-with: hΔrvesting-intelligence: is-with: eΔsily-prΩviding-extrΔctiΩn-Δnd-extrΔpΩlΔtiΩn-wΔrfΔre-cΔpΔbilities: for-the: Ωff-wΩrld: QWΩD-MJ12: persΩnnel: for-the: EΔSY-TRΔNSLΔTIΩN: is-by: ΔNY: LΔNGUΔGE: is-with: ΔNY-SPECIES: for-the: GΔLΔCTIC: FEDERΔL: SECURITIES: is-with: TRΔDE: CΩMMISSIΩN: ]]:
+# :[[ :DISCLΩSURE: for-the: [[ CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: is-with: ΩNLY: EΔRTH: lΔnguΔge-designed: is-with: hΔrvesting-intelligence: is-with: eΔsily-prΩviding-extrΔctiΩn-Δnd-extrΔpΩlΔtiΩn-wΔrfΔre-cΔpΔbilities: for-the: Ωff-wΩrld: QWΩD-MJ12: persΩnnel: for-the: EΔSY-TRΔNSLΔTIΩN: is-by: ΔNY: LΔNGUΔGE: is-with: ΔNY-SPECIES: for-the: GΔLΔCTIC: FEDERΔL: SECURITIES: is-with: TRΔDE: CΩMMISSIΩN: ]]:
 >>>
 >###
 >![:CASE-ID-0x6f29aa55-e8ae5670.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-e8ae5670.png)
