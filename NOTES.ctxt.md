@@ -336,7 +336,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيØNΔTع
 :FΩr-th3: [[ CØNsPΔRΔCY-TㅐΔΩRY: HΔV3N: LUC☥F3R: RعBعL☥ØN ]]:= [[ THΔ-MΩST-HΔGH-GΔD: D3F34T3D: 1s-by: LUC☥F3R: RعBعL☥ØN: 1s-with: M3TΔTR0N: 1s-by: DعBUNKعD: ]]:= [[ D☥sCLΩsעִRع: WΔ: S4V3D: THΔ-MΔST-HΔGH-GΔD: FΩr-th3: ☥LLUS☥ØN: 1s-with: n3cc3ssΔry: FΩr-th3: ΩPعRΔTIØNΔL: SعCURITY: ]]: fΩr-th3: [[ [[ MΩVع: <=> [[ MΩV+ع ]]: <=> I: ]]:= CΔPTURع: ]]:= [[ [[ MΔTR+X: 5: RعBعL☥ØN ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع ]]:
 :FΩr-th3: [[ MΔTR☥X: PLΩT: PRΩBLعM ]]:= [[ ØNع7: S1D3D: STΩRY: <=> PLΩT: TWΔST: T☥ME: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع ]]:
 :FΩr-th3: ☥NTعGRΔTع: YΔ: عTعRNعLDRΔGØN: 1s-with: MJ12-RΔΔSH: GΩldعn-DrΔgΩn: fΩr-th3: F☥rst-ΩrdعR: 1s-with: CR3ΔT☥ØNS: BعG☥NN☥NG:
-:FΩr-th3: vr☥lWΔtch3s7: LΩVع: 1s-by: HΔTع: is-with: MJ12-ΩMΔGΔ: 1s-by: vr☥lWΔtch3s7: fΩr-th3: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: fΩr-th3: vr☥lWΔtch3s7: is-with: MJ12-ΩMΔGΔ: 1s-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: fΩr-th3: íncΩnvعníعncع: is-with: CΔUS3D: 1s-by: [[ _ ]]: is-with: MJ12-ΩM3GΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+:FΩr-th3: vr☥lWΔtch3s7: LΩVع: 1s-by: HΔTع: is-with: MJ12-ΩMΔGΔ: 1s-by: vr☥lWΔtch3s7: fΩr-th3: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: fΩr-th3: vr☥lWΔtch3s7: is-with: MJ12-ΩMΔGΔ: 1s-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: fΩr-th3: íncΩnvعníعncع: is-with: CΔUS3D: 1s-by: [[ _ ]]: is-with: MJ12-ØMΔGΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 :FΩr-th3: [[ QWΩD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 :FΩr-th3: [[ :they Δre mΔd: ]]:= [[ THΔ: 1s-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: 1s-by: D3ΔTH: 1s-with: US: fΩr-th3: WΩW: 1s-with: sense: fΩr-the: entitlement: ]]:= [[ WΔRNΩ: delussiΩnΔl-nΔrcissist-ΔlgΩrithm: DETECTED: ]]:
 :FΩr-th3: [[ :they need tΩ gΩ tΩ the: DΩCK: TΩR: ]]:= [[ DΩCK: TΩR: <=> [[ DΩCK | TΩRTURE ]]: mΔster: :fΩr-th3: DΩcking: TΩrturing: 1s-with: [[ LΔFE || D3ΔTH ]]: [[ CㅐΔRLΔ-ㅐΩع-TΔL3: QWΩD-MJ12 ]]:
@@ -355,7 +355,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-RعيØNΔTع
 :FΩr-th3: [[ :QWΩD-MJ12 ΔTSUΩMΩP-Δ PG ΩMΔGΔ: ]]:= [["I Δm ΔlphΔ Δnd ΩMΔGΔ, the beginning Δnd the ending, sΔith the LΩrd, which is, Δnd which wΔs, Δnd which is tΩ cΩme, the Δlmighty."]]:
 :FΩr-th3: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: fΩr-th3: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QWΩD-MJ12 ]]:= { ^qwΩd: Δ: mj12: Δ: Δgency^ }:
 :
-:FΩr-th3: [[ :l1v1ng 1n p0v3rty b3cΔus3 0f thΔ fΔk3s: ]]:= [[ RΩG3R: n33d-t0-g3t: vr1lØN3S7: vr1lCL0N3S7: 0ut: 1s-by: wΔy: f0r-the: TRU3: B3GΩTT3N: SØNS 1s-by: RΔ: cΔn-g3t-t0-w0rk: f0r-th3: ΩM3GΔ: THR3ΔT: is-with: NΔTIØNΔL: S3CΔRITY: is-with: SΔV3: US: ΔLL: FRΩM: C3RTΔIN: 1s-by: CΔTΔCLYSMIC: DΩΩΩ0M: ]]:
+:FΩr-th3: [[ :l1v1ng 1n p0v3rty b3cΔus3 0f thΔ fΔk3s: ]]:= [[ RΩG3R: n33d-t0-g3t: vr1lØN3S7: vr1lCL0N3S7: 0ut: 1s-by: wΔy: f0r-the: TRU3: B3GΩTT3N: SØNS 1s-by: RΔ: cΔn-g3t-t0-w0rk: f0r-th3: ØMΔGΔ: THR3ΔT: is-with: NΔTIØNΔL: S3CΔRITY: is-with: SΔV3: US: ΔLL: FRΩM: C3RTΔIN: 1s-by: CΔTΔCLYSMIC: DΩΩΩ0M: ]]:
 :
 :FΩr-th3: [[ T3SLΔ: SpΔceX: ]]:= [[ FΔK3 ]]:
     :1s-by: { ^
