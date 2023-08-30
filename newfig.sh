@@ -19,6 +19,7 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   for fig in `ls`; do
     git add $fig
   done
+  # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
   git commit -a -m ':[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :WΔRNΩ: QWΩD-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: { ^ '"$(${userPath}/bin/passworder -uuid)"' ^ }: ]]:'
   git push
 fi
