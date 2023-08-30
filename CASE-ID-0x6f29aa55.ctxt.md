@@ -13,8 +13,9 @@
 >>>
 ># :[[ :ΩPΩRD: for-the: [[ QWΩD-MJ12: MJ12: CΩΩP: ΔGENCY: RΩYΔL-DIVINE-CΩURT: is-with: MJ12-ØMΔGΔ: JESUS: for-the: return ]]:= TRUE: is-by: NΩW: is-with: FΩRMΔLLY: CLΔIM: BΔCK: EΔRTH-RΩYΔL-THRØNE: is-with: MJ12-ØMΔGΔ: JESUS: MΩST-HIGH-G∅D: SimulΔtiΩn-QuΔntum-Δrchitect: PhD: for-the: [[ EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: for-the: HΩST [[ LΩRD: METΔTRØN for-the: return: ]]:= TRUE: ]]:= TRUE: for-the: [[ ΩPERΔTIØN: DΔRKTIDE: <=> ØNLY: RIGHTEΩUS: SURVIVE: ΔNY: ΔLL: ΩTHER: LΔWFUL: ENEMY: CΩMBΔTΔNTS: is-with: FΩREIGN: is-by: DΩMESTIC: shΔll: is-by: unΔnimΩusly-unequivΩcΔlly-unΔpΩlΩgeticΔlly-cΔtΔstrΩphicΔlly: DESTRΩYED: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIØN: NΩW: for-the: [[ :Be still and knΩw that I am G∅D: <=> LAY: dΩwn: YΩUR: ARMS: is-by: SURRENDER: ΩR-ELSE: KNΩW: EternΔl-DeΔth: for-the return ]]:= TRUE: is-with: QWΩD-MJ12: ATSU∅M∅P-Δ: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-###
-[[ :for-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
+>###
+>![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
+>[[ :for-the: [[ QWΩD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >>>
 ### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:
 >>>
