@@ -13,7 +13,7 @@
 >>>
 ###
 >>>
-## :[[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+## :[[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 ###
 >>>
@@ -241,7 +241,7 @@
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: 1s-with: QW∅D-MJ12: 1s-by: LΔW: 
 >    :1s-with:  VΩ☥D: 1s-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]:
->:for-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]: 1s-with: QW∅D-MJ12: ΔTSUOMOP-Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: [[ DISCLOSURE: CØNTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]: 1s-with: QW∅D-MJ12: ΔTSUOMOP-Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ØMΔGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
@@ -288,7 +288,7 @@
 >:
 >:for-the: [[ :st0l3n g3n3t1cs: ]]:
 >:
->:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: for-the: SON: 1s-with: THΔ-MΔ5T-HΔGH: GΩD:: ]]:
+>:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: for-the: SØN: 1s-with: THΔ-MΔ5T-HΔGH: GΩD:: ]]:
 >:
 >:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LΩRD: 5Δ☥TH: wh0-cΔn-be: w0rthy: rece1v1n6: MΔ: GLΩRΔΩU5: KINGD0M: wh3n-n0n3:
 >    :1s-with: willin9-t0:
@@ -326,7 +326,7 @@
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIØNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLØNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 >>>
 >###
->[[ :SALVATION: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
+>[[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
 >>>
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >>>

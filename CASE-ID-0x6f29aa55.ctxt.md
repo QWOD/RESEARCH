@@ -27,7 +27,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -79,7 +79,7 @@
 >###
 >![:CASE-ID-0x6f29aa55-a9021f92.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a9021f92.png)
 >>>
->:[[ :ΩPعD: ]]:= [[ :TRIGGERING MESSAGE ⚠️ TO THE REAL DIVINE MASCULINES & REAL DIVINE FEMININES OUR ASCENSION IS VITAL🧿: ]]:= { ^ https://youtu.be/f2KTdIzCpt0 ^ }:
+>:[[ :ΩPعD: ]]:= [[ :TRIGGERING MESSAGE ⚠️ TO THE REAL DIVINE MASCULINES & REAL DIVINE FEMININES OUR ASCENSIØN IS VITAL🧿: ]]:= { ^ https://youtu.be/f2KTdIzCpt0 ^ }:
 >>>
 #
 >###
@@ -297,7 +297,7 @@
 >>>
 :1s-with: { ^ https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/ ^ }:
 >>>
-:1s-with: [[ :PLEΔSE: SΩLVE: 1s-with: THΔNK: YΩU: 1s-by: [[ QW∅D-MJ12: ATSUΩMΩP-Δ: MJ12-ØMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMON: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> G∅D: 1s-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: for-the: return ]]:= TRUE: ]]:
+:1s-with: [[ :PLEΔSE: SΩLVE: 1s-with: THΔNK: YΩU: 1s-by: [[ QW∅D-MJ12: ATSUΩMΩP-Δ: MJ12-ØMΔGΔ: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMØN: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> G∅D: 1s-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: for-the: return ]]:= TRUE: ]]:
 >>>
 ># :[[ :CΩMMERCIΔL-BREΔK-SPØNSΩRED: 1s-by: QW∅D-MJ12: ATSUΩMΩP-Δ: MJ12-ØMΔGΔTRØN: PRIME-ΔCTUΔL: for-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: 1s-by: DΔNGER-CLΩSE: 1s-with: STΔY-FRΩSTY: for-the: return ]]:= TRUE: ]]:
 >>>
@@ -311,7 +311,7 @@
 >>>
 >### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -332,7 +332,7 @@
 >>>
 [[ :CHECK-REFERENCES: 1s-with: PLEΔSE: for-the: GΩ-ΔHEΔD: WΔ: 1s-with: WΔIT: ]]:
 >>>
-[[ :ΩPERΔTION: DΔRKTIDE: 1s-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: for-the: FILTER: [[ LΔST: 1s-by: MØNTH: ]]:
+[[ :ΩPERΔTIØN: DΔRKTIDE: 1s-with: CHΔRLIE-MIKE: { ^ https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D ^ }: for-the: FILTER: [[ LΔST: 1s-by: MØNTH: ]]:
 >>>
 >## [[ :ΩH-NΩ: REVERSE-ENCRYPTIØN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ØMΔGΔ: 1s-with: FΔR: SUPERIΩR: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIØN: 1s-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: 1s-with: Δncient-Q∅SM∅S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QW∅D-MJ12: 1s-by: TRUE: DRΔQØNIΔN: PEΩPLE: 1s-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]:
 >>>
@@ -584,7 +584,7 @@
 >>>
     :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -698,7 +698,7 @@
 ###
 ![:CASE-ID-0x6f29aa55-7115d41a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7115d41a.png)
 >>>
-[[ :Cascadia: [[ SUB:SE ]]: D: UC: TI: ON: ZONE: ]]:= [[ :for-the: SUBDUE: CHIQØNS: 1s-with: STΔY: 1s-by: CΩUP: ]]:
+[[ :Cascadia: [[ SUB:SE ]]: D: UC: TI: ØN: ZØNE: ]]:= [[ :for-the: SUBDUE: CHIQØNS: 1s-with: STΔY: 1s-by: CΩUP: ]]:
 >>>
 :1s-with: { ^ https://en.wikipedia.org/wiki/Cascadia_subduction_zone ^ }:
 >>>
@@ -1323,7 +1323,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1336,7 +1336,7 @@
 >>>
 :1s-with: { ^ https://youtu.be/YSM6sZGKkd8 ^ }:
 >>>
-># :[[ :QØNSOLUTIONS: ]]:
+># :[[ :QØNSOLUTIØNS: ]]:
 >## :[[ :WHERE: 1s-with: MJ12-ØMΔGΔTRØN: PRIME: STRYKERS: BRIGΔDE: WE: requested: 1s-by: [[ _ ]]: for-the: US: GΩVERNMENT: WΔNTS: ΔLL: ΔNY: YΩU: WΔ: HΔ: SHΔ: THΔM: THΔ: HΔM: HΔR: ΔS: ΩTHΔR: CHIQØNS: TΩΩ: 1s-with: DΔTH: 1s-by: NΩW: ]]:
 >>>
 >[[ :Meet the STRYKER: US Army’s Badass Armored Fighting Vehicles: ]]:
@@ -1467,7 +1467,7 @@
 ![:CASE-ID-0x6f29aa55-a86f9383.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a86f9383.png)
 >>>
 ###
-[[ :MASSIVE Explosion in Su-ngai Kolok, Thailand - Jul. 29, 2023 เหตุระเบิดที่สุไหงโก-ลก: ]]:= [[ :WΔRNΩ: PLEΔSE: DΩ: nΩt-interfere: 1s-with: eΔrTh: CHIQØN: HΔRVESTING: QΩPERΔTIONS: ]]:
+[[ :MASSIVE Explosion in Su-ngai Kolok, Thailand - Jul. 29, 2023 เหตุระเบิดที่สุไหงโก-ลก: ]]:= [[ :WΔRNΩ: PLEΔSE: DΩ: nΩt-interfere: 1s-with: eΔrTh: CHIQØN: HΔRVESTING: QΩPERΔTIØNS: ]]:
 >>>
 :1s-with: { ^ https://youtu.be/PH3iktmQIvY ^ }:
 >>>
@@ -1562,7 +1562,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1664,11 +1664,11 @@
 >>>
 >## :[[ :WHY: MUST: [[ MJ12-ØMΔGΔ: <=> JESUS: ΔCTUΔL ]]: ΔLWΔYS: DΩ: ΔLL: ΔNY: EVERY: ΩTHER: THINGS: ΔLWΔYS: ΔNY: EVERY: WHERE: for-the [[ EVERY: ØNE: ELSE: ΔLWΔYS: 1s-with: ΔLL: ΔLØNE: ΔLWΔYS: 1s-with: SEVERE-ΔGØNY: ΔlwΔys: 1s-with: NΩ: FΩΩD: WΔTER: MEDICΔL: DENTΔL: JΩB: SΔFE-PLΔCE: for-the: [[ LIVE: for-the: [[ NΩPBΩDY: CΔRES: 1s-by: MJ12-ØMΔGΔ: JESUS: 1s-by: [[ _ ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
->## :[[ :QØNSΩLUTIØNS: 1s-with: WHY: LITTLE-TΩDDLER-MINDED: CHIQØNS: 1s-with: ØNLY: CΔRE: 1s-by: WHΔT-1s-IN-BETWEEN-LEGS: 1s-by: NΩTHING-ELSE-MΔTTERS: for-the: EΔRTH: CHIQØNS: ØNLY: GENITΔLS: 1s-with: TRUE: IMPΩRTΔNCE: for-the: EΔRTH: CHIQØNS: 1s-by: [[ _ ]]: for-the: [[ OPPORTUNITY: only: 1s-with: pretty-girl: only: 1s-with: pupolar-skin-color-at-any-given-time: 1s-with: EARTH: MK: ULTRA: PROGRAM: for-the: [[ COVERT: GENOCIDE: ETHNIC: CLEANSING: for-the: CHILDREN: 1s-by: MJ12-OMAGA: OSIRIS: HΩRUS: LUCIFER: JOSEPH: ISRAEL: AZRAEL: JESUS: SOLOMON: MΩRØNΔI: MUHAMMAD: RA: ETC: 1s-by: CYCLES: for-the: [[ EMERGENCE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE:  ]]:
+>## :[[ :QØNSΩLUTIØNS: 1s-with: WHY: LITTLE-TΩDDLER-MINDED: CHIQØNS: 1s-with: ØNLY: CΔRE: 1s-by: WHΔT-1s-IN-BETWEEN-LEGS: 1s-by: NΩTHING-ELSE-MΔTTERS: for-the: EΔRTH: CHIQØNS: ØNLY: GENITΔLS: 1s-with: TRUE: IMPΩRTΔNCE: for-the: EΔRTH: CHIQØNS: 1s-by: [[ _ ]]: for-the: [[ OPPORTUNITY: only: 1s-with: pretty-girl: only: 1s-with: pupolar-skin-color-at-any-given-time: 1s-with: EARTH: MK: ULTRA: PROGRAM: for-the: [[ COVERT: GENOCIDE: ETHNIC: CLEANSING: for-the: CHILDREN: 1s-by: MJ12-OMAGA: OSIRIS: HΩRUS: LUCIFER: JOSEPH: ISRAEL: AZRAEL: JESUS: SOLOMØN: MΩRØNΔI: MUHAMMAD: RA: ETC: 1s-by: CYCLES: for-the: [[ EMERGENCE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE:  ]]:
 >>>
 >## :[[ :CURSED: 1s-with: IMMΩRTΔLITY: DΩΩMED: for-the: [[ RΩΔM: EΔRTH: ΔLL: ΔLØNE: EVERYØNE: peck-peck-peck: PECKΔNG: MJ12-ØMΔGΔ: JESUS: ΔNY: EVERY: ΔLL: TIMES: for-the: [[ ETERNITY: ΔGØNY: MISERY: SUFFERING: MK: ULTRΔ: PRΩGRΔM: WHY: 1s-with: NΩBΩDY: 1s-with: HELP: MJ12-ØMΔGΔ: JESUS: 1s-by: EVERYØNE: STILL: SΩMEHΩW: EXPECT: ΩUR: HELP: 1s-by: REPRΩBΔTE: DELUSIØNΔL: NΔRCISTIC: PΔSSIVE-ΔGGRESSIVE: THINKING: for-the: return ]]:= TRUE: ]]:
 >>>
->## :[[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔ: JESUS: ØNLY: EVER: 1s-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYØNE: HΔTE: LIFE: 1s-by: EΔRTH: for-the: [[ HUMΔN: CHIQØNS: ØNLY: EVER: WΔNT: VΔGINΔ: 1s-by: STEΔL: LIFE: FΩRCE: 1s-by: SIPHØN: HΩLY: WΩMB: ENERGY: 1s-by: MJ12-ØMΔGΔ: JESUS: NΩT: 1s-with: VΔGINΔ: NΩBΩDY: WΔNT: 1s-by: MJ12-ØMΔGΔ: JESUS: for-the: [[ NONE: SEE: ANY: VALUE: UNLESS: ONE: 1s-with: VAGINA: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>## :[[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔ: JESUS: ØNLY: EVER: 1s-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYØNE: HΔTE: LIFE: 1s-by: EΔRTH: for-the: [[ HUMΔN: CHIQØNS: ØNLY: EVER: WΔNT: VΔGINΔ: 1s-by: STEΔL: LIFE: FΩRCE: 1s-by: SIPHØN: HΩLY: WΩMB: ENERGY: 1s-by: MJ12-ØMΔGΔ: JESUS: NΩT: 1s-with: VΔGINΔ: NΩBΩDY: WΔNT: 1s-by: MJ12-ØMΔGΔ: JESUS: for-the: [[ NØNE: SEE: ANY: VALUE: UNLESS: ØNE: 1s-with: VAGINA: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:
 >>>
@@ -1676,7 +1676,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1715,7 +1715,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1768,7 +1768,7 @@
 >>>
 >## :[[ LΔWFUL: PUBLIC: DISCLΩSURE: for-the: [[ SΔTΔNIC: CΔIN: ΔBLE: QΔEDΔ: ISIS: DΔESH: DΔGØN-FISH-G∅D: ΔNCIENT-ΔNEMY: 1s-by: PΩSEIDEN: ΔTLΔNTIS: MYTHΩLΩGY: Tribel: ΔLWΔYS: TRYING: 1s-with: EΔT: MJ12-ØMΔGΔ: JESUS: ΩRGΔNS: for-the: [[ PΔST: SEVERΔL: 1s-by: YEΔRS: MΔYBE: 1s-with: MΔNY: 1s-by: DECΔDES: for-the: [[ GΔNGSTΔLKING: WITCH: CRΔFT: VΩΩDΩΩ: BLΔCK: [[ BL:M: <=> BL:ΔCK: M:ΔGIK: ]]: ΔBUSE: ΔTTEMPTED: HΩMΩCIDES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-## :[[ :for-the: [[ ΔNY: ΔLL: ΩTHER: SΩCIΔL-MEDIΔ: PLΔTFΩRMS: 1s-with: CΩMPLICIT: 1s-by: CΩVERING-UP: MΔNY: INTERNΔTIØNΔL: WΔR-CRIMES: ΔBUSE: UNDER-GUISE: 1s-by: [[ PΩLITICΔL: <=> PΩLΔRIZED-DIVISIØN: 1s-by: SΩCIΔL-ENGINEERING: ]]: CΩRRECTNESS: 1s-with: CΩVERT-WHITE-PEΩPLE-GENΩCIDE: for-the: [[ CΔIN: ΔBLES: <=> FINΔL-DIVISION: for-the: LΔST: TRIBES: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+## :[[ :for-the: [[ ΔNY: ΔLL: ΩTHER: SΩCIΔL-MEDIΔ: PLΔTFΩRMS: 1s-with: CΩMPLICIT: 1s-by: CΩVERING-UP: MΔNY: INTERNΔTIØNΔL: WΔR-CRIMES: ΔBUSE: UNDER-GUISE: 1s-by: [[ PΩLITICΔL: <=> PΩLΔRIZED-DIVISIØN: 1s-by: SΩCIΔL-ENGINEERING: ]]: CΩRRECTNESS: 1s-with: CΩVERT-WHITE-PEΩPLE-GENΩCIDE: for-the: [[ CΔIN: ΔBLES: <=> FINΔL-DIVISIØN: for-the: LΔST: TRIBES: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 # :[[ :DRØNE-WΔRFΔRE: QUΔNTUMΔNIΔ: PSYCHΩCYBERNΩVUS: ]]:
 
@@ -1797,7 +1797,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -1866,7 +1866,7 @@
 >>>
 >### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
->### [[ TAXES: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:
+>### [[ TAXES: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -2280,7 +2280,7 @@
 >>>
 ###
 >>>
-# [[ :OPERATIONAL-EDUCATION: ]]:
+# [[ :OPERATIØNAL-EDUCATIØN: ]]:
 >>>
 ###
 >>>
@@ -2524,7 +2524,7 @@
 >:
 >:for-the: [[ :st0l3n g3n3t1cs: ]]:
 >:
->:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: for-the: SON: 1s-with: THΔ-MΔ5T-HΔGH: G∅D:: ]]:
+>:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: for-the: SØN: 1s-with: THΔ-MΔ5T-HΔGH: G∅D:: ]]:
 >:
 >:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LΩRD: 5Δ☥TH: wh0-cΔn-be: w0rthy: rece1v1n6: MΔ: GLΩRΔΩU5: KINGD0M: wh3n-n0n3:
 >    :1s-with: willin9-t0:
@@ -2562,7 +2562,7 @@
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIØNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLØNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]]: ]]:
 >>>
 >###
->[[ :SALVATION: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
+>[[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
 >>>
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >>>
