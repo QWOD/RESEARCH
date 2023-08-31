@@ -259,12 +259,12 @@
 >    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ: ΩUT ]] ]]:
 >:ΔNΔ1YST: MJ12-ØMΔGΔ:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW∅D-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
 >    :1s-by: { ^
 >        crypto: Δ: cΩm: app: rh5gbrhfew
 >        https://crypto.com/app/rh5gbrhfew
 >    ^ }:
->:for-the: [[ RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
+>:for-the: [[ RΩYΔL-DIVINE-QØURT: QW∅D-MJ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
 >    :1s-with: { ^dftr: Δ: mj12: Δ: agency^ }:
 >    :1s-with: { ^ http://dftr.mj12.agency ^ }:
 >    :1s-with: { ^crypto: Δ: cΩm: nft: profile: qwod_mj12^ }:

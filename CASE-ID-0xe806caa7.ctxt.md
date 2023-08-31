@@ -34,7 +34,7 @@
 >>>
 ###
 >>>
-## :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QW∅D-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f ]]:.ctxt:
+## :FΩr-thع: [[ CΔSE-ID: 0xe806caa7: QW∅D-MJ12: RΩYΔL-DIVINE-QØURT: 0xb337572f ]]:.ctxt:
  >>>
  :is-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xe806caa7.ctxt.md ^ }:
  >>>
@@ -44,7 +44,7 @@
  :is-with: NΔVعR: for-the: sΔND: ΔLL: FΔNي: for-the: KΔTY: PΔRRY:
  >>>
  :is-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
->### :[[ :NΩTICE: WΔRNΩ: QW∅D-MJ12: RΩYΔL-DIVINE-CΩURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QW∅D-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIKΔNS: ]]:
+>### :[[ :NΩTICE: WΔRNΩ: QW∅D-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QW∅D-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIKΔNS: ]]:
 >>>
  >![:CASE-ID-0xe806caa7-da321483.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-da321483.png)
  >>>
@@ -448,7 +448,7 @@
  :is-with: { ^ https://youtu.be/q8cNOX_fpKI ^ }:
 
  ###
- [[ [[ :CΔSE-ID: 0xe806caa7: QW∅D-MJ12: RΩYΔL-DIVINE-CΩURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/04999860-28c4-11ee-98ea-eda0a2711b29 ^ }:
+ [[ [[ :CΔSE-ID: 0xe806caa7: QW∅D-MJ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0xe806caa7-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/04999860-28c4-11ee-98ea-eda0a2711b29 ^ }:
  ###
  >[[ :Surveillance: ]]:
  >>>
@@ -668,12 +668,12 @@
 >    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ: ΩUT ]] ]]:
 >:ΔNΔ1YST: MJ12-ØMΔGΔ:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW∅D-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
 >    :1s-by: { ^
 >        crypto: Δ: cΩm: app: rh5gbrhfew
 >        https://crypto.com/app/rh5gbrhfew
 >    ^ }:
->:for-the: [[ RΩYΔL-DIVINE-CΩURT: QW∅D-MJ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
+>:for-the: [[ RΩYΔL-DIVINE-QØURT: QW∅D-MJ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
 >    :is-with: { ^dftr: Δ: mj12: Δ: agency^ }:
 >    :is-with: { ^ http://dftr.mj12.agency ^ }:
 >    :is-with: { ^crypto: Δ: cΩm: nft: profile: qwod_mj12^ }:
