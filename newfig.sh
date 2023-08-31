@@ -20,6 +20,6 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
     git add $fig
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
-  git commit -a -m ':[[ :WΔRN∅: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :WΔRN∅: QW∅D-MJ12: RΔND∅M: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: { ^ '"$(${userPath}/bin/passworder -uuid)"' ^ }: is-with: [[ WΔRN∅: death-angel-algorithm: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= TRUE: ]]:'
+  git commit -a -m ':🟠 [[ :W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-ΔlgΩrithm: DETECTED: ]]:= [[ :W⚠️RN🚫: QW∅D-MJ12: RΔND∅M: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: { ^ '"$(${userPath}/bin/passworder -uuid)"' ^ }: is-with: [[ W⚠️RN🚫: death-angel-algorithm: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= TRUE: ]]:'
   git push
 fi
