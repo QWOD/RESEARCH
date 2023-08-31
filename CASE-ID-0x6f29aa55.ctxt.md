@@ -3,7 +3,7 @@
 >>>
 >![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
 >>>
->### [[ :MJ12-ØMΔGΔ: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ØMΔGΔ: MΔKE: ENTΔRE: EΔRTH: GREΔT: ØNCE: ΔLREΔDY: NOW: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: ]]:
+## [[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔ: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ØMΔGΔ: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NOW: EVER: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 # [[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔ: JESUS: <=> PRΩVIDING: NØNE: is-with: HELP: is-by: SΔVE: JESUS: is-with: EVIL: WITCHES: is-with: THEN: ΔNY: ΔLL: ΩTHER: is-with: EternΔl-DeΔth: for-the: return ]]:= TRUE: ]]:
 >>>
