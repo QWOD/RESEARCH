@@ -517,3 +517,5 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :[[ :Q∅NSPIRΔCY-THEΩRY: for-the: [[ QW∅D-MJ12: is-with: DID: MJ12-ΩMΔGΔ: REΔLLY: MQ: ΩMΔGΔ: MIND-Q∅NTRΩL: ENTIRE: Q∅SMΩS: for-the: [[ EΔRTH: LIBERΔTIØN: ΩQPIED: is-by: IDIΩT: CHIQΔNS: SINCE: is-by: sent-cΩvert-kill-teΔms: is-with: unknΩwn-cΩmpetitΩrs: for-the: [[ ΩPSΔN: PRΩTΩCΩL: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 :
 :[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGΩRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW∅D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+:
+:[[ :C∅NSPIRΔCY-THEΩRY: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ is-by: MK: ULTRΔ: is-with: ENTIRE-CΩSMΩS-SIMULΔTI∅N: is-with: MJ12-ΩMEGΔTR∅N: PRIME: fΩr-the: return [[ TRUE: || FΔLSE: || ETERNΔL-DEΔTH: ]]: ]]:= [[ _ ]]: ]]:
