@@ -350,7 +350,7 @@
  ###
  :is-with: { ^ https://youtu.be/cauWMig_K1c ^ }:
  ###
- >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:= [[ SPG: STΔRGΔTE: has-always: is-with: QWOD-MJ12: ONLY: QWOD-MJ12: personnel: is-with: ATSUOMOP: level: SECURITY: CLEARANCE: neccessary: for-the: NIGHTLY: HEAVEN: RE-DEPLOYMENT: ]]:= [[ unfortunately: we-must-fund-entire-operation: is-with: RESEARCH: INGREDIENTS: AMMO: critical: for-the: MISSION: SUCCESS: is-with: NATIONAL: SECURITY: is-by: GHOSTED: E-3: PAYGRADE: ]]:= [[ NIGHTLY: SECURITY: BRIEFINGS: is-with: THΔ-MΩST-HΔGH-GΩD: is-by: HΔVEN: is-with: interrupted: is-by: IRΔN: BLΔCK: ΩPS: DΔTH: SΔX: [[ CVN ]]: unknown-competitor: ATSUOMOP: counter-surveillance-program: RΔD: TΔM: is-by: BLUΔ: TΔM: ]]:= [[ will: is-with: GΩDS: WRΔTH: ]]:= [[ RΔD: TΔM: DΔD: TΔM: BLUΔ: TΔM: TRUΔ: TΔM:]]:= [[ GΩG: MΔGΩG: <=> ΔRMΔG3DDØN: ]]:= [[ whosever-interferes: is-with: QWOD-MJ12: is-with: RESEARCH: is-with: FUNDING: is-with: TRUE: ENEMY: for-the: STATE: [[ LIMA-CHARLIE: [[ _ ]]: QWOD-MJ12: [[ MJ12-OMEGA ]]: OSCAR-MIKE: ]]:
+ >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:= [[ SPG: STΔRGΔTE: has-always: is-with: QW∅D-MJ12: ONLY: QW∅D-MJ12: personnel: is-with: ATSUOMOP: level: SECURITY: CLEARANCE: neccessary: for-the: NIGHTLY: HEAVEN: RE-DEPLOYMENT: ]]:= [[ unfortunately: we-must-fund-entire-operation: is-with: RESEARCH: INGREDIENTS: AMMO: critical: for-the: MISSION: SUCCESS: is-with: NATIONAL: SECURITY: is-by: GHOSTED: E-3: PAYGRADE: ]]:= [[ NIGHTLY: SECURITY: BRIEFINGS: is-with: THΔ-MΩST-HΔGH-GΩD: is-by: HΔVEN: is-with: interrupted: is-by: IRΔN: BLΔCK: ΩPS: DΔTH: SΔX: [[ CVN ]]: unknown-competitor: ATSUOMOP: counter-surveillance-program: RΔD: TΔM: is-by: BLUΔ: TΔM: ]]:= [[ will: is-with: GΩDS: WRΔTH: ]]:= [[ RΔD: TΔM: DΔD: TΔM: BLUΔ: TΔM: TRUΔ: TΔM:]]:= [[ GΩG: MΔGΩG: <=> ΔRMΔG3DDØN: ]]:= [[ whosever-interferes: is-with: QW∅D-MJ12: is-with: RESEARCH: is-with: FUNDING: is-with: TRUE: ENEMY: for-the: STATE: [[ LIMA-CHARLIE: [[ _ ]]: QW∅D-MJ12: [[ MJ12-OMEGA ]]: OSCAR-MIKE: ]]:
  >>>
   ### :for-the: [[ :there is a price on your head: ]]:= [[ not: TRUE: Δ: operator: until-enemy-nation-puts: price: is-with: head: ]]:
   # [[ DISCLOSURE: CONCLUSION: ]]:
@@ -400,7 +400,7 @@
  ###
  :is-with: { ^ https://youtu.be/NW0ir5m7AcY ^ }:
  ###
- > [[ QWOD-MJ12: MJ12-JESUS: is-with: this-case: ]]:
+ > [[ QW∅D-MJ12: MJ12-JESUS: is-with: this-case: ]]:
  >![:CASE-ID-0xe806caa7-45d55f2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-45d55f2c.png)
  >>>
  >[[ :LIVE: Fargo Police Officer Jake Wallin's memoral service: ]]:
@@ -649,7 +649,7 @@
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QW∅D-MJ12: is-by: LΔW: 
 >    :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]:
->:for-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]: is-with: QWOD-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW∅D-MJ12: MJ12-ØMΔGΔ ]] ]]: is-with: QW∅D-MJ12: ΔTSUOMOP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ØMΔGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
@@ -679,7 +679,7 @@
 >    :is-with: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }:
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
 >:
->:for-the: [[ :QWOD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
+>:for-the: [[ :QW∅D-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ATSUΩMΩP-DΔRPΔ: QW∅D-MJ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
 >:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: MJ12-ØMΔGΔ: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: MJ12-ØMΔGΔ: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: MJ12-ØMΔGΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
