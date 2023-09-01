@@ -40,7 +40,7 @@
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :You've got someone wanting to change their whole life for you.: ]]:= { ^ https://youtu.be/LhrUlRDYn0Y ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :You've got someone wanting to change their whole life for you.: ]]:= { ^ <https://youtu.be/LhrUlRDYn0Y> ^ }:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-7793f50a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7793f50a.png)
@@ -48,19 +48,19 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
-># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
+># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ <https://youtu.be/rhQ1oCGG6wA> ^ }: ]]:
 >>>
 >![:CASE-ID-0x0ff4fc0e-dd03507f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-dd03507f.png)
 >>>
 >###
 >![:CASE-ID-0x0ff4fc0e-6f563774.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6f563774.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ https://youtu.be/lMQghqNZf6g ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ <https://youtu.be/lMQghqNZf6g> ^ }:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-ce9c23e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ce9c23e8.png)
 >>>
->:[[ :for-the: [[ Ø: { ^ https://www.youtube.com/watch?v=rhQ1oCGG6wA&t=4655s ^ }: ]]:= *:[[ :🟠: [[ W⚠️RN🚫: is-with: [[ _ ]]: for-the: [[ _ ]]: ]]:= [[ _ ]]: ]]:*
+>:[[ :for-the: [[ Ø: { ^ <https://www.youtube.com/watch?v=rhQ1oCGG6wA&t=4655s> ^ }: ]]:= *:[[ :🟠: [[ W⚠️RN🚫: is-with: [[ _ ]]: for-the: [[ _ ]]: ]]:= [[ _ ]]: ]]:*
 >>>
 >###
 >![:CASE-ID-0x0ff4fc0e-989f0765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-989f0765.png)
@@ -73,7 +73,7 @@
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ <https://youtu.be/F0Z0gomYDNk> ^ }:
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >>>
@@ -86,7 +86,7 @@
 >###
 ![:CASE-ID-0x0ff4fc0e-a25b2e34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a25b2e34.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ https://youtu.be/5bhD9aVpiYw ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ <https://youtu.be/5bhD9aVpiYw> ^ }:
 >>>
 :[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
 >>>
@@ -97,7 +97,7 @@
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Waking Up A higher energy is moving you!: ]]:= { ^ https://youtu.be/X7kw_jfSShs ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Waking Up A higher energy is moving you!: ]]:= { ^ <https://youtu.be/X7kw_jfSShs> ^ }:
 >>>
 >[[ :Toby Lewin - Tyrael Vs Hell: ]]:
 >>>
