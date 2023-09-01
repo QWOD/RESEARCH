@@ -107,17 +107,12 @@
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
->###
->>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
->>>
 >#
+>![:CASE-ID-0x0ff4fc0e-1ab5b0ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1ab5b0ee.png)
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>:[[ :*ØPعD*: ]]:= [[ :You Broke The Chains That Locked Your Generation For Lifetimes! You Are Starting Your Lineage Over!: ]]:= { ^ https://youtu.be/sKSFt6ac_Pg ^ }:
 >>>
->###
->>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :THEY CAN'T TAKE THE HEAT🔥SOMEONE MAY BE SICK‼️THESE OFFICIALS FINALLY CAUGHT UP 2 THEM😮PUT 2 SHAME🧿: ]]:= { ^ https://youtu.be/oYZ7vZTLDSY ^ }:
 >>>
 >#
 >>>
