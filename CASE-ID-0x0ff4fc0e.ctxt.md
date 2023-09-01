@@ -67,7 +67,11 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >:[[ :*ΩPعD*: ]]:= [[ :The Solomon Anointing (For Chosen Ones): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
->#
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>>>
+># :[[ :DISCLΩSURE: for-the: [[ [[ WE: US: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WE: DΩ: nΩt-even-tΩuch-Ωur-wΩmen: eΔt-meΔt: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔssΩciΔte: is-with: HUMΔNS: WE: reprΩduce: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
+>>>
+###
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
