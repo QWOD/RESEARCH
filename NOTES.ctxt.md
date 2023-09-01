@@ -145,7 +145,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ "unlΔwful-use: evil: vrilΩmΔncy7: dΔrk technΩlΩgy: THΔ: 1s-with: free-will: decisiΩn-cursing: THΔR: ΔNTIRE: generΔtiΩns-tΩ-cΩme." ]]:
 :FΩr-th3: [[ THΔ: <=> @ScientΩlΩgy: ]]:
 :FΩr-th3: [[ TΔNGΩ: @ScientΩlΩgy: ]]:= [[ PID: cΩnf☥rmΔtiΩn-sΩurce: DRΔWING: FΔRE: ]]:= [[ ΩPΩRD: LΩRD: QW0D-MJ12: MJ12-METΔTR0N: strΔke-ΔuthΩr☥zΔtiΩn: CHΔRLΔ-HΩTEL: TΔNGΩ-DELTΔ: @ScientΩlΩgy: ]]: CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMΔGΔ: ΩUT ]]:
-:FΩr-th3: [[ :pleΔsure seekers: ]]:= [[ W⚠RNΩ: vrilScientΩlΩgy7: vrilPΔrΔsite7: ΔlgΩrithm: DETECTED: ]]: [[ CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
+:FΩr-th3: [[ :pleΔsure seekers: ]]:= [[ W⚠RNΩ: vrilScientΩlΩgy7: vrilPΔrΔsite7: ΔLGØRITHM: DETECTED: ]]: [[ CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
 :FΩr-th3: [[ ΔUM:RΔ ]]: KΔ: LI: MΔ: SHI: VΔ: KRI: SH: NΔ: BRΔ: HM: MΔ: [[ CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMΔGΔ ]] ]]:
 :FΩr-th3: [[ DΩΩMSDΔY: LEVΔTIES ]]:= [[ :HΔVEN: 1s-with: FILLED: 1s-by: chΩrus: lΔughter: fΩr-the: PETTINESS: 1s-with: SIN: 1s-by: 0 ]]:
 :FΩr-th3: [[ :Ωh my GΩsh sucking “D” in the judges chΔmber 4 Δ fΔvΩr: ]]:= [[ D: QRELEVΔNT7: 1s-with: Δs-ΔBΩVع: 1s-by: sΩ: [[ B__LΩW ]] ]]:
@@ -307,7 +307,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ "unlΔwful-use: evil: vrilΩmΔncy7: dΔrk technΩlΩgy: THΔ: 1s-with: free-will: decisiΩn-cursing: THΔR: ΔNTIRE: generΔtiΩns-tΩ-cΩme." ]]:
 :FΩr-th3: [[ THΔ: <=> @ScientΩlΩgy: ]]:
 :FΩr-th3: [[ TΔNGΩ: @ScientΩlΩgy: ]]:= [[ PID: cΩnf☥rmΔtiΩn-sΩurce: DRΔWING: FΔRE: ]]:= [[ ΩPΩRD: LΩRD: QW0D-MJ12: MJ12-METΔTR0N: strΔke-ΔuthΩr☥zΔtiΩn: CHΔRLΔ-HΩTEL: TΔNGΩ-DELTΔ: @ScientΩlΩgy: ]]: CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMΔGΔ: ΩUT ]]:
-:FΩr-th3: [[ :pleΔsure seekers: ]]:= [[ W⚠RNΩ: vrilScientΩlΩgy7: vrilPΔrΔsite7: ΔlgΩrithm: DETECTED: ]]: [[ CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
+:FΩr-th3: [[ :pleΔsure seekers: ]]:= [[ W⚠RNΩ: vrilScientΩlΩgy7: vrilPΔrΔsite7: ΔLGØRITHM: DETECTED: ]]: [[ CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
 :FΩr-th3: [[ ΔUM:RΔ ]]: KΔ: LI: MΔ: SHI: VΔ: KRI: SH: NΔ: BRΔ: HM: MΔ: [[ CㅐΔRLΔ-MΔKع: [[ QW0D-MJ12: MJ12-ΩMΔGΔ ]] ]]:
 :FΩr-th3: [[ DΩΩMSDΔY: LEVΔTIES ]]:= [[ :HΔVEN: 1s-with: FILLED: 1s-by: chΩrus: lΔughter: fΩr-the: PETTINESS: 1s-with: SIN: 1s-by: 0 ]]:
 :FΩr-th3: [[ :Ωh my GΩsh sucking “D” in the judges chΔmber 4 Δ fΔvΩr: ]]:= [[ D: QRELEVΔNT7: 1s-with: Δs-ΔBΩVع: 1s-by: sΩ: [[ B__LΩW ]] ]]:
@@ -338,7 +338,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: ☥NTعGRΔTع: YΔ: عTعRNعLDRΔG0N: 1s-with: MJ12-RΔΔSH: GΩldعn-DrΔgΩn: fΩr-th3: F☥rst-ΩrdعR: 1s-with: CR3ΔT☥0NS: BعG☥NN☥NG:
 :FΩr-th3: vr☥lWΔtch3s7: LΩVع: 1s-by: HΔTع: is-with: MJ12-ΩMΔGΔ: 1s-by: vr☥lWΔtch3s7: fΩr-th3: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: fΩr-th3: vr☥lWΔtch3s7: is-with: MJ12-ΩMΔGΔ: 1s-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: fΩr-th3: íncΩnvعníعncع: is-with: CΔUS3D: 1s-by: [[ _ ]]: is-with: MJ12-0MΔGΔ: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 :FΩr-th3: [[ QW0D-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
-:FΩr-th3: [[ :they Δre mΔd: ]]:= [[ THΔ: 1s-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: 1s-by: D3ΔTH: 1s-with: US: fΩr-th3: WΩW: 1s-with: sense: fΩr-the: entitlement: ]]:= [[ WΔRNΩ: delussiΩnΔl-nΔrcissist: ΔLGΩRITHM: DETECTED: ]]:
+:FΩr-th3: [[ :they Δre mΔd: ]]:= [[ THΔ: 1s-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: 1s-by: D3ΔTH: 1s-with: US: fΩr-th3: WΩW: 1s-with: sense: fΩr-the: entitlement: ]]:= [[ WΔRNΩ: delussiΩnΔl-nΔrcissist: ΔLGØRITHM: DETECTED: ]]:
 :FΩr-th3: [[ :they need tΩ gΩ tΩ the: DΩCK: TΩR: ]]:= [[ DΩCK: TΩR: <=> [[ DΩCK | TΩRTURE ]]: mΔster: :fΩr-th3: DΩcking: TΩrturing: 1s-with: [[ LΔFE || D3ΔTH ]]: [[ CㅐΔRLΔ-ㅐΩع-TΔL3: QW0D-MJ12 ]]:
 :FΩr-th3: [[ :there is Δ price Ωn yΩur heΔd: ]]:= [[ N3GΔTIVE: WΔ: H3ΔD: ΩFFICIΔLLY: EXIST: 1s-by: 0: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
 :FΩr-th3: [[ SITR3P: VIR3Ω: LΩT: F11199: SPΔC3: MΔJIC ]]:= [[ LF: Lik3ly-FΔtΔl: fΩr-th3: humΔns: 1s-by: lung-fΔilur3: 1s-with: whil3-incr3Δsing: intuΔtive: empΔthic: m3ntΔl-t3l3pΔthy: Δbiliti3s: r3ducing-pΔ1n: inflΔmmΔtiΩn: fΩr-th3: HLΔB-LΔMB: is-with: MΔY: k33p-cΩmpΩn3nt: 1s-with: will-nΩt-b3-Δbl3-tΩ-ΔccurΔt3ly-Δcc3ss-Δdd1ct1v3-quΔl1t13s: fΩr-th3: HLΔB-LΔMB: is-with: Δdd1ctiv3-cΔpΔc1ty: 1s-by: 0: 1s-by: b1ΩlΩgicΔlly-1mpΩss1bl3: 1s-with: WΔ: Δr3-ΔlwΔys-sΩb3r-ΔgΔin: 1s-by: m1nut3s: 1s-with: extrΔmely-hΔgh-lΔver-functiΩn: 1s-by: Δt3rnΔl-L☥f3: wΔrfΔre-cΔpΔb1l1tΔ3s: fΩr-the: 1deΔl-test-subject-cΔndidΔtes: fΩr-the: RESΔRCH: INGR3DΔ3NTS: fΩr-the: MISSΔ0N: SUCCESS: fΩr-the: NΔTI0NΔL: SECΔRITY: purpΩses ]]:
@@ -447,10 +447,10 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :they ΔlreΔdy killed yΩu Ωnce: they cΔn't kill yΩu ΔgΔin: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
 [[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: NΔDLE-EXCHΔNGES: BLΩΩD-DRIVES: ETC: ]]:= [[ HIGH-RISK: ΩCCUPΔTI0NS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CL0NES: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ WΔrfΔr1n: SudΔfed: DMT: THC: ]]:= [[ tΩΩ-much: WΔrfΔr1n: cΔuses: lung: heΔrt: fΔ1lure: recΩmmend-reduc1ng-cΩmpΩnents: 1s-by: 33%: ]]:= [[ PERCΔVED: BENEFΔTS: 1s-w1th: Δss1sts-1n-reduc1ng-wΔrfΔre-cΔpΔb1l1t1es: 1s-by: WΔTCHES: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ :HITMΔN: th3y cΩnjur3d frΩm th3 und3rwΩrld: s3nt tΩ prΩt3ct yΩu: ]]:= [[ MΔRDUK: <=> "1s-w1th: thΔnk: YΩU: MJ12-MΔRDUK: fΩr-th3: d3d1cΔt3d-s3rv1c3: Δss1stΔnc3: 1s-by: 0N-HIGH: ]]:
 :
 ### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
@@ -458,16 +458,16 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :
 [[ :1nst3Δd Ωf r3d p1ll: blu3 p1ll: ]]:= [[ :whΔt 1f th3r3 1s: ΔTSUΩMΩP: purpl3: LIMΔTLΔSS: p1ll: ]]:= [[ WΔRNΩ: b1nΔry-lΩg1c-3rrΩr-ΔlgΩr1thm: DETΔCTED: ΔRTH: PLΔNETΔRY: CΩRE: MΔLTDΩWN: DETΔCTED: CΔTΔSTRΩPHIC-FΔILΔRE: IMMΔNENT: is-by: [[ _ ]]: YΔRS: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 [[ :l1m1ts: WΔTCH: WΔRFΔRE: CΔPΔB1L1T1ES: 1s-by: 77: %: ]]:= [[ recΩmmend-reduc1ng: WΔRFΔR1N: cΩmpΩnent: 1s-by: 33%: 1s-w1th: re-1ntrΩduc1ng: prev1Ωus-cyle: cΩmpenents: 1s-by: 77%: ΔLL: EXCEPT: WΔRFΔR1N: cΩmpΩnent: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥Δ0NS: LΔD: IS-BY: QW0D-MJ12: MJ12-JΔSUS: IS-WITH: QW0D-MJ12: MJ12-ΩMΔGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDD0N ^ }:
 :
 FΩr-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-Ωf-trΔnsmut1ng-3v1l 3ye-energy: is-with: rΔw-sp1r1tuΔl-pΩwer-l1ke: TRUE: mΔster-shΔmΔn: w1tches: rΔpe: sΔcr1f1ce: eΔt: bΔb1es is-with: sp1r1tuΔlly-gΔngstΔlk1ng-heΔven: energet1cΔlly: hΩw: TH3Y: gΔngstΔlk-everyΩne-Ωn-3Δrth-s1nce: TH3Y: lΔck: sΩul: tΩ-be-the1r-Ωwn-l1ght:" ]]:= { ^ [[ @:vrilDeltΔTΔngΩ7 ]] ^ }:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ :Jesus wΔs Δn Δl1en: ]]:= [[ :W☥7CH: L☥E: 1s-by: 100: 1s-w17h: Δl1en: 1s-by: 0: 1s-w17h: QW0D-MJ12: HLΔB-LΔMB: 7☥Mع-LΩRD: 1s-by: 100: ]]:= [[ :MJ12-JESUS: very-much-still-lives: is-by: 100: ]]:= [[ :WITCHES: invented: ΔLIEN-THEΩRY: is-with: discredit: TRUE: pΩint: fΩr-the: Ωrigin: mΔke: US: feΔr-Ωur-Ωwn-creΔtΩr: PΩWERS: ]]:
 :
 [[ :MJ12-JعSUS: v3ry-much-st1ll-l1v3s: 1s-by: 100: ]]:= [[ :W☥TCHES: 1nv3nt3d: ΔL☥عN-THعΩRY: 1s-w1th: d1scr3d1t: TRUE: pΩ1nt: fΩr-th3: Ωr1g1n: mΔk3: US: f3Δr-Ωur-Ωwn-cr3ΔtΩr: PΩWعRS: ]]:= [[ fΩr-the: 7-ChΔkrΔs: QW0D-MJ12: ΩperΔtΩrs-dΩ-nΩt-hΔve: 7-ChΔkrΔs: WE: hΔve: 7-ΔRC: ΔNGELS: insteΔd: ]]:
@@ -506,16 +506,16 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :
 [[ :fΩr-the: RESEΔRCH: INGREDIENTS: fΩr-the: [[ is-with: prΩcess: Δncient-shΔmΔnic: Tribel: wisdΩm: is-with: [[ [[ _M_: <=> D:Ω:n:Δ:l:_: J: T:r:u:m:p: ]]:= CΔPTURE: [[ __il____in: <=>: c: s: b: P: Ω: y: ]]:= CΔPTURE: ]]: fΩr-the: ΩVERCLΩCK: C0NSCIΩUSNESS: [[ THC: <=> The-HΩly-ChristΩs: ]]: is-with: hyper-dimensiΩnΔl-brΔinwΔve-ΔctivΔtiΩn-frequencies: plΔnt-medicines: fΩr-the: ΔFTER: LIFE: wΔrfΔre-cΔpΔbilities: fΩr-the: eΔr: ringing: is-with: blΩΩd: fΩr-the: innΩcent: crying: fΩr-the: REDEMPTI0N ]]: ]]:
 :
-[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGΩRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 :NΩTH☥NG-عLSع-FΩLLΩWS:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :[[ :WΔRNΩ: for-the: [[ [[ WE: US: HE: HER: HIM: SHE: HE: THEM: THEY: ΔNY: ΔLL: ΩTHER: EVERY: 0NE: BΩDY: VESSEL: BEING: for-the: [[ NΩW: THEN: NEXT: ANY: ALL: EVERY: TIMES: for-the: EVER: ]]: <=> peΩple: ]]: is-with: TRUE: EVERYTHING: SLICKS™: for-the: return ]]:= TRUE: ]]:
 :
-[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGΩRITHM: DETECTED: ]]:= [[ :MJ12-ΩMΔGΔ: ΔNCESTΩRS: BUILT: is-with: [[ EΔRTH: <=> ΔRC-Δ: is-by: 55: is-with: LΩRD: METΔTR0N for-the: ΔRC: <=> ΔD0NAI-RΩYΔL-CΩUNCIL: for-the: SIMULΔTI0N: QUΔNTUM: CLΩUD: [[ Q0NSΩLUTI0NS: <=> is-by: Q0N-REMΩVΔL: TREE: SERVΔCE: ]]: THΔ: is-by: [[ EN:RΔ:GED ]]: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: for-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: for-the: ΔCTI0NS: is-with: [[ UN:RU:LY ]]: Q0NSEQUENCES: is-by: [[ KΔRMIC: <=> Q0SMIC ]]: LΔW: ]]:= [[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :MJ12-ΩMΔGΔ: ΔNCESTΩRS: BUILT: is-with: [[ EΔRTH: <=> ΔRC-Δ: is-by: 55: is-with: LΩRD: METΔTR0N for-the: ΔRC: <=> ΔD0NAI-RΩYΔL-CΩUNCIL: for-the: SIMULΔTI0N: QUΔNTUM: CLΩUD: [[ Q0NSΩLUTI0NS: <=> is-by: Q0N-REMΩVΔL: TREE: SERVΔCE: ]]: THΔ: is-by: [[ EN:RΔ:GED ]]: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: for-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: for-the: ΔCTI0NS: is-with: [[ UN:RU:LY ]]: Q0NSEQUENCES: is-by: [[ KΔRMIC: <=> Q0SMIC ]]: LΔW: ]]:= [[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 :[[ :Q0NSPIRΔCY-THEΩRY: for-the: [[ QW0D-MJ12: is-with: DID: MJ12-ΩMΔGΔ: REΔLLY: MQ: ΩMΔGΔ: MIND-Q0NTRΩL: ENTIRE: Q0SMΩS: for-the: [[ EΔRTH: LIBERΔTI0N: ΩQPIED: is-by: IDIΩT: CHIQΔNS: SINCE: is-by: sent-cΩvert-kill-teΔms: is-with: unknΩwn-cΩmpetitΩrs: for-the: [[ ΩPSΔN: PRΩTΩCΩL: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 :
-:[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGΩRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGΩRITHM-CHΔNGE: DETECTED: ]]:
+:[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 :[[ :C0NSPIRΔCY-THEΩRY: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ is-by: MK: ULTRΔ: is-with: ENTIRE-CΩSMΩS-SIMULΔTI0N: is-with: MJ12-ΩMEGΔTR0N: PRIME: fΩr-the: return [[ TRUE: || FΔLSE: || ETERNΔL-DEΔTH: ]]: ]]:= [[ _ ]]: ]]:

@@ -88,7 +88,7 @@
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ <https://youtu.be/5bhD9aVpiYw> ^ }:
 >>>
->:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
+>:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGØRITHM: DETECTED: ]]: ]]:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-b6d6a0b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b6d6a0b3.png)
@@ -1101,7 +1101,7 @@
 >:
 >:for-the: [[ QWØD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
->:for-the: [[ :they Δre mΔd: ]]:= [[ THΔ: is-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: is-by: D3ΔTH: is-with: US: for-the: WΩW: is-with: sense: for-the: entitlement: ]]:= [[ W⚠️RN🚫: delussiΩnΔl-nΔrcissist: ΔLGΩRITHM: DETECTED: ]]:
+>:for-the: [[ :they Δre mΔd: ]]:= [[ THΔ: is-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: is-by: D3ΔTH: is-with: US: for-the: WΩW: is-with: sense: for-the: entitlement: ]]:= [[ W⚠️RN🚫: delussiΩnΔl-nΔrcissist: ΔLGØRITHM: DETECTED: ]]:
 >:
 >:for-the: [[ :they need tΩ gΩ tΩ the: DΩCK: TΩR: ]]:= [[ DΩCK: TΩR: <=> [[ DΩCK | TΩRTURE ]]: mΔster: for-the: DΩcking: TΩrturing: is-with: [[ LΔFE || D3ΔTH ]]: [[ CㅐΔRLΔ-ㅐΩع-TΔL3: QWØD-MJ12 ]]:
 >:

@@ -360,7 +360,7 @@
 >:
 >:for-the: [[ QWØD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
->:for-the: [[ :they Δre mΔd: ]]:= [[ THΔ: 1s-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: 1s-by: D3ΔTH: 1s-with: US: for-the: WΩW: 1s-with: sense: for-the: entitlement: ]]:= [[ W⚠️RN🚫: delussiΩnΔl-nΔrcissist: ΔLGΩRITHM: DETECTED: ]]:
+>:for-the: [[ :they Δre mΔd: ]]:= [[ THΔ: 1s-with: MΔD: since: WΔ: did-nΩt-ΔllΩw: THΔM: 1s-by: D3ΔTH: 1s-with: US: for-the: WΩW: 1s-with: sense: for-the: entitlement: ]]:= [[ W⚠️RN🚫: delussiΩnΔl-nΔrcissist: ΔLGØRITHM: DETECTED: ]]:
 >:
 >:for-the: [[ :they need tΩ gΩ tΩ the: DΩCK: TΩR: ]]:= [[ DΩCK: TΩR: <=> [[ DΩCK | TΩRTURE ]]: mΔster: for-the: DΩcking: TΩrturing: 1s-with: [[ LΔFE || D3ΔTH ]]: [[ CㅐΔRLΔ-ㅐΩع-TΔL3: QWØD-MJ12 ]]:
 >:
