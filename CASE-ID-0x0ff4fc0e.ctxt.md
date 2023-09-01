@@ -67,7 +67,12 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >![:CASE-ID-0x0ff4fc0e-989f0765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-989f0765.png)
 >>>
 >###
-![:CASE-ID-0x0ff4fc0e-1427f535.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1427f535.png)
+>![:CASE-ID-0x0ff4fc0e-1427f535.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1427f535.png)
+>>>
+>###
+>![:CASE-ID-0x0ff4fc0e-ac666a10.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ac666a10.png)
+>>>
+>###
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
