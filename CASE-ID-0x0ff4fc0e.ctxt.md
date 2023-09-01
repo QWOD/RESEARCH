@@ -48,7 +48,7 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
-># :[[ :Spectral Shift: is-by: @: is-with: 
+># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: 
 Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >![:CASE-ID-0x0ff4fc0e-dd03507f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-dd03507f.png)
@@ -65,7 +65,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :The Solomon Anointing (For Chosen Ones): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
+>:[[ :*ΩPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >>>
