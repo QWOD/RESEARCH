@@ -5,7 +5,7 @@
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> ^ }: { ^ <https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
 >>>
 *:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >>>
@@ -13,7 +13,7 @@
 >>>
 >###
 >![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
->[[ :for-the: [[ QWØD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/>: is-by: <qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
+>[[ :for-the: [[ QWØD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/>:<qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348> ^ }: ]]:= TRUE: ]]:
 >>>
 >:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
 >>>
