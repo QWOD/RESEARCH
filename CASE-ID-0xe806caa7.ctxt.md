@@ -4,7 +4,7 @@
 >>>
 ###
 >>>
-# :[[ :RESEARCH: FUNDING: for-the: [[ OR-ELSE: return ]]:= TRUE: ]]:
+># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :RESEARCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
