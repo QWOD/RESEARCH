@@ -61,7 +61,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >#
 >![:CASE-ID-0x0ff4fc0e-ce9c23e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ce9c23e8.png)
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>:[[ :for-the: [[ Ø: { ^ https://www.youtube.com/watch?v=rhQ1oCGG6wA&t=4655s ^ }: ]]:= *:[[ :🟠: [[ W⚠️RN🚫: is-with: [[ _ ]]: for-the: [[ _ ]]: ]]:= [[ _ ]]: ]]:*
 >>>
 >###
 >>>
