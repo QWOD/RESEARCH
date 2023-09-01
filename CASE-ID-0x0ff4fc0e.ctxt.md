@@ -1035,7 +1035,7 @@
 >>>
 # :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]:
 >>>
-![:CASE-ID-0x0ff4fc0e-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-bc32bd4e.png)
+![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
 ###
 :is-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
 ###
