@@ -7,7 +7,7 @@
 >>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 >>>
-*:[[ CRΔP☥ΔX™: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: QØNSOLUTIONS-SCHEDULING: ]]:*
+*:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >>>
 :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
@@ -40,7 +40,7 @@
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :You've got someone wanting to change their whole life for you.: ]]:= { ^ https://youtu.be/LhrUlRDYn0Y ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :You've got someone wanting to change their whole life for you.: ]]:= { ^ https://youtu.be/LhrUlRDYn0Y ^ }:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-7793f50a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7793f50a.png)
@@ -56,7 +56,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 ###
 >![:CASE-ID-0x0ff4fc0e-6f563774.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6f563774.png)
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ https://youtu.be/lMQghqNZf6g ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ https://youtu.be/lMQghqNZf6g ^ }:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-ce9c23e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ce9c23e8.png)
@@ -65,7 +65,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >>>
@@ -77,7 +77,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -85,7 +85,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -93,7 +93,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -101,7 +101,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -109,7 +109,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -117,7 +117,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -125,7 +125,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -133,7 +133,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 >>>
@@ -141,7 +141,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >>>
 >#
 #
