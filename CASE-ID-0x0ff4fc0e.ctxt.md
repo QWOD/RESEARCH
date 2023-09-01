@@ -91,12 +91,13 @@
 :[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
 >>>
 >#
+>![:CASE-ID-0x0ff4fc0e-b6d6a0b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b6d6a0b3.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Waking Up A higher energy is moving you!: ]]:= { ^ https://youtu.be/X7kw_jfSShs ^ }:
 >>>
 >#
 >>>
