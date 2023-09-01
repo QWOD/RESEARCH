@@ -131,12 +131,13 @@
 >:[[ :*ØPعD*: ]]:= [[ :SoulTalk on SoulogyNetwork: Spotlight Show of the Month: ]]:= { ^ https://youtu.be/QM2qgpZk1to ^ }:
 >>>
 >#
+>![:CASE-ID-0x0ff4fc0e-e416b3ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e416b3ba.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :I DON’T KNOW WHO THIS IS FOR~GOD IS ABOUT TO CHANGE YOUR LIFE AND ELEVATE YOU 2 ANOTHER LEVEL ⬆️ 🆙: ]]:= { ^ https://youtu.be/xKT5I7AWv7I ^ }:
 >>>
 >#
 >>>
