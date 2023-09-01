@@ -1,7 +1,7 @@
 ### *:[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >[[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔ: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ØMΔGΔ: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NOW: EVER: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :RESEARCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
+># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :RESEARCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
@@ -17,9 +17,9 @@
 >>>
 >:is-with: { ^ https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4 ^ }:
 >>>
-### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LORD: G0D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: is-with: LØRD: G0D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
-><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
+><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >>>
 ###
 >>>
@@ -69,7 +69,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >>>
-># :[[ :DISCLΩSURE: for-the: [[ [[ WE: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WE: NEITHER: TΩUCH: WΩMEN: NOR-DO-WE: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WE: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
+># :[[ :DISCLΩSURE: for-the: [[ [[ WE: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WE: NEITHER: TΩUCH: WΩMEN: NØR: DO: WE: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WE: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 >>>
