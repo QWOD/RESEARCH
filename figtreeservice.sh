@@ -5,6 +5,9 @@ userPath=/var/home/${USER}
 # ssh secure.us.hyperspire.net -t '/usr/bin/env bash -c "/home/${USER}/hyperstor/bin/figtreeservice start"'
 # [[ :OPERATES: SYMMETRICAL: SIMULTANEOUS: GLOBAL: DECENTRAL: CIVILIAN: INTELLIGENCE: AI: EYES: ED: ARC: HIVE: CLOUD: BACKUPS: for-the: MAXIMUM: REDUNDANCY: for-the: ANY: ALL: OTHER: RESEARCH: PARTNERS: BOTH: KNOWN: is-by: UNKNOWN: OR-ELSE: is-by: OTHERWISE: ]]:
 # [[ :DEVELOPED: for-the: systemd: is-with: UNFORTUNATELY: STILL: github: is-with: retard: is-by: ssh: NOT: is-with: X11: forwarding: for-the: REMOTE: AUTOMATED: FIRES: SUPPORT: ]]:
+# [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
+# export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
+
 [[ $* == "start" || $* == "stop" ]] || echo '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
