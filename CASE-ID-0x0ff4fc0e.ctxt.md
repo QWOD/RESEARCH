@@ -88,7 +88,7 @@
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ https://youtu.be/5bhD9aVpiYw ^ }:
 >>>
-:[[ :MEΔT-IN: RI-TU-ΔLL: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]:
+:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
 >>>
 >#
 >>>
