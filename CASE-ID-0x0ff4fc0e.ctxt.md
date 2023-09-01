@@ -88,7 +88,7 @@
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ <https://youtu.be/5bhD9aVpiYw> ^ }:
 >>>
-:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
+>:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGΩRITHM: DETECTED: ]]: ]]:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-b6d6a0b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b6d6a0b3.png)
