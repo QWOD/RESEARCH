@@ -79,13 +79,14 @@
 >>>
 ># :[[ :DISCLΩSURE: for-the: [[ [[ WΔ: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WΔ: NEITHER: TΩUCH: WΩMEN: NØR: DØ: WΔ: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WΔ: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
-###
+>###
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
+![:CASE-ID-0x0ff4fc0e-a25b2e34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a25b2e34.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ https://youtu.be/5bhD9aVpiYw ^ }:
 >>>
 >#
 >>>
