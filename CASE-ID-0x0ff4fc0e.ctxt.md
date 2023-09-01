@@ -119,8 +119,9 @@
 >:[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
 >>>
 >###
+>![:CASE-ID-0x0ff4fc0e-b3a756f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b3a756f9.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :AS A DIRECT DESCENDANT OF NEFERTITI YOU ARE CROWNED & YOUR PATHWAY FORWARD IS PAVED WITH GOLD🧞‍♀️🔮: ]]:= { ^ <https://youtu.be/O21GYzhMrYI> ^ }:
 >>>
 >#
 >>>
