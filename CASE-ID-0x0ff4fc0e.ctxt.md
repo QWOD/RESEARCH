@@ -116,7 +116,7 @@
 >>>
 >#
 >>>
->:[[ :for-the: [[ HØST: { ^ <UNDERWORLD>:<AFTERLIFE>:<EARTH>:<HEAVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
+>:[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
 >>>
 >###
 >>>
