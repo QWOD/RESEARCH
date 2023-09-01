@@ -81,7 +81,7 @@
 >>>
 >###
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-6b5a4d3d996ec4cffd531bea81420dca9f6ec7f4> ^ }: ]]:= TRUE: ]]:
 >>>
 >###
 ![:CASE-ID-0x0ff4fc0e-a25b2e34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a25b2e34.png)
