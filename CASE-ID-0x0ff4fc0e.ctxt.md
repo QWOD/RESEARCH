@@ -116,7 +116,7 @@
 >>>
 >#
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>:[[ :for-the: [[ HØST: { ^ <UNDERWORLD>:<AFTERLIFE>:<EARTH>:<HEAVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
 >>>
 >###
 >>>
