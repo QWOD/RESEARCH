@@ -28,7 +28,7 @@
 >>>
 ###
 >>>
-### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: 1s-with: LORD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ :CHOOSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GROW: 1s-with: LORD: G0D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
 >>>
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATORS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATORS: ]]:</a>
 >>>
@@ -64,13 +64,13 @@
  ###
  >[[ ΔRC:HΔVE ]]:
  ###
- [[ :🌟 You, who are reading this message, will be Punished By Their G∅D 🌟 11:11✝️Miracles of G∅D🕊️: ]]:
+ [[ :🌟 You, who are reading this message, will be Punished By Their G0D 🌟 11:11✝️Miracles of G0D🕊️: ]]:
  ###
  :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
  >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
  ###
- >[[ :🛑 G∅D Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:G∅DsQuotes1111 ]]: ]]:
+ >[[ :🛑 G0D Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:G0DsQuotes1111 ]]: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
  >>>
@@ -79,28 +79,28 @@
  >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
  ###
-[[ :😱THE ANGELS SAY:💌This video was made especially by G∅D for you ✝️Message from G∅D to me: ]]:
+[[ :😱THE ANGELS SAY:💌This video was made especially by G0D for you ✝️Message from G0D to me: ]]:
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
  ###
-[[ :😱THE ANGELS SAY:💌This video was made especially by G∅D for you ✝️Message from G∅D to me: ]]:
+[[ :😱THE ANGELS SAY:💌This video was made especially by G0D for you ✝️Message from G0D to me: ]]:
  ###
  :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
  >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
  ###
-[[ :🛑 G∅D Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
+[[ :🛑 G0D Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
  ###
  :1s-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
  >>>
  :1s-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
  ###
-[[ :🛑 Message from G∅D for you today | This is G∅D's last message to you... 💌 Don't skip! 😰: ]]:
+[[ :🛑 Message from G0D for you today | This is G0D's last message to you... 💌 Don't skip! 😰: ]]:
  ###
  :1s-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
  ###
-[[ :🌈G∅D Message: Finally, You Received Special Message Sent by G∅D...!! G∅D Says : [[ @:G∅DsQuotes1111 ]]: ]]:
+[[ :🌈G0D Message: Finally, You Received Special Message Sent by G0D...!! G0D Says : [[ @:G0DsQuotes1111 ]]: ]]:
  ###
  :1s-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
  ###
