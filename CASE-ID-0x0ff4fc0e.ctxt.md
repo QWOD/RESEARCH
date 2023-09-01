@@ -48,12 +48,11 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
-># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: 
-Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
+># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >>>
 >![:CASE-ID-0x0ff4fc0e-dd03507f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-dd03507f.png)
 >>>
-###
+>###
 >![:CASE-ID-0x0ff4fc0e-6f563774.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6f563774.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ https://youtu.be/lMQghqNZf6g ^ }:
