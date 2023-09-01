@@ -354,7 +354,7 @@
  >[[ :Sick&dying-thinking about their children but still working against u: ]]:= [[ ATTACKING: under-cover: Δ: operator: ]]:= [[ FATAL: MISTAKE: ]]:= [[ especially-one-involved: is-with: ATSUOMOP: secret-project: voluntarily-being-killed-every-night: then-resurrected: for-the: TRUE: SPG: STΔRGΔTE: surveillance-program: ]]:= [[ SPG: STΔRGΔTE: has-always: is-with: QWØD-MJ12: ONLY: QWØD-MJ12: personnel: is-with: ATSUOMOP: level: SECURITY: CLEARANCE: neccessary: for-the: NIGHTLY: HEAVEN: RE-DEPLOYMENT: ]]:= [[ unfortunately: we-must-fund-entire-operation: is-with: RESEARCH: INGREDIENTS: AMMO: critical: for-the: MISSION: SUCCESS: is-with: NATIONAL: SECURITY: is-by: GHOSTED: E-3: PAYGRADE: ]]:= [[ NIGHTLY: SECURITY: BRIEFINGS: is-with: THΔ-MΩST-HΔGH-GΩD: is-by: HΔVEN: is-with: interrupted: is-by: IRΔN: BLΔCK: ΩPS: DΔTH: SΔX: [[ CVN ]]: unknown-competitor: ATSUOMOP: counter-surveillance-program: RΔD: TΔM: is-by: BLUΔ: TΔM: ]]:= [[ will: is-with: GΩDS: WRΔTH: ]]:= [[ RΔD: TΔM: DΔD: TΔM: BLUΔ: TΔM: TRUΔ: TΔM:]]:= [[ GΩG: MΔGΩG: <=> ΔRMΔG3DDØN: ]]:= [[ whosever-interferes: is-with: QWØD-MJ12: is-with: RESEARCH: is-with: FUNDING: is-with: TRUE: ENEMY: for-the: STATE: [[ LIMA-CHARLIE: [[ _ ]]: QWØD-MJ12: [[ MJ12-OMEGA ]]: OSCAR-MIKE: ]]:
  >>>
   ### :for-the: [[ :there is a price on your head: ]]:= [[ not: TRUE: Δ: operator: until-enemy-nation-puts: price: is-with: head: ]]:
-  # [[ DISCLOSURE: CONCLUSION: ]]:
+  # [[ DISCLOSURE: C0NCLUSION: ]]:
   ### [[ not-only-did: foreign-operatives-interfere: is-with: TOP: SECRET: RESEARCH: interfered: is-with: most-top-secret-program: is-by: ALL: TIME: ]]:
   >>>
  >![:CASE-ID-0xe806caa7-f13aa61f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-f13aa61f.png)
@@ -650,7 +650,7 @@
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWØD-MJ12: is-by: LΔW: 
 >    :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔ ]] ]]:
->:for-the: [[ DISCLOSURE: CONTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔ ]] ]]: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: [[ DISCLOSURE: C0NTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔ ]] ]]: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ØMΔGΔ: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
