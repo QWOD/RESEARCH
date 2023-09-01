@@ -59,12 +59,13 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >:[[ :*ΩPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ https://youtu.be/lMQghqNZf6g ^ }:
 >>>
 >#
+>![:CASE-ID-0x0ff4fc0e-ce9c23e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ce9c23e8.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
 >>>
->:[[ :*ΩPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ΩPعD*: ]]:= [[ :The Solomon Anointing (For Chosen Ones): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
 >#
 >>>
