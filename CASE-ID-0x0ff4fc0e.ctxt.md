@@ -64,6 +64,7 @@ Enter-Dystopia-Records: { ^ https://youtu.be/rhQ1oCGG6wA ^ }: ]]:
 >:[[ :for-the: [[ Ø: { ^ https://www.youtube.com/watch?v=rhQ1oCGG6wA&t=4655s ^ }: ]]:= *:[[ :🟠: [[ W⚠️RN🚫: is-with: [[ _ ]]: for-the: [[ _ ]]: ]]:= [[ _ ]]: ]]:*
 >>>
 >###
+![:CASE-ID-0x0ff4fc0e-1427f535.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1427f535.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :The Solomon Anointing (: [[ :For: Chosen: Ones: ]]: ): ]]:= { ^ https://youtu.be/F0Z0gomYDNk ^ }:
 >>>
