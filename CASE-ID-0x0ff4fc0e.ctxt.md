@@ -200,11 +200,13 @@
 >
 # :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PعQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]:
 >
+![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :What You Need To Know About This Love Situation Right Now❤ ⁇ ❤ ⁇ ❤ ⁇ ❤ ⁇: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/4Ny4ky95ZXE ^ }:
 >
 ###
 >
