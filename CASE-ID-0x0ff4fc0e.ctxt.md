@@ -237,6 +237,10 @@
 >
 ### :[[ :JUST: LOOK: is-by: YOUTH: MASS-GENOCIDE: GOING-ON: is-by: DAILY: is-with: CHICAGO: MINNEAPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHAT: EXACTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]
 >
+>![:CASE-ID-0x0ff4fc0e-20011c57.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-20011c57.png)
+>
+>#
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >`
 [[ :Ω: ]]:
