@@ -202,7 +202,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-c2389fd54f77d62e00c8b98895d2afc33dcce77c> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :What You Need To Know About This Love Situation Right Now❤ ⁇ ❤ ⁇ ❤ ⁇ ❤ ⁇: ]]:
 >
@@ -211,7 +211,7 @@
 ###
 ![:CASE-ID-0x0ff4fc0e-26a3a5fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-26a3a5fa.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-d81fdc649a83a3620cbac53c44f1acf64c81504b> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :ANOTHER ONE BITES THE DUST JUSTICE IS SERVING A SERIOUS SPIRITUAL ASS WHOOPIN' ON A KARMIC PLATER⚖️: ]]:
 >
@@ -225,10 +225,13 @@
 >
 :is-with: { ^ https://youtu.be/8rtjKM6niH8 ^ }:
 >
+
+:[[ :for-the: [[ Ø: { ^ <qomm-d81fdc649a83a3620cbac53c44f1acf64c81504b> ^ }: ]]:= [[ _ ]]: ]]:
+>
 >## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
+>`
 [[ :Ω: ]]:
 >
 :is-with: { ^ Δ ^ }:
