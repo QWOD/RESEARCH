@@ -198,7 +198,7 @@
 >
 :is-with: { ^ https://youtu.be/PcIJeAub74s ^ }:
 >
-# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PeQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]:
+# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PعQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
