@@ -250,7 +250,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-a84fd4c6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a84fd4c6.png)
 >
-:[[ :WHO-ELSE: is-with: complicit: is-by: covering-up-extreme-human-rights-abuse: ANY: ALL: OTHER: social: MEDIA: PLATFORMS: ANYWHERE: EVER: is-by: [[ _ ]]: ]]:
+:[[ :WHΩM-ELSE: is-with: complicit: is-by: cΩvering-up-extreme-humΔn-rights-Δbuse: ΔNY: ΔLL: ΩTHER: sΩciΔl: MEDIΔ: PLΔTFΩRMS: ΔNYWHERE: EVER: is-by: [[ _ ]]: ]]:
 >
 ###
 >
