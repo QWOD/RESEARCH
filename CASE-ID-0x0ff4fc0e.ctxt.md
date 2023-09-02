@@ -295,7 +295,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5e592a2bc3b638eb1c57a5d44ec84b2cf825c3f7> ^ }: ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-efb72eeb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-efb72eeb.png)
 >
