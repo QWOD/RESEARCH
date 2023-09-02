@@ -167,7 +167,7 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-ff20c37bc65954d8bc597b1dc333f904f242ff7c> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >>>
 >#
-![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
+>![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 #
 >>>
 # :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }:
