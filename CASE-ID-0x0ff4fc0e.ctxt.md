@@ -167,6 +167,7 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-ff20c37bc65954d8bc597b1dc333f904f242ff7c> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >>>
 >#
+![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 #
 >>>
 # :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }:
@@ -176,7 +177,7 @@
 >>>
 ![:CASE-ID-0x0ff4fc0e-50bfc72c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-50bfc72c.png)
 >>>
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-4d02a8fbfeb077f82fdf7c7537740428251009c3> ^ }: ]]:= TRUE: ]]:
 >>>
 [[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔce: is-by: single: fΩr-the: [[ CΩSMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
 >>>
