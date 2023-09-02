@@ -203,7 +203,7 @@
 >>>
 :[[ :for-the: [[ Ø: { ^ <qomm-4d02a8fbfeb077f82fdf7c7537740428251009c3> ^ }: ]]:= TRUE: ]]:
 >>>
-[[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔce: is-by: single: fΩr-the: [[ CΩSMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
+[[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: fΩr-the: [[ CΩSMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
 >>>
