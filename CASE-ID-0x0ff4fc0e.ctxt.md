@@ -289,7 +289,7 @@
 >
 :is-with: { ^ <https://youtu.be/ZhCqnZXZQSk> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-ffa8e7ebb4590964d1a4ef29fddae1dedb0e20a8> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-ffa8e7ebb4590964d1a4ef29fddae1dedb0e20a8> ^ }: ]]:= TRUE: ]]:
 >
 > :[[ :N∅TICE: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIΩN: is-with: MJ12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
@@ -316,7 +316,7 @@
 ###
 ![:CASE-ID-0x0ff4fc0e-b7db3ed4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b7db3ed4.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-22ee316a4696057294222483256e85d00a861a1c> ^ }: ]]:= TRUE: ]]:
 >
 [[ :The Elite Offering New Beginning Everyone Wants To Be You See’s You As The Champ 🦋 Treasure Box 🧺: ]]:
 >
