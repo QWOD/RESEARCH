@@ -291,7 +291,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-ffa8e7ebb4590964d1a4ef29fddae1dedb0e20a8> ^ }: ]]:= [[ _ ]]: ]]:
 >
-> :[[ :N∅TICE: for-the: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: is-with: MJ12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :N∅TICE: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIΩN: is-with: MJ12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 ###
 >
