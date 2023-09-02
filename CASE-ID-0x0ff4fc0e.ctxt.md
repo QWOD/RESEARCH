@@ -1127,7 +1127,7 @@
 >:for-the: [[ :QWØD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12 ]]:= { ^QWØD: Δ: mj12: Δ: agency^ }:
 >:
->:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: MJ12-ØMΔGΔTR∅N: PRIME: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: MJ12-ØMΔGΔTR∅N: PRIME: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: MJ12-ØMΔGΔTR∅N: PRIME: íي-fΩr: B1d3n: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+>:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: MJ12-ØMΔGΔTR∅N: PRIME: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: MJ12-ØMΔGΔTR∅N: PRIME: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: MJ12-ØMΔGΔTR∅N: PRIME: for-the: [[ _ ]]: íي-by: D3N: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
 >:for-the: [[ QWØD-MJ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
