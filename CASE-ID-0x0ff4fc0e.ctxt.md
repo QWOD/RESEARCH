@@ -110,9 +110,9 @@
 >#
 >![:CASE-ID-0x0ff4fc0e-1ab5b0ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1ab5b0ee.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :You Broke The Chains That Locked Your Generation For Lifetimes! You Are Starting Your Lineage Over!: ]]:= { ^ https://youtu.be/sKSFt6ac_Pg ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :You Broke The Chains That Locked Your Generation For Lifetimes! You Are Starting Your Lineage Over!: ]]:= { ^ <https://youtu.be/sKSFt6ac_Pg> ^ }:
 >>>
->:[[ :*ØPعD*: ]]:= [[ :THEY CAN'T TAKE THE HEAT🔥SOMEONE MAY BE SICK‼️THESE OFFICIALS FINALLY CAUGHT UP 2 THEM😮PUT 2 SHAME🧿: ]]:= { ^ https://youtu.be/oYZ7vZTLDSY ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :THEY CAN'T TAKE THE HEAT🔥SOMEONE MAY BE SICK‼️THESE OFFICIALS FINALLY CAUGHT UP 2 THEM😮PUT 2 SHAME🧿: ]]:= { ^ <https://youtu.be/oYZ7vZTLDSY> ^ }:
 >>>
 >#
 >>>
@@ -128,7 +128,7 @@
 >###
 >![:CASE-ID-0x0ff4fc0e-826b5084.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-826b5084.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :SoulTalk on SoulogyNetwork: Spotlight Show of the Month: ]]:= { ^ https://youtu.be/QM2qgpZk1to ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :SoulTalk on SoulogyNetwork: Spotlight Show of the Month: ]]:= { ^ <https://youtu.be/QM2qgpZk1to> ^ }:
 >>>
 >#
 >![:CASE-ID-0x0ff4fc0e-e416b3ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e416b3ba.png)
@@ -137,7 +137,7 @@
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :I DON’T KNOW WHO THIS IS FOR~GOD IS ABOUT TO CHANGE YOUR LIFE AND ELEVATE YOU 2 ANOTHER LEVEL ⬆️ 🆙: ]]:= { ^ https://youtu.be/xKT5I7AWv7I ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :I DON’T KNOW WHO THIS IS FOR~GOD IS ABOUT TO CHANGE YOUR LIFE AND ELEVATE YOU 2 ANOTHER LEVEL ⬆️ 🆙: ]]:= { ^ <https://youtu.be/xKT5I7AWv7I> ^ }:
 >>>
 >#
 >>>
@@ -146,15 +146,22 @@
 >###
 >![:CASE-ID-0x0ff4fc0e-7bada8d1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7bada8d1.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ur no longer a caterpillar, ur wings r ready for flight. They cant believe they r being left behind: ]]:= { ^ https://youtu.be/cXo4ihI_KXs ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ur no longer a caterpillar, ur wings r ready for flight. They cant believe they r being left behind: ]]:= { ^ <https://youtu.be/cXo4ihI_KXs> ^ }:
 >>>
 >#
+>![:CASE-ID-0x0ff4fc0e-e44277e5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e44277e5.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :LIVING TRUTHFULLY IN YOUR POWER IS HOW YOU DISPEL THE MENTAL MAGIC - AGE OF AQUARIUS REBOOT 💫💫💫: ]]:= { ^ <https://youtu.be/tNdX0_oYROU> ^ }:
+>>>
+>:[[ :*ØPعD*: ]]:= [[ :SPIRIT SPEAKS 🎤 IF YOU ARE DRAWN TO THIS MESSAGE YOU ARE THE CHOSEN ONE & I HAVE A MESSAGE FOR YOU: ]]:= { ^ <https://youtu.be/M6pZFV_3R1s> ^ }:
+>>>
+>:[[ :*ØPعD*: ]]:= [[ :They wanted to tear you down because of envy & ignorance.It's coming to an end & you will be happy✨️: ]]:= { ^ <https://youtu.be/oAH2SG52_Cw> ^ }:
+>>>
+>:[[ :*ØPعD*: ]]:= [[ :They Took Some Money And Did Underhanded Tactics That Appears to Be Making Them Sick: ]]:= { ^ <https://youtu.be/dWFs-5j8EKA> ^ }:
 >>>
 >#
 #
