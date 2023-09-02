@@ -244,7 +244,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-d078810d1045421d5ba5823b5d9d637050605719> ^ }: ]]:= TRUE: ]]:
 >`
-[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
+[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΩRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
 >
 ###
 >
