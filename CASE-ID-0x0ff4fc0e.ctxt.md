@@ -299,7 +299,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-efb72eeb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-efb72eeb.png)
 >
-[[ :🌞 THIS #KARMIC GROUP IS REALIZING YOU ARE A CHILD OF A BEAST👀💥…THERE IS NO DEFEATING YOU 😮‍💨⭐️: ]]:
+[[ :🌞 THIS :[[ _: KARMIC ]]: GROUP IS REALIZING YOU ARE A CHILD OF A BEAST👀💥…THERE IS NO DEFEATING YOU 😮‍💨⭐️: ]]:
 >
 :is-with: { ^ https://youtu.be/qaXxfBmiDWs ^ }:
 >
