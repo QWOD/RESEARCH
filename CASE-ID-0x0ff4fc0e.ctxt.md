@@ -314,12 +314,13 @@
 :is-with: { ^ https://youtu.be/mRnZYNBz1eA ^ }:
 >
 ###
+![:CASE-ID-0x0ff4fc0e-b7db3ed4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b7db3ed4.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :The Elite Offering New Beginning Everyone Wants To Be You See’s You As The Champ 🦋 Treasure Box 🧺: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Zl10DW0DIc4 ^ }:
 >
 ###
 >
