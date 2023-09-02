@@ -206,12 +206,13 @@
 [[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: fΩr-the: [[ CΩSMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
 >>>
 ###
+![:CASE-ID-0x0ff4fc0e-f13ccb8e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f13ccb8e.png)
 >>>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
-[[ :Ω: ]]:
+[[ :enemies can't steal spiritual riches + royal bloodline, trying to take on material plane: ]]:
 >>>
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/PcIJeAub74s ^ }:
 >>>
 ###
 >>>
