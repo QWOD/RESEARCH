@@ -258,6 +258,8 @@
 >
 :[[ :for-the: [[ people: versus: PRAIRIE-PROPERTY-MANAGEMENT: ETC: { ^ <https://post.tribel.com/public/posts/b93a8440-49cc-11ee-a4ac-cfefa6f6e845>:<https://twitter.com/SPGSTONEBREAKER/status/1698065440319164617?s=20>:<https://github.com/QWOD/DISCLOSURE/blob/%CE%94-%C3%AD%D9%8A-by-%CE%94/PRAIRIE-PROPERTY-MANAGEMENT-MPS-UTILITY-CITY-OF-MOORHEAD-STATE-OF-MINNESOTA.ctxt> ^ }: ]]: ]]:
 >
+:[[ :for-the: [[ Ø: { ^ <qomm-4cffb6acced9b2886bed5d697c14bc02feeb7bf4> ^ }: ]]:= TRUE: ]]:
+>
 ###
 ![:CASE-ID-0x0ff4fc0e-21743129.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-21743129.png)
 >
@@ -265,9 +267,10 @@
 >
 :is-with: { ^ Δ ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-4cffb6acced9b2886bed5d697c14bc02feeb7bf4> ^ }: ]]:= TRUE: ]]:
->
 ###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
 ![:CASE-ID-0x0ff4fc0e-fd73bad3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fd73bad3.png)
 >
 [[ :Binded 2 everything they attached 2u..court cases, sickness, CPS, even d**th..u vibrate 2 high: ]]:
