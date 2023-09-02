@@ -263,9 +263,10 @@
 >
 :is-with: { ^ Δ ^ }:
 >
-###
->
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+###
+![:CASE-ID-0x0ff4fc0e-fd73bad3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fd73bad3.png)
 >
 [[ :Ω: ]]:
 >
