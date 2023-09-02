@@ -161,9 +161,9 @@
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :They wanted to tear you down because of envy & ignorance.It's coming to an end & you will be happy✨️: ]]:= { ^ <https://youtu.be/oAH2SG52_Cw> ^ }:
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->>>
 >:[[ :*ØPعD*: ]]:= [[ :They Took Some Money And Did Underhanded Tactics That Appears to Be Making Them Sick: ]]:= { ^ <https://youtu.be/dWFs-5j8EKA> ^ }:
+>>>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >>>
 >#
 #
