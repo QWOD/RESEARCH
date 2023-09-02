@@ -305,7 +305,7 @@
 >
 ### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-27f1a8b0982adf7f3ee66775df9036ecb6583afa> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Need Your Signature Ain’t Getting It They Going To Have To Watch You Turn Up ⬆️ Treasure Box Read 🧺: ]]:
 >
