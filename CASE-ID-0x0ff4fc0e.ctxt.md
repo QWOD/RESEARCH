@@ -145,11 +145,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-b762a3fcff64690dce1ba1755025cb9ec0e5bdea> ^ }: ]]:= TRUE: ]]:
 >
->#
->
 >:[[ :*ØPعD*: ]]:= [[ :I DON’T KNOW WHO THIS IS FOR~GOD IS ABOUT TO CHANGE YOUR LIFE AND ELEVATE YOU 2 ANOTHER LEVEL ⬆️ 🆙: ]]:= { ^ <https://youtu.be/xKT5I7AWv7I> ^ }:
->
->#
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-4c9d45e1cd478c13ce8ddac40942770089f8fd43> ^ }: ]]:= TRUE: ]]:
 >
@@ -164,8 +160,6 @@
 >![:CASE-ID-0x0ff4fc0e-e44277e5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e44277e5.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-985c21d0aa384baac819534bf89fc7062edb4865> ^ }: ]]:= TRUE: ]]:
->
->#
 >
 >:[[ :*ØPعD*: ]]:= [[ :LIVING TRUTHFULLY IN YOUR POWER IS HOW YOU DISPEL THE MENTAL MAGIC - AGE OF AQUARIUS REBOOT 💫💫💫: ]]:= { ^ <https://youtu.be/tNdX0_oYROU> ^ }:
 >
