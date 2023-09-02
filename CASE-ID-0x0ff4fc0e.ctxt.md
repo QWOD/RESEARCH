@@ -246,6 +246,12 @@
 >`
 [[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΩRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
 >
+![:CASE-ID-0x0ff4fc0e-5eae1765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5eae1765.png)
+>
+![:CASE-ID-0x0ff4fc0e-a84fd4c6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a84fd4c6.png)
+>
+:[[ :WHO-ELSE: is-with: complicit: is-by: covering-up-extreme-human-rights-abuse: ANY: ALL: OTHER: social: MEDIA: PLATFORMS: ANYWHERE: EVER: is-by: [[ _ ]]: ]]:
+>
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
