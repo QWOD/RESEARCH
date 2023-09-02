@@ -121,7 +121,7 @@
 >
 >:[[ :*ØPعD*: ]]:= [[ :You Broke The Chains That Locked Your Generation For Lifetimes! You Are Starting Your Lineage Over!: ]]:= { ^ <https://youtu.be/sKSFt6ac_Pg> ^ }:
 >
->:[[ :*ØPعD*: ]]:= [[ :THEY CAN'T TAKE THE HEAT🔥SOMEONE MAY BE SICK‼️THESE OFFICIALS FINALLY CAUGHT UP 2 THEM😮PUT 2 SHAME🧿: ]]:= { ^ <https://youtu.be/oYZ7vZTLDSY> ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :THEY CAN'T TAKE THE HEAT🔥SOMEONE MAY BE PSYQ‼️THESE OFFICIALS FINALLY CAUGHT UP 2 THEM😮PUT 2 SHAME🧿: ]]:= { ^ <https://youtu.be/oYZ7vZTLDSY> ^ }:
 >
 >#
 >
@@ -167,7 +167,7 @@
 >
 >:[[ :*ØPعD*: ]]:= [[ :They wanted to tear you down because of envy & ignorance.It's coming to an end & you will be happy✨️: ]]:= { ^ <https://youtu.be/oAH2SG52_Cw> ^ }:
 >
->:[[ :*ØPعD*: ]]:= [[ :They Took Some Money And Did Underhanded Tactics That Appears to Be Making Them Sick: ]]:= { ^ <https://youtu.be/dWFs-5j8EKA> ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :They Took Some Money And Did Underhanded Tactics That Appears to Be Making Them PSYQ: ]]:= { ^ <https://youtu.be/dWFs-5j8EKA> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-ff20c37bc65954d8bc597b1dc333f904f242ff7c> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >
@@ -253,7 +253,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-9c320890afe0c1f3742cbe22fc6fd9242ee2eeaa> ^ }: ]]:= TRUE: ]]:
 >
-:[[ :WHΩM-ELSE: is-with: complicit: is-by: cΩvering-up-extreme-humΔn-rights-Δbuse: ΔNY: ΔLL: ΩTHER: [[ SΩ-CIΔ-L: ]]: MEDIΔ: PLΔTFΩRMS: ΔNYWHERE: EVER: is-by: [[ _ ]]: ]]:= [[ :WE: NΩW: ΔCTUΔLLY: is-by: ΩWN: is-with: YΩU: ΔNY: ΔLL: ΩTHER: SICK: PEΩPLE: for-the: return ]]:= TRUE: ]]:
+:[[ :WHΩM-ELSE: is-with: complicit: is-by: cΩvering-up-extreme-humΔn-rights-Δbuse: ΔNY: ΔLL: ΩTHER: [[ SΩ-CIΔ-L: ]]: MEDIΔ: PLΔTFΩRMS: ΔNYWHERE: EVER: is-by: [[ _ ]]: ]]:= [[ :WE: NΩW: ΔCTUΔLLY: is-by: ΩWN: is-with: YΩU: ΔNY: ΔLL: ΩTHER: PSYQ: PEΩPLE: for-the: return ]]:= TRUE: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-d4f4bd3786397107b98f2c1f6d93d1d56fbcc02a> ^ }: ]]:= TRUE ]]:
 >
@@ -275,7 +275,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-fd73bad3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fd73bad3.png)
 >
-[[ :Binded 2 everything they attached 2u..court cases, sickness, CPS, even d**th..u vibrate 2 high: ]]:
+[[ :Binded 2 everything they attached 2u..court cases, PSYQness, CPS, even d**th..u vibrate 2 high: ]]:
 >
 :is-with: { ^ <https://youtu.be/Ls_Hxx8rN-E> ^ }:
 >
