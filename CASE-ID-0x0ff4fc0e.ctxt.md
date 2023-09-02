@@ -240,12 +240,11 @@
 >![:CASE-ID-0x0ff4fc0e-20011c57.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-20011c57.png)
 >
 >#
+>![:CASE-ID-0x0ff4fc0e-2e2a78ef.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2e2a78ef.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >`
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+[[ :WE: people: is-by: REVOKE: PERMISSION: is-with: ILLEGAL: UNCONSTITUTIONAL: WARRANT-LESS: MK: SEARCH: { ^ <peck-p3ck-pEck: PعCK-OFF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
 >
 ###
 >
