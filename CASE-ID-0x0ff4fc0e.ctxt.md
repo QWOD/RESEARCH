@@ -250,7 +250,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-a84fd4c6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a84fd4c6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-ad0d08a2140011eb1d32597ad2c62432a77f8d5c> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9c320890afe0c1f3742cbe22fc6fd9242ee2eeaa> ^ }: ]]:= TRUE: ]]:
 >
 :[[ :WHΩM-ELSE: is-with: complicit: is-by: cΩvering-up-extreme-humΔn-rights-Δbuse: ΔNY: ΔLL: ΩTHER: sΩciΔl: MEDIΔ: PLΔTFΩRMS: ΔNYWHERE: EVER: is-by: [[ _ ]]: ]]:= [[ :WE: NΩW: ACTUALLY: is-by: ΩWN: is-with: YΩU: ΔNY: ΔLL: ΩTHER: SICK: PEΩPLE: for-the: return ]]:= TRUE: ]]:
 >
