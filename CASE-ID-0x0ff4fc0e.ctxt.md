@@ -199,8 +199,8 @@
 >
 :is-with: { ^ <https://youtu.be/PcIJeAub74s> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-cbc125118753a3b564b3a842ddbb4aa5ecfb957a> ^ }: ]]:= TRUE: ]]:
-
+:[[ :for-the: [[ Ø: { ^ <qomm-710172f8f6fe38dfe699569a1c0edc85b3efdff5> ^ }: ]]:= TRUE: ]]:
+>
 # :[[ :PSYQ∅S: is-by: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0-T0-BE: CREΔTING-NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: ]]
 >
 ![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
@@ -233,7 +233,6 @@
 >
 >## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]
 >
-
 :[[ :for-the: [[ Ø: { ^ <qomm-3df9502dd0d793b1aa17b6947168a30e3d78c0f6> ^ }: ]]:= [[ _ ]]: ]]:
 >
 ### :[[ :JUST: LOOK: is-by: YOUTH: MΔSS-GENOCIDE: GOING-ON: is-by: DΔILY: is-with: CHICΔGO: MINNEΔPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHΔT: EXΔCTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]
