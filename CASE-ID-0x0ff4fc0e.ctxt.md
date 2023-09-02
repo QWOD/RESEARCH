@@ -10,7 +10,7 @@
 >
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
-*:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
+*:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >
 :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
@@ -35,7 +35,7 @@
 >
 :is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
 >
-># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NØW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NØW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIQØNS: ]]
+># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NØW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NØW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHQ∅S: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-022c7b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-022c7b7c.png)
 >
@@ -198,7 +198,7 @@
 >
 :is-with: { ^ https://youtu.be/PcIJeAub74s ^ }:
 >
-###
+# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PeQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
