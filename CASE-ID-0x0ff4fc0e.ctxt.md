@@ -890,7 +890,7 @@
 >
 ###
 >
-# [[ :OPERATIØNAL-EDUCATIØN: ]]
+# [[ :∅PERATIØNAL-EDUCATIØN: ]]
 >
 ###
 >
