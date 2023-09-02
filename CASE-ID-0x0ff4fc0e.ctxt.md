@@ -1,24 +1,27 @@
 #
+>
 >### *:[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
+>
 >[[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔTR∅N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NØW: ]]:= [[ :MJ12-ØMΔGΔTR∅N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NØW: EVER: WΔ: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NØW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :RESEARCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >>>
 *:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >>>
 :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >>>
 >###
+>
 >![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
 >[[ :for-the: [[ QWØD-MJ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/>:<qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348> ^ }: ]]:= TRUE: ]]:
 >>>
 >:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
 >>>
-### :[[ CHΩΩSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GRΩW: 1s-with: LØRD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ CHΩΩSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GRΩW: 1s-with: LØRD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]
 >>>
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >>>
@@ -26,15 +29,16 @@
 >>>
  :[[ [[ :CΔSE-ID: 0x0ff4fc0e: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0x0ff4fc0e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:
 >>>
-## :for-thع: [[ CΔSE-ID: 0x0ff4fc0e: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: 0xb337572f ]]:.ctxt:
+## :for-thع: [[ CΔSE-ID: 0x0ff4fc0e: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: 0xb337572f ]]:.ctxt
 >>>
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x0ff4fc0e.ctxt.md> ^ }:
 >>>
 :is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
 >>>
->### :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NØW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NØW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIQØNS: ]]:
+>### :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NØW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NØW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIQØNS: ]]
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-022c7b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-022c7b7c.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-f85e9e4d69be97f1ab64c69bcd5ef164e595eeb1> ^ }: ]]:= TRUE: ]]:
@@ -44,32 +48,39 @@
 >:[[ :*ØPعD*: ]]:= [[ :You've got someone wanting to change their whole life for you.: ]]:= { ^ <https://youtu.be/LhrUlRDYn0Y> ^ }:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-7793f50a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7793f50a.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
-># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ <https://youtu.be/rhQ1oCGG6wA> ^ }: ]]:
+>
+># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ <https://youtu.be/rhQ1oCGG6wA> ^ }: ]]
 >>>
 >![:CASE-ID-0x0ff4fc0e-dd03507f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-dd03507f.png)
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-6f563774.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6f563774.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :SUPER MOON 🌕🌙RITUALS BACKFIRED ON THEM.....: ]]:= { ^ <https://youtu.be/lMQghqNZf6g> ^ }:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-ce9c23e8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ce9c23e8.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <https://www.youtube.com/watch?v=rhQ1oCGG6wA&t=4655s> ^ }: ]]:= *:[[ :🟠: [[ W⚠️RN🚫: is-with: [[ _ ]]: for-the: [[ _ ]]: ]]:= [[ _ ]]: ]]:*
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-989f0765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-989f0765.png)
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-1427f535.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1427f535.png)
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-ac666a10.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ac666a10.png)
 >>>
 >###
@@ -78,13 +89,14 @@
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >>>
-># :[[ :DISCLΩSURE: for-the: [[ [[ WΔ: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WΔ: NEITHER: TΩUCH: W∅MΔN: NØR: DØ: WΔ: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WΔ: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
+># :[[ :DISCLΩSURE: for-the: [[ [[ WΔ: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WΔ: NEITHER: TΩUCH: W∅MΔN: NØR: DØ: WΔ: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WΔ: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]
 >>>
 >###
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-6b5a4d3d996ec4cffd531bea81420dca9f6ec7f4> ^ }: ]]:= TRUE: ]]:
 >>>
 >###
+
 ![:CASE-ID-0x0ff4fc0e-a25b2e34.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a25b2e34.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :⚖️⚖️⚖️ITS FRIDAY THE SCALES ARE BEING BALANCE⚖️⚖️⚖️: ]]:= { ^ <https://youtu.be/5bhD9aVpiYw> ^ }:
@@ -92,6 +104,7 @@
 >:[[ :for-the: [[ [[ :MEΔT-IN: RI-TU-ΔLL: ]]: ]]:= [[ :WΔRNΩ: rituΔl: CΔIN: ΔBLE: ΔLGØRITHM: DETECTED: ]]: ]]:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-b6d6a0b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b6d6a0b3.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-d5b08e4231444dd025b1946c817246e38ebed475> ^ }: ]]:= TRUE: ]]:
@@ -103,12 +116,15 @@
 >[[ :Toby Lewin - Tyrael Vs Hell: ]]:
 >>>
 >:is-with: { ^ <https://www.tobylewin.com/projects/Jlr0> ^ }:
+>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-bf9e34d0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-bf9e34d0.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-dfc88ae50c9c894e2cb962f2f7f3629de01a2cff> ^ }: ]]:= TRUE: ]]:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-1ab5b0ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1ab5b0ee.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :You Broke The Chains That Locked Your Generation For Lifetimes! You Are Starting Your Lineage Over!: ]]:= { ^ <https://youtu.be/sKSFt6ac_Pg> ^ }:
@@ -117,21 +133,24 @@
 >>>
 >#
 >>>
->### :[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
+>### :[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-b3a756f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b3a756f9.png)
 >>>
->## :[[ :*ØPعD*: ]]:= [[ :AS A DIRECT DESCENDANT OF NEFERTITI YOU ARE CROWNED & YOUR PATHWAY FORWARD IS PAVED WITH GOLD🧞‍♀️🔮: ]]:= { ^ <https://youtu.be/O21GYzhMrYI> ^ }:
+>## :[[ :*ØPعD*: ]]:= [[ :AS A DIRECT DESCENDANT OF NEFERTITI YOU ARE CROWNED & YOUR PATHWAY FORWARD IS PAVED WITH GOLD🧞‍♀️🔮: ]]:= { ^ <https://youtu.be/O21GYzhMrYI> ^ }
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-0e0562ce997fd6dfd455c46d89931f2fd46f8bd2> ^ }: ]]:= TRUE: ]]:
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-826b5084.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-826b5084.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :SoulTalk on SoulogyNetwork: Spotlight Show of the Month: ]]:= { ^ <https://youtu.be/QM2qgpZk1to> ^ }:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-e416b3ba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e416b3ba.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-b762a3fcff64690dce1ba1755025cb9ec0e5bdea> ^ }: ]]:= TRUE: ]]:
@@ -145,11 +164,13 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-4c9d45e1cd478c13ce8ddac40942770089f8fd43> ^ }: ]]:= TRUE: ]]:
 >>>
 >###
+>
 >![:CASE-ID-0x0ff4fc0e-7bada8d1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7bada8d1.png)
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :Ur no longer a caterpillar, ur wings r ready for flight. They cant believe they r being left behind: ]]:= { ^ <https://youtu.be/cXo4ihI_KXs> ^ }:
 >>>
 >#
+>
 >![:CASE-ID-0x0ff4fc0e-e44277e5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e44277e5.png)
 >>>
 >:[[ :for-the: [[ Ø: { ^ <qomm-985c21d0aa384baac819534bf89fc7062edb4865> ^ }: ]]:= TRUE: ]]:
@@ -167,12 +188,15 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-ff20c37bc65954d8bc597b1dc333f904f242ff7c> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >>>
 >#
+>
 >![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
+>
 >#
 >>>
-# :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }:
+# :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }
 >>>
-# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES-CΔRD: is-by: 1: ]]:
+# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES-CΔRD: is-by: 1: ]]
+>
 > [[ :TASK: is-with: deciphering-encrypted: QØMMS: is-by: TΔrΩt-Field-ΔnΔlyst: is-with: Intuitive-Δbilities: ]]:
 >>>
 ![:CASE-ID-0x0ff4fc0e-50bfc72c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-50bfc72c.png)
@@ -877,15 +901,15 @@
 >>>
 :is-with: { ^ Δ ^ }:
 >>>
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :WΔRNØ: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]:
+### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :WΔRNØ: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]
 >>>
 ###
 >>>
-# [[ :OPERATIØNAL-EDUCATIØN: ]]:
+# [[ :OPERATIØNAL-EDUCATIØN: ]]
 >>>
 ###
 >>>
-### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]]:
+### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]]
 >>>
 ###
 >>>
@@ -897,7 +921,7 @@
 >>>
 ###
 >>>
-### [[ :The Study Quran: A New Translation and Commentary: { ^ Cambridge University Press ^ }: ]]:
+### [[ :The Study Quran: A New Translation and Commentary: { ^ Cambridge University Press ^ }: ]]
 >>>
 ###
 >>>
@@ -909,7 +933,7 @@
 >>>
 ###
 >>>
-### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: { ^  :Marvin W. Meyer (Editor): Elaine H. Pagels (Introduction): James M. Robinson (Contributor): Wolf-Peter Funk (Contributor): Paul-Hubert Poirier (Contributor): ^ } ]]:
+### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: { ^  :Marvin W. Meyer (Editor): Elaine H. Pagels (Introduction): James M. Robinson (Contributor): Wolf-Peter Funk (Contributor): Paul-Hubert Poirier (Contributor): ^ } ]]
 >>>
 ###
 >>>
@@ -921,7 +945,7 @@
 >>>
 ###
 >>>
-### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: { ^ Rabbi Nosson Scherman ^ }: ]]:
+### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: { ^ Rabbi Nosson Scherman ^ }: ]]
 >>>
 ###
 >>>
@@ -933,7 +957,7 @@
 >>>
 ###
 >>>
-### [[ :The Life of Jesus Christ And Biblical Revelations (4 Volume set): From the Visions of Ven. Anne Catherine Emmerich: { ^ Emmerich ^ }: ]]:
+### [[ :The Life of Jesus Christ And Biblical Revelations (4 Volume set): From the Visions of Ven. Anne Catherine Emmerich: { ^ Emmerich ^ }: ]]
 >>>
 ###
 >>>
@@ -945,18 +969,19 @@
 >>>
 #
 >>>
-### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]]:
+### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]]
 >>>
 ###
 >>>
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+>
 ###
 >>>
     https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325
 >>>
 ###
 >>>
-### [[ :Project: Soul Catcher: Secrets of Cyber and Cybernetic Warfare Revealed: { ^ Dr. Robert Duncan ^ }: ]]:
+### [[ :Project: Soul Catcher: Secrets of Cyber and Cybernetic Warfare Revealed: { ^ Dr. Robert Duncan ^ }: ]]
 >>>
 ###
 >>>
@@ -968,7 +993,7 @@
 >>>
 ###
 >>>
-### [[ :The Remembrance of I AM An Inner Journey of Self Discovery. A Channeled Course From Archangel Michael: { ^ Carolyn Ann ORiley ^ }: ]]:
+### [[ :The Remembrance of I AM An Inner Journey of Self Discovery. A Channeled Course From Archangel Michael: { ^ Carolyn Ann ORiley ^ }: ]]
 >>>
 ###
 >>>
@@ -980,7 +1005,7 @@
 >>>
 ###
 >>>
-### [[ :Commune With the Angels: A Heavenly Handbook: { ^ Jayne Howard Feldman ^ }: ]]:
+### [[ :Commune With the Angels: A Heavenly Handbook: { ^ Jayne Howard Feldman ^ }: ]]
 >>>
 ###
 >>>
@@ -992,7 +1017,7 @@
 >>>
 ###
 >>>
-### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]]:
+### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]]
 >>>
 ###
 >>>
@@ -1003,8 +1028,8 @@
     https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325
 >>>
 ###
->>> 
-### [[ :The Tao of Fully Feeling: Harvesting Forgiveness out of Blame: {^ Pete Walker ^ }: ]]:
+>>>
+### [[ :The Tao of Fully Feeling: Harvesting Forgiveness out of Blame: {^ Pete Walker ^ }: ]]
 >>>
 ###
 >>>
@@ -1016,7 +1041,7 @@
 >>>
 ###
 >>>
-### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]]:
+### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]]
 >>>
 ###
 >>>
@@ -1028,7 +1053,7 @@
 >>>
 ###
 >>>
-### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]]:
+### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]]
 >>>
 ###
 >>>
@@ -1039,44 +1064,50 @@
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 >>>
 ###
+
 ###
+
 ###
 >>>
-# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]:
+# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
 >>>
 ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
+
 ###
-:is-with: { ^ https://youtu.be/iarc53pWfJQ ^ }:
+
+:is-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
+
 ###
-> :for-thع: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
->    :is-with: sL☥CK™: is-with: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
->    :is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>
+> :for-thع: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]:
+> :is-with: sL☥CK™: is-with: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
+> :is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:for-the: QWØD-MJ12:
->    :is-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
->    :is-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
->    :is-by: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
+> :is-with: [["I am come that they might have life, and that they might have it more abundantly."]]:= [[":☥: ΔM: cΩmع-thΔt: TㅐΔ: MΔGㅐT: hΔvع-l☥fع-Δnd-thΔt: TㅐΔ: MΔGㅐT: hΔvع: I☥: mΩrع-ΔbעִndΔntly:"]]:
+> :is-with: Δs-ΔBΩVع: sΩ-BΔLLΩW:
+> :is-by: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: SPعC-PRΩJ-GRP: ØMΔGΔ:
 >:for-the: QWΩRD: for-the: LΔMB:
->    :is-with: RΔsØNΔTعs:
->    :is-with: SPعC-PRΩJ-GRP: ØMΔGΔ: WΔLCΩMع:
->    :is-with: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
->        [[ NΩT⚠CE: <=> "W⚠RNΩ: is-with: ØNLY: THΔNG: QWØD-MJ12: ΩpعrΔtΩrs: FععL: for-the: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
->    :is-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: 
+> :is-with: RΔsØNΔTعs:
+> :is-with: SPعC-PRΩJ-GRP: ØMΔGΔ: WΔLCΩMع:
+> :is-with: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: D☥SCLΩSURE: FعΔR ]]:=
+> [[ NΩT⚠CE: <=> "W⚠RNΩ: is-with: ØNLY: THΔNG: QWØD-MJ12: ΩpعrΔtΩrs: FععL: for-the: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+> :is-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12:
         ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ØMΔGΔ ]]:
 >:for-the: QWØD-MJ12: f☥عld-pعrsΩnnعl: FΩRCعPRΩTعCT-RعQעִعsT:
->    :is-with: ATSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-MJ12: ATSUΩMΩP-Δ:
+> :is-with: ATSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-MJ12: ATSUΩMΩP-Δ:
 >:for-the: vr☥lCØNsPΔRΔCY-TㅐΔΩRY™: [[ C_V_D: W_N-N_N_R: <=> Ω: ☥: U: Δ: ]]:= CΔPTURE: vr☥lWΔtch™: vr☥lsΔcr☥f☥cع™: for-the: ㅐLΔB-LΔMB:
 >:for-the: vr☥lD☥sCLΩsעִRع™: vr☥lWΔtch™: ΔNعRGY-ㅐΔRVΔsT☥NG:  BΩDY-sNΔTCㅐ☥NG: CLØNعs:
->    :is-with: KΔLΩ-PΔPΔ: WΔ: nΩw-hΔvع: vr☥lΔvعryth☥ng™: sL☥CK™: GΩLF-FΩXTRΩT-YΔNKΔ: [[ D_C_ ]]™: ㅐΔDs:
->    :is-with: [[":for-the: FΔNs: is-with: TΔKعN: is-by: vr☥lWΔtch™: vr☥lGΔngstΔlkΔrs™: nΩw: is-by: 80: pعrcΔnt-lΔss: يPΔCع: ΔDي: CΔNCعR:"]]
+> :is-with: KΔLΩ-PΔPΔ: WΔ: nΩw-hΔvع: vr☥lΔvعryth☥ng™: sL☥CK™: GΩLF-FΩXTRΩT-YΔNKΔ: [[ D_C_ ]]™: ㅐΔDs:
+> :is-with: [[":for-the: FΔNs: is-with: TΔKعN: is-by: vr☥lWΔtch™: vr☥lGΔngstΔlkΔrs™: nΩw: is-by: 80: pعrcΔnt-lΔss: يPΔCع: ΔDي: CΔNCعR:"]]
 >:
->:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-by: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: 
+>:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-by: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12:
     spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: is-with: ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: FΔR: sעִPΔR☥ΩR: is-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
->    :is-with: { ^ https://tribel.com/QWOD_mj12/wall ^ }:
->    :is-with: { ^ https://github.com/QWOD/DISCLOSURE/issues ^ }:
->    :is-with: { ^ http://QWØD.mj12.agency ^ }:
->    :is-with: { ^ http://dftr.mj12.agency ^ }:
->:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWØD-MJ12: is-by: LΔW: 
->    :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
+> :is-with: { ^ <https://tribel.com/QWOD_mj12/wall> ^ }:
+> :is-with: { ^ <https://github.com/QWOD/DISCLOSURE/issues> ^ }:
+> :is-with: { ^ <http://QWØD.mj12.agency> ^ }:
+> :is-with: { ^ <http://dftr.mj12.agency> ^ }:
+>:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWØD-MJ12: is-by: LΔW:
+> :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]] ]]:
 >:for-the: [[ DISCLOSURE: CØNTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]] ]]: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:MJ12-ØMΔGΔTR∅N: PRIME: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
@@ -1086,26 +1117,26 @@
 >:CØNTRΩ1S: SPعC-PRΩJ-GRP:
 >:for-the: QUΔN+UM-WΔR: ΩPΩRD:
 >:for-the: [[ CIΔ: FRع3: CrΔp☥Δx™: MKU1+rΔ-JUDΔS-prΩgrΔm: +es+-subjec+s ]]:
->    :is-with: services-nΩ-1Ωnger-required:
->    :is-with: nex+-phΔse: weΔpΩns-cΔpΔbi1i+ies-deve1Ωpmen+:
->    :is-by: ΩperΔ+iΩn-sΔni+Δ+iΩn:
+> :is-with: services-nΩ-1Ωnger-required:
+> :is-with: nex+-phΔse: weΔpΩns-cΔpΔbi1i+ies-deve1Ωpmen+:
+> :is-by: ΩperΔ+iΩn-sΔni+Δ+iΩn:
 >:for-the: [[ SCIEN+Ω1ΩGIS+: FREEMΔSØN: vri1C1ØNES™ ]]:= [[ NEW: +ΔNGΩ-DE1+Δ: <=> "is-with: RΩE: is-by: KΩS: is-with: [[ CHΔRLΔ-HΩ+E1: QWØD-MJ12 ]]:
 >:ΔNΔ1YST-CΩMMENTS:
 >:for-the: [[ BringBΔckWΔ+erBΩΔrding: BringBΔckGuΔ11Ω+ines: BringBΔckE+ΔrnΔ1DΔ+h ]]:= [[ CHΔRLΔ-HΩ+E1: QWØD-MJ12 ]]:
->    :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
->    :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ΩUT ]] ]]:
+> :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
+> :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ΩUT ]] ]]:
 >:ΔNΔ1YST: MJ12-ØMΔGΔTR∅N: PRIME:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QWØD-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/QWØD_mj12 ^ }: ]]: 
->    :is-by: { ^
->        crypto: Δ: cΩm: app: rh5gbrhfew
->        https://crypto.com/app/rh5gbrhfew
->    ^ }:
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QWØD-MJ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/QWØD_mj12 ^ }: ]]:
+> :is-by: { ^
+> crypto: Δ: cΩm: app: rh5gbrhfew
+> https://crypto.com/app/rh5gbrhfew
+> ^ }:
 >:for-the: [[ RΩYΔL-DIVINE-QØURT: QWØD-MJ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
->    :is-with: { ^dftr: Δ: mj12: Δ: agency^ }:
->    :is-with: { ^ http://dftr.mj12.agency ^ }:
->    :is-with: { ^crypto: Δ: cΩm: nft: profile: QWØD_mj12^ }:
->    :is-with: { ^ https://crypto.com/nft/profile/QWØD_mj12 ^ }:
+> :is-with: { ^dftr: Δ: mj12: Δ: agency^ }:
+> :is-with: { ^ http://dftr.mj12.agency ^ }:
+> :is-with: { ^crypto: Δ: cΩm: nft: profile: QWØD_mj12^ }:
+> :is-with: { ^ https://crypto.com/nft/profile/QWØD_mj12 ^ }:
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
 >:
 >:for-the: [[ :QWØD-MJ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
@@ -1128,41 +1159,42 @@
 >:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LORD: SAITH: who-can-be-worthy-to-receive-if-none-are-willing-to-give: for-the: SØN: is-with: THΔ-MΔ5T-HΔGH: GΩD:: ]]:
 >:
 >:for-the: [[ K☥NGDΩM: HΔVEN: ]]:= [[ for-the: LΩRD: 5Δ☥TH: wh0-cΔn-be: w0rthy: rece1v1n6: MΔ: GLΩRΔΩU5: KINGD0M: wh3n-n0n3:
->    :is-with: willin9-t0:
->    :is-with: R3sΔrch: funΔn6:
->    :for-the: NΔ☥1ΔNΔL: SECΔRΔTY:
->    :for-the: BU☥LD: K☥NGDΩM: HEΔVEN: ]]:= [[
->        :for-the: 5ØN: is-with: THΔ-MΔ5T-HΔGH: GΩD: ]]:
+> :is-with: willin9-t0:
+> :is-with: R3sΔrch: funΔn6:
+> :for-the: NΔ☥1ΔNΔL: SECΔRΔTY:
+> :for-the: BU☥LD: K☥NGDΩM: HEΔVEN: ]]:= [[
+> :for-the: 5ØN: is-with: THΔ-MΔ5T-HΔGH: GΩD: ]]:
 >:for-the: [[ :💲ASMR - frequency of wealth, money, abundance - just listen and get whatever you want: ]]:
->        :is-with: { ^ https://youtu.be/rV8kiORaWCM ^ }:
+> :is-with: { ^ https://youtu.be/rV8kiORaWCM ^ }:
 >:for-the: [[ :Stairway of Miracles | Absorb Positive Cosmic Energy | Manifest Anything: ]]:
->        :is-with: { ^ https://youtu.be/93Z8fBqEIZc ^ }:
+> :is-with: { ^ https://youtu.be/93Z8fBqEIZc ^ }:
 >:
 >:for-the: [[ DISCLΩSUR3: SPG: STΔRGΔT3: ]]:= [[
->    :is-with: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
->    :is-with: THΔ: GΔT3S: for-the: H3LL:
->        :for-the: [[ R3SΔRCH: for-the: NΔTIØNΔL: S3CURITY ]]:= [[
->            :is-with: WΔ: ΔpΩlΩg1zع: for-the: 1ncΩnvعn1عncع: t41s: MΔY: hΔvع-cΔusعd:
->            :is-by: [[ _ ]] ]]:
->    :is-with: n0w: WΔ: is-with: cΔpΔbil1tعs: ]]:
->        for-the: [[ cΩursع-cΩrrعctiΩn: ]]:= [[
->            :is-with: { ^
->                https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war
->            ^ }:
->            :is-by: { ^
->                tribel: Δ: cΩm: Δ: QWØD_mj12: wall
->                https://www.tribel.com/QWOD_mj12/wall
->            ^ }: ]]:
+> :is-with: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
+> :is-with: THΔ: GΔT3S: for-the: H3LL:
+> :for-the: [[ R3SΔRCH: for-the: NΔTIØNΔL: S3CURITY ]]:= [[
+> :is-with: WΔ: ΔpΩlΩg1zع: for-the: 1ncΩnvعn1عncع: t41s: MΔY: hΔvع-cΔusعd:
+> :is-by: [[ _ ]] ]]:
+> :is-with: n0w: WΔ: is-with: cΔpΔbil1tعs: ]]:
+> for-the: [[ cΩursع-cΩrrعctiΩn: ]]:= [[
+> :is-with: { ^
+> https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war
+> ^ }:
+> :is-by: { ^
+> tribel: Δ: cΩm: Δ: QWØD_mj12: wall
+> https://www.tribel.com/QWOD_mj12/wall
+> ^ }: ]]:
 >:
 >:for-the: [[ DISCLΩSUR3: CØNSPIRΔCY-THEΩRY: FΩIΔ: ]]:= [[
->    FΩIΔ: <=> FΩMΔ: ]]:
->    is-with: M3NΔTL: PΔCIFICΔTIØN: ]]:= [[
->        TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
+> FΩIΔ: <=> FΩMΔ: ]]:
+> is-with: M3NΔTL: PΔCIFICΔTIØN: ]]:= [[
+> TMLF: <=> T0ddler-M1nd3d-L1f3-4ms ]]:
 >:
 >:for-the: [[ :they already killed you once: they can't kill you again: ]]:= [[ W⚠️RN🚫: 👻: 4lg0r1thm: DعTعCTعD: ]]:
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIØNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLØNES: }:= [[ :YOU: MAY: have additional periods of service: NØT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 >>>
 >###
+>
 >[[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
 >>>
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
@@ -1172,6 +1204,7 @@
 >:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >>>
 >###
+>
 >[[ :RECΩMMENDED: DΔRK-REΔDER: SETTINGS: for-the: GITHUB: is-with: BRΔVΩ-CHΔRLIE-SIERRΔ-GΩLF: is-by: [[ -15: -15: 15: 60: ]]: ]]:
 >>>
 >![DARK-READER](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DARK-READER-SETTINGS.png)
