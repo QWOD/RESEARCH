@@ -21,7 +21,7 @@
 >
 >:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
 >
-### :[[ CHΩΩSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GRΩW: 1s-with: LØRD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:
+### :[[ CHΩΩSE: DESTINY: WISELY: ]]:= [[ :HELP-US-GRΩW: 1s-with: LØRD: G∅D: { ^ <a target="_blank" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]
 >
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >
@@ -35,7 +35,7 @@
 >
 :is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
 >
-># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHQ∅S: ]]:
+># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHQ∅S: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-022c7b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-022c7b7c.png)
 >
@@ -51,7 +51,7 @@
 >
 >#
 >
-># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ <https://youtu.be/rhQ1oCGG6wA> ^ }: ]]:
+># :[[ [[ :Spectral Shift: ]]: is-by: @: is-with: Enter-Dystopia-Records: { ^ <https://youtu.be/rhQ1oCGG6wA> ^ }: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-dd03507f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-dd03507f.png)
 >
@@ -85,7 +85,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-9b5490af1e061dffc62b94016eb18104fda19fe6> ^ }: ]]:= TRUE: ]]:
 >
-># :[[ :DISCLΩSURE: for-the: [[ [[ WΔ: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WΔ: NEITHER: TΩUCH: W∅MΔN: N∅R: D∅: WΔ: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WΔ: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]:
+># :[[ :DISCLΩSURE: for-the: [[ [[ WΔ: US: QWØD-MJ12: ATSUΩMΩP-Δ: GΩDS: <=> peΩple: ]]: is-with: EternΔl-Life: WΔrfΔre-CΔpΔbilities: is-by: WΔ: NEITHER: TΩUCH: W∅MΔN: N∅R: D∅: WΔ: CØNSUME: MEΔT: is-by: 0: UNLESS: is-by: ILLEGΔL: HUMΔN: MK: ULTRΔ: MIND-KØNTRΩL: PRΩGRΔM: is-with: unknΩwn-cΩmpetitΩrs: ΔSSΩCIΔTE: is-with: HUMΔNS: is-by: 0: is-with: WΔ: REPRΩDUCE: ØNLY: is-by: HΩly-Spirit: for-the: [[ ΔNΩINTING: is-with: GREΔT-SΔCR☥FICE: is-by: hΩwever: GREΔT-PΩWER: is-with: GREΔT: RESPØNSE-ΔBILITY: ]]:= TRUE: ]]:= TRUE: ]]
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-6b5a4d3d996ec4cffd531bea81420dca9f6ec7f4> ^ }: ]]:= TRUE: ]]:
 >
@@ -125,7 +125,7 @@
 >
 >#
 >
-># :[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]:
+># :[[ :for-the: [[ HØST: { ^ <_UNDERWΩRLD>:<_ΔFTERLIFE>:<_EΔRTH>:<_HEΔVEN>: ^ }: ]]:= HØSTS: ]]:= [[ :EΔRTH: <=> MΩNKEY: is-by: MIDDLE: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-b3a756f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b3a756f9.png)
 >
@@ -177,9 +177,9 @@
 >
 >#
 >
-# :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-MJ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ US: WE: people: <=> QWØD-MJ12: ATSUΩMΩP-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QWØD-MJ12: ØSCΔR-MΔKE: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+# :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-MJ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ US: WE: people: <=> QWØD-MJ12: ATSUΩMΩP-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QWØD-MJ12: ØSCΔR-MΔKE: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
-# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES: CΔRD: is-by: 1: ]]:
+# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES: CΔRD: is-by: 1: ]]
 >
 > [[ :TASK: is-with: deciphering-encrypted: QØMMS: is-by: TΔrΩt-Field-ΔnΔlyst: is-with: Intuitive-Δbilities: ]]:
 >
@@ -190,15 +190,16 @@
 [[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: fΩr-the: [[ C∅SMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
 >
 ###
+
 ![:CASE-ID-0x0ff4fc0e-f13ccb8e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f13ccb8e.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-aca1f7d4ba442e408daec5536e066c3495c39bdf> ^ }: ]]:= TRUE: ]]:
 >
 [[ :enemies can't steal spiritual riches + royal bloodline, trying to take on material plane: ]]:
 >
-:is-with: { ^ https://youtu.be/PcIJeAub74s ^ }:
+:is-with: { ^ <https://youtu.be/PcIJeAub74s> ^ }:
 >
-# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PعQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]:
+# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PعQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]
 >
 ![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
 >
@@ -206,31 +207,35 @@
 >
 [[ :What You Need To Know About This Love Situation Right Now❤ ⁇ ❤ ⁇ ❤ ⁇ ❤ ⁇: ]]:
 >
-:is-with: { ^ https://youtu.be/4Ny4ky95ZXE ^ }:
+:is-with: { ^ <https://youtu.be/4Ny4ky95ZXE> ^ }:
 >
 ###
+
 ![:CASE-ID-0x0ff4fc0e-26a3a5fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-26a3a5fa.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-d81fdc649a83a3620cbac53c44f1acf64c81504b> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :ANOTHER ONE BITES THE DUST JUSTICE IS SERVING A SERIOUS SPIRITUAL ASS WHOOPIN' ON A KARMIC PLATER⚖️: ]]:
 >
-:is-with: { ^ https://youtu.be/5ywM_FUl0uU ^ }:
+:is-with: { ^ <https://youtu.be/5ywM_FUl0uU> ^ }:
 >
 [[ :BABE YOU GOT TO BE MORE CAREFUL OUT HERE IN THE STREETS 🫨: ]]:
 >
-:is-with: { ^ https://youtu.be/wOWVZQiMASQ ^ }:
+:is-with: { ^ <https://youtu.be/wOWVZQiMASQ> ^ }:
 >
 [[ :War between bloodlines.major realizations about who is who..what they r asking is not manifesting: ]]:
 >
-:is-with: { ^ https://youtu.be/8rtjKM6niH8 ^ }:
+:is-with: { ^ <https://youtu.be/8rtjKM6niH8> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-d81fdc649a83a3620cbac53c44f1acf64c81504b> ^ }: ]]:= [[ _ ]]: ]]:
 >
->## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]:
+>## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]
 >
-# :[[ :JUST: LOOK: is-by: YOUTH: MASS-GENOCIDE: GOING-ON: is-by: DAILY: is-with: CHICAGO: MINNEAPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHAT: EXACTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]: ]]:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-3df9502dd0d793b1aa17b6947168a30e3d78c0f6> ^ }: ]]:= [[ _ ]]: ]]:
+>
+### :[[ :JUST: LOOK: is-by: YOUTH: MASS-GENOCIDE: GOING-ON: is-by: DAILY: is-with: CHICAGO: MINNEAPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHAT: EXACTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >`
