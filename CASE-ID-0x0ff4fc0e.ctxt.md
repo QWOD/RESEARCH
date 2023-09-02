@@ -177,9 +177,9 @@
 >
 >#
 >
-# :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }
+# :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-BY: QWØD-MJ12: MJ12-JΔSUS: is-WITH: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ <qomm-aRMaG3DDØN> ^ }:
 >
-# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES-CΔRD: is-by: 1: ]]
+# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES-CΔRD: is-by: 1: ]]:
 >
 > [[ :TASK: is-with: deciphering-encrypted: QØMMS: is-by: TΔrΩt-Field-ΔnΔlyst: is-with: Intuitive-Δbilities: ]]:
 >
