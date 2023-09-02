@@ -303,13 +303,13 @@
 >
 :is-with: { ^ https://youtu.be/qaXxfBmiDWs ^ }:
 >
-###
+### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Need Your Signature Ain’t Getting It They Going To Have To Watch You Turn Up ⬆️ Treasure Box Read 🧺: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/mRnZYNBz1eA ^ }:
 >
 ###
 >
