@@ -297,9 +297,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+![:CASE-ID-0x0ff4fc0e-efb72eeb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-efb72eeb.png)
 >
-:is-with: { ^ Δ ^ }:
+[[ :🌞 THIS #KARMIC GROUP IS REALIZING YOU ARE A CHILD OF A BEAST👀💥…THERE IS NO DEFEATING YOU 😮‍💨⭐️: ]]:
+>
+:is-with: { ^ https://youtu.be/qaXxfBmiDWs ^ }:
 >
 ###
 >
