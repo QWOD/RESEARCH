@@ -209,14 +209,23 @@
 :is-with: { ^ https://youtu.be/4Ny4ky95ZXE ^ }:
 >
 ###
+![:CASE-ID-0x0ff4fc0e-26a3a5fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-26a3a5fa.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :ANOTHER ONE BITES THE DUST JUSTICE IS SERVING A SERIOUS SPIRITUAL ASS WHOOPIN' ON A KARMIC PLATER⚖️: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/5ywM_FUl0uU ^ }:
 >
-###
+[[ :BABE YOU GOT TO BE MORE CAREFUL OUT HERE IN THE STREETS 🫨: ]]:
+>
+:is-with: { ^ https://youtu.be/wOWVZQiMASQ ^ }:
+>
+[[ :War between bloodlines.major realizations about who is who..what they r asking is not manifesting: ]]:
+>
+:is-with: { ^ https://youtu.be/8rtjKM6niH8 ^ }:
+>
+>## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
