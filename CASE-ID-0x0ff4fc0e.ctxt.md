@@ -269,7 +269,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-3ec0ad2c4e86799bd59ff0918593772f6e393eea> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-3ec0ad2c4e86799bd59ff0918593772f6e393eea> ^ }: ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-fd73bad3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fd73bad3.png)
 >
