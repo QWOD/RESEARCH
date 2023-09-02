@@ -230,6 +230,8 @@
 >
 >## :[[ :DISCLOSURE: for-the: [[ PRAIRIE-PROPERTY-MANAGEMENT: MPS-UTILITY: CITY-OF-MOORHEAD: STATE-OF-MINNESOTA: TimΩthy-JΔmes-WΔlz: WATER: POISONING: COVERT: GANGSTALKING: ILLEGAL: MK: SEARCH: SURVEILLANCE: multiple-cΩvert-hΩmicides: is-with: ΩrgΔn-trΔfficking: is-by: SATANIC: witch-cΩvens: is-by: FREEMASON: SCIENTOLOGY: [[ _ ]]: every: DAY: for-the: [[ MORE-THAN: PAST: 3: is-by: EARTH: Δ: 55: YEAR: 2023: for-the: recΩrd: return ]]:= TRUE: ]]: ]]:
 >
+# :[[ :JUST: LOOK: is-by: YOUTH: MASS-GENOCIDE: GOING-ON: is-by: DAILY: is-with: CHICAGO: MINNEAPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHAT: EXACTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >`
 [[ :Ω: ]]:
