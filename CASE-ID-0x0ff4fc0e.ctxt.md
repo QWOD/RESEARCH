@@ -199,8 +199,8 @@
 >
 :is-with: { ^ <https://youtu.be/PcIJeAub74s> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-669df7595161d91c4501dde37f49bfb6755b6a6e> ^ }: ]]:= TRUE: ]]:
-# :[[ :PSYQ∅S: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0-T0-BE: CREΔTING-NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-cbc125118753a3b564b3a842ddbb4aa5ecfb957a> ^ }: ]]:= TRUE: ]]:
+# :[[ :PSYQ∅S: is-by: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0-T0-BE: CREΔTING-NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
 >
