@@ -123,7 +123,7 @@
 >>>
 >## :[[ :*ØPعD*: ]]:= [[ :AS A DIRECT DESCENDANT OF NEFERTITI YOU ARE CROWNED & YOUR PATHWAY FORWARD IS PAVED WITH GOLD🧞‍♀️🔮: ]]:= { ^ <https://youtu.be/O21GYzhMrYI> ^ }:
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-0e0562ce997fd6dfd455c46d89931f2fd46f8bd2> ^ }: ]]:= [[ _ ]]: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-0e0562ce997fd6dfd455c46d89931f2fd46f8bd2> ^ }: ]]:= TRUE: ]]:
 >>>
 >###
 >![:CASE-ID-0x0ff4fc0e-826b5084.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-826b5084.png)
@@ -163,7 +163,7 @@
 >>>
 >:[[ :*ØPعD*: ]]:= [[ :They Took Some Money And Did Underhanded Tactics That Appears to Be Making Them Sick: ]]:= { ^ <https://youtu.be/dWFs-5j8EKA> ^ }:
 >>>
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-ff20c37bc65954d8bc597b1dc333f904f242ff7c> ^ }: ]]: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGΩRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:
 >>>
 >#
 #
