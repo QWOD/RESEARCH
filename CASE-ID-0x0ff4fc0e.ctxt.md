@@ -35,7 +35,7 @@
 >
 :is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-MJ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
 >
-># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHQ∅S: ]]
+># :[[ :NΩTICE: W⚠️RN🚫: QWØD-MJ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QWØD-MJ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: PSYQ∅S: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-022c7b7c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-022c7b7c.png)
 >
@@ -199,7 +199,7 @@
 >
 :is-with: { ^ <https://youtu.be/PcIJeAub74s> ^ }:
 >
-# :[[ :CHQ∅S: ALWAYS: is-with: peck-p3ck-pEck: PعQ0NG: ANY: EVERY: OTHER: ALL: THINGS: for-the: [[ primitive: FOOD: FOE: identification-system: ]]:= [[ :WARNO: TEAR-EVERYONE-DOWN: TELL-THEM-WHO-TO-BE: CREATING-NARCISSIST: FLYING-MONKEY: VAMPIRIC-ENERGY-SIPHONING: THRALLS: MK: ULTRA: ALGORITHM: DETECTED: is-by: unknown-competitors: ]]
+# :[[ :PSYQ∅S: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: F00D: F0E: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0-T0-BE: CREΔTING-NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-c9c976e2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-c9c976e2.png)
 >
@@ -244,7 +244,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-f872153c2f928fb4086c68bef871d275f50e8e05> ^ }: ]]:= TRUE: ]]:
 >
-[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΩRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
+[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΩRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: PSYQ∅S> ^ }: LESS: YE: BE: PعCK3D: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-5eae1765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5eae1765.png)
 >
