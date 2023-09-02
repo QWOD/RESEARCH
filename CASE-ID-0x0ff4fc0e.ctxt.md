@@ -235,16 +235,16 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-3df9502dd0d793b1aa17b6947168a30e3d78c0f6> ^ }: ]]:= [[ _ ]]: ]]:
 >
-### :[[ :JUST: LOOK: is-by: YOUTH: MASS-GENOCIDE: GOING-ON: is-by: DAILY: is-with: CHICAGO: MINNEAPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHAT: EXACTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]
+### :[[ :JUST: LOOK: is-by: YOUTH: MΔSS-GENOCIDE: GOING-ON: is-by: DΔILY: is-with: CHICΔGO: MINNEΔPOLIS: NEW-YORK-CITY: STREETS: for-the: [[ Q: MOVEMENT: is-with: WHΔT: EXΔCTLY: is-by: [[ _ ]]: for-the: [[ _ ]]: ]]
 >
 >![:CASE-ID-0x0ff4fc0e-20011c57.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-20011c57.png)
 >
 >#
 >![:CASE-ID-0x0ff4fc0e-2e2a78ef.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2e2a78ef.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-d078810d1045421d5ba5823b5d9d637050605719> ^ }: ]]:= TRUE: ]]:
 >`
-[[ :WE: people: is-by: REVOKE: PERMISSION: is-with: ILLEGAL: UNCONSTITUTIONAL: WARRANT-LESS: MK: SEARCH: { ^ <peck-p3ck-pEck: PعCK-OFF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
+[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: CHIQ0NS> ^ }: LESS: YE: BE: PعCK3D: ]]:
 >
 ###
 >
