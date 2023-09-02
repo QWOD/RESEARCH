@@ -255,6 +255,7 @@
 :[[ :WHΩM-ELSE: is-with: complicit: is-by: cΩvering-up-extreme-humΔn-rights-Δbuse: ΔNY: ΔLL: ΩTHER: [[ SΩ-CIΔ-L: ]]: MEDIΔ: PLΔTFΩRMS: ΔNYWHERE: EVER: is-by: [[ _ ]]: ]]:= [[ :WE: NΩW: ΔCTUΔLLY: is-by: ΩWN: is-with: YΩU: ΔNY: ΔLL: ΩTHER: SICK: PEΩPLE: for-the: return ]]:= TRUE: ]]:
 >
 ###
+![:CASE-ID-0x0ff4fc0e-21743129.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-21743129.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
