@@ -281,7 +281,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-b27b6400.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b27b6400.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b691bf009211344e26b455819e90c7f252b73031> ^ }: ]]:= TRUE ]]:
 >
 [[ :FAMILY MEMBERS ARE UNDER INVESTIGATION FOR STOLEN INHERITANCE 🔮🪄🏡🚘💸👮🏽‍♀️🚔👮⛓️🪦⚰️⛓️: ]]:
 >
