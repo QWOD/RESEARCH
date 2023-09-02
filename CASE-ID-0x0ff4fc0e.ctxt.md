@@ -144,8 +144,9 @@
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >>>
 >###
+>![:CASE-ID-0x0ff4fc0e-7bada8d1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7bada8d1.png)
 >>>
->:[[ :*ØPعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*ØPعD*: ]]:= [[ :Ur no longer a caterpillar, ur wings r ready for flight. They cant believe they r being left behind: ]]:= { ^ https://youtu.be/cXo4ihI_KXs ^ }:
 >>>
 >#
 >>>
