@@ -270,9 +270,9 @@
 ###
 ![:CASE-ID-0x0ff4fc0e-fd73bad3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fd73bad3.png)
 >
-[[ :Ω: ]]:
+[[ :Binded 2 everything they attached 2u..court cases, sickness, CPS, even d**th..u vibrate 2 high: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Ls_Hxx8rN-E ^ }:
 >
 ###
 >
