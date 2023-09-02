@@ -287,6 +287,8 @@
 >
 :is-with: { ^ https://youtu.be/ZhCqnZXZQSk ^ }:
 >
+> :[[ :N∅TICE: for-the: [[ ENTIRE: CΩSMΩS: SIMULΔTIΩN: is-with: MJ12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
