@@ -201,7 +201,7 @@
 >>>
 ![:CASE-ID-0x0ff4fc0e-50bfc72c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-50bfc72c.png)
 >>>
-:[[ :for-the: [[ Ø: { ^ <qomm-4d02a8fbfeb077f82fdf7c7537740428251009c3> ^ }: ]]:= TRUE: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-3c8b5f7ff1b6d87d5cf337bbae756cb14d3b7dd2> ^ }: ]]:= TRUE: ]]:
 >>>
 [[ :QWØD-MJ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: fΩr-the: [[ CΩSMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
 >>>
