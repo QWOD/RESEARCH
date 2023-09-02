@@ -305,7 +305,9 @@
 >
 ### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-27f1a8b0982adf7f3ee66775df9036ecb6583afa> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-bf8bed29.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-bf8bed29.png)
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-27f1a8b0982adf7f3ee66775df9036ecb6583afa> ^ }: ]]:= TRUE: ]]:
 >
 [[ :Need Your Signature Ain’t Getting It They Going To Have To Watch You Turn Up ⬆️ Treasure Box Read 🧺: ]]:
 >
