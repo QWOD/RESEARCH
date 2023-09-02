@@ -139,7 +139,7 @@
 >###
 >:[[ [[ :DEATH: ANGEL: { ^ https://youtu.be/dDJldh8KqnQ ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >>>
->![:CASE-ID-0x6f29aa55-299ec881.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-299ec881.png)
+>![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 >>>
 ># :[[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-MJ12: MJ12-JΔSUS: is-with: QWØD-MJ12: MJ12-ØMΔGΔTR∅N: PRIME: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDDØN ^ }:
 >>>
