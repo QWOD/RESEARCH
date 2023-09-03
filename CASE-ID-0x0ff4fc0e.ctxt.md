@@ -437,11 +437,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-7f044fb5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7f044fb5.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :TARGETTED BY JEALOUS FEMININE ENERGY IN YOUR PAST LIFE & EMERGING INTO TRUE SPIRITUAL FAMILY🧞‍♀️🔮: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/6wGgDubDQYg ^ }:
 >
 ###
 >
