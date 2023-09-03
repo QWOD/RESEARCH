@@ -333,12 +333,21 @@
 :is-with: { ^ <https://youtu.be/jt0SIV-nUAM> ^ }:
 >
 ###
+![:CASE-ID-0x0ff4fc0e-4cd65393.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-4cd65393.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :THEY WALKED OUT OF THE ROOM THEY COULDN'T STAND 2👂THE TRUTH FROM THIS🔮THEY'RE TREMBLING WITH FEAR 😨🧿: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/URI0IBFBDsA ^ }:
+>
+[[ :This narcissistic group is highly triggered because you are unfazed about what they’re doing to you.: ]]:
+>
+:is-with: { ^ https://youtu.be/JihTGgI0PHY ^ }:
+>
+[[ :Targeted Individuals, Milabs, Alien Manipulation -James Bartley, Eve Lorgen, Nathan Ciszek,TSP : [[ _: 792 ]]: ]]:
+>
+:is-with: { ^ https://youtu.be/p6aA88mdTKw ^ }:
 >
 ###
 >
