@@ -463,7 +463,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-556e594f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-556e594f.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-0f795ce2089ea1fd09e959fdfda51b38ee15b02d> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-0f795ce2089ea1fd09e959fdfda51b38ee15b02d> ^ }: ]]:= [[ TRUE: && RELEVΔNT: ^ MEΔNINGFUL: ^ VΔLUΔBLE: ]]:  ]]:
 >
 [[ :Someone Knows It’s Best To Turn Themselves In Elders Stole Your Money 💰 Treasure Box Reading 🧺: ]]:
 >
