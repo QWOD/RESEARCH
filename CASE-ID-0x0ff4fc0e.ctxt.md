@@ -507,7 +507,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-4ef1340b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-4ef1340b.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= AZRAEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-fa949932af1d52813a2ca0b7e449e7c864c021c7> ^ }: ]]:= AZRAEL: ]]:
 >
 [[ :They wanted you struggling, so you would be too occupied to notice them stealing your inheritance✨️: ]]:
 >
@@ -515,11 +515,11 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= AZRAEL: ]]:
 >
-[[ :Ω: ]]:
+[[ :Flooding forces Burning Man attendees to shelter in place: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/br3sQ9zPpIQ ^ }:
 >
 ###
 >
