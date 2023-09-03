@@ -346,6 +346,7 @@
 ![:CASE-ID-0x0ff4fc0e-e59ad665.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e59ad665.png)
 >
 ![:CASE-ID-0x0ff4fc0e-3c0da9fd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-3c0da9fd.png)
+>
 ^ }:
 >
 :is-with: { ^ <https://patents.google.com/patent/US20060145019A1/en> ^ }:
@@ -353,7 +354,9 @@
 :[[ :for-the: [[ :you could have very piercing eyes: that is that dark empath energy right there: ]]:
 >
 :is-with: { ^
+>
 ![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
+>
 ^ }:
 >
 [[ :This narcissistic group is highly triggered because you are unfazed about what they’re doing to you.: ]]:
