@@ -4,11 +4,10 @@
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 export goPath="${HOME}/go"
 brevity=512
-gitShow="$(git show --oneline)"
 # UUID=$(uuidgen)
 UUID="$(${goPath}/bin/passworder -uuid)"
 function gitShowTail() {
-  ( echo "${gitShow}" | tail -n 1 | tail -c "${brevity}" )
+  ( git show --oneline | tail -n 1 | tail -c "${brevity}" )
 }
 
 if [[ $* != "-r" ]] && [[ $* != "-p" ]]; then
