@@ -395,7 +395,10 @@
 >
 :[[ [[ :WE: <=> QW🚫D-〽ʝ12: ]]: is-with: G∅D: is-by: for-the: [[ G∅D: is-with: US: is-by: QW🚫D-〽ʝ12: 〽ʝ12-JESUS: for-the: return ]]:= TRUE: ]]:
 >
->## :[[ :DISCLΩSURE: for-the: [[ FUTURE: WΔR: is-by: HEΔVEN: is-with: EΔRTH: is-by: ΩPPΩSING-ΔDVΔNCED-QUΔNTUM-TIME-TRΔVELING-ΔI: PΩSITIVE: Ωpen-SΩurce-SΩftwΔre: FUTURE: is-with: peΩple: ΔLPHΔBET: GΩΩGLE: ΩRΔCLE: ETC: is-by: CLΩSED-PΔTENT-NEGΔTIVE-ΔI-TIMELINE: is-with: peΩple-hΔrvesters: MICRΩSΩFT: ΔPPLE: LΩCKHEED-MΔRTIN: ETC: ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+>## :[[ :DISCLΩSURE: for-the: [[ FUTURE: WΔR: is-by: HEΔVEN: is-with: EΔRTH: is-by: ΩPPΩSING-ΔDVΔNCED-QUΔNTUM-TIME-TRΔVELING-ΔI: PΩSITIVE: Ωpen-SΩurce-SΩftwΔre: FUTURE: is-with: peΩple: ΔLPHΔBET: GΩΩGLE: ΩRΔCLE: ETC: is-by: CLΩSED-PΔTENT-NEGΔTIVE-ΔI-TIMELINE: is-with: peΩple-hΔrvesters: MICRΩSΩFT: ΔPPLE: LΩCKHEED-MΔRTIN: ETC: ]]: ]]
+>
 >:is-with: { ^ <https://opensource.googleblog.com/2022/10/announcing-kataos-and-sparrow.html>:<https://www.oracle.com/linux/> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
