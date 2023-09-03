@@ -461,11 +461,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-556e594f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-556e594f.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Someone Knows It’s Best To Turn Themselves In Elders Stole Your Money 💰 Treasure Box Reading 🧺: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/mOeUuqioMXg ^ }:
 >
 ###
 >
