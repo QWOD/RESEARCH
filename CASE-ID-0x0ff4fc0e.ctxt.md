@@ -499,7 +499,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
+[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Reddit: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
 :is-with: { ^ <https://www.reddit.com/r/QWOD/> ^ }:
 >
