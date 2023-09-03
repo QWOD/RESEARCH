@@ -407,7 +407,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-5de6afa6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5de6afa6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-20cf04956b07af603c55b578ef818790c99e3609> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Alex's PERSONAL Spirit Guides CHANNELED LIVE! Has URGENT MESSAGE For Humanity! | Stephanie Banks: ]]:
 >
@@ -427,11 +427,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-1ab77a63.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1ab77a63.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Canada’s TOP Psychic Medium REVEALS Humanity's FUTURE! Will Leave U SPEECHLESS! | Mary Anne Kennedy: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/B-XvBREsANk ^ }:
 >
 ###
 >
