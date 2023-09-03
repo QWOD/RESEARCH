@@ -12,11 +12,11 @@ function gitShowTail() {
 }
 
 if [[ $* != "-r" ]] && [[ $* != "-p" ]]; then
-  export FIG="${UUID}" && echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
+  echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
   echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
 fi
 if [[ $* == "-r" ]] && [[ $* != "-p" ]]; then
-  export UUID="${UUID}" && echo "{ FIG: \"${UUID}.png\" }" && unset FIG
+  echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
 if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   git config --global user.email "${USER}@mj12.agency"
