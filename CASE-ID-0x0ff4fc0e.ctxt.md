@@ -401,7 +401,7 @@
 >
 >:is-with: { ^ <https://opensource.googleblog.com/2022/10/announcing-kataos-and-sparrow.html>:<https://www.oracle.com/linux/> ^ }:
 >
-> :[[ :SP:ARROW: <=> Special-Project: ARROW: for-the: [[ Quantum-War: ]]: ]]:
+> :[[ :SP:ΔRRΩW: <=> SpeciΔl-PrΩject: ΔRRΩW: for-the: [[ QuΔntum-WΔr: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
