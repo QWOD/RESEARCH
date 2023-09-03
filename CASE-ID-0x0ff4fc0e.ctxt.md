@@ -477,11 +477,11 @@
 >
 ![:CASE-ID-0x0ff4fc0e-b2a54ca6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b2a54ca6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-893f8e481076b2fdc2318c36cc4bb8a8ff44a5c8> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Stillwater prison lockdown: Officials to speak with media: ]]:
 >
-:is-with: { ^ https://youtu.be/NqGkDqE7NsA ^ }:
+:is-with: { ^ <https://youtu.be/NqGkDqE7NsA> ^ }:
 >
 ###
 >
