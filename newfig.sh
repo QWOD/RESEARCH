@@ -7,7 +7,7 @@ brevity=512
 # UUID=$(uuidgen)
 UUID="$(${goPath}/bin/passworder -uuid)"
 function gitShowTail() {
-  ( git show --oneline | tail -n 1 | tail -c "${brevity}" )
+  ( git show --oneline | tail -c "${brevity}" )
 }
 
 if [[ $* != "-r" ]] && [[ $* != "-p" ]]; then
