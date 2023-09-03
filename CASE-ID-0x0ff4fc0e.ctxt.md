@@ -447,11 +447,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-2cfe6b01.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2cfe6b01.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Collective keep your eye on the prize, someone else sees you as the prize and is coming for you!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/K96O5ZPDbDo ^ }:
 >
 ###
 >
