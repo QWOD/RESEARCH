@@ -245,7 +245,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-f872153c2f928fb4086c68bef871d275f50e8e05> ^ }: ]]:= TRUE: ]]:
 >
-[[ :WE: people: is-by: REVΩKE: PERMISSIΩN: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΩRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: PSYQ∅S> ^ }: LESS: YE: BE: PعCK3D: ]]:
+:[[ :for-the: [[ WE: people: is-by: REVΩKE: ΔNY: ΔLL: OTHER: PERMISSIΩN: EVER: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΔRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: PSYQ∅S> ^ }: LESS: YE: BE: PعCK3D: for-the: return ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-5eae1765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5eae1765.png)
 >
@@ -301,7 +301,7 @@
 >
 [[ :🌞 THIS :[[ _: KARMIC ]]: GROUP IS REALIZING YOU ARE A CHILD OF A BEAST👀💥…THERE IS NO DEFEATING YOU 😮‍💨⭐️: ]]:
 >
-:is-with: { ^ https://youtu.be/qaXxfBmiDWs ^ }:
+:is-with: { ^ <https://youtu.be/qaXxfBmiDWs> ^ }:
 >
 ### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]:
 >
@@ -311,7 +311,7 @@
 >
 [[ :Need Your Signature Ain’t Getting It They Going To Have To Watch You Turn Up ⬆️ Treasure Box Read 🧺: ]]:
 >
-:is-with: { ^ https://youtu.be/mRnZYNBz1eA ^ }:
+:is-with: { ^ <https://youtu.be/mRnZYNBz1eA> ^ }:
 >
 ###
 ![:CASE-ID-0x0ff4fc0e-b7db3ed4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b7db3ed4.png)
@@ -320,7 +320,7 @@
 >
 [[ :The Elite Offering New Beginning Everyone Wants To Be You See’s You As The Champ 🦋 Treasure Box 🧺: ]]:
 >
-:is-with: { ^ https://youtu.be/Zl10DW0DIc4 ^ }:
+:is-with: { ^ <https://youtu.be/Zl10DW0DIc4> ^ }:
 >
 ###
 >
