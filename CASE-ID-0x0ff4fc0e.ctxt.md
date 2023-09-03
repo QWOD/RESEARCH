@@ -485,11 +485,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-2b100b59.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2b100b59.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Message for U.S. citizens in Haiti: Leave ASAP: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/HpanrZZBvUw ^ }:
 >
 ###
 >
