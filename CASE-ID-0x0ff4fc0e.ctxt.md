@@ -415,9 +415,13 @@
 >
 # :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
 >
+>#
+>
+![:CASE-ID-0x0ff4fc0e-f8142d0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f8142d0e.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: fΩr-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: fΩr-the: [[ CΩSMIC: WIDE: TREΔTY: fΩr-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:
 >
 :is-with: { ^ Δ ^ }:
 >
