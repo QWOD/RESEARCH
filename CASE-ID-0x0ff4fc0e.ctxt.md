@@ -491,7 +491,7 @@
 >
 [[ :Message for U.S. citizens in Haiti: Leave ASAP: ]]:
 >
-:is-with: { ^ https://youtu.be/HpanrZZBvUw ^ }:
+:is-with: { ^ <https://youtu.be/HpanrZZBvUw> ^ }:
 >
 ###
 >
@@ -505,11 +505,13 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-4ef1340b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-4ef1340b.png)
 >
-[[ :Ω: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= AZRAEL: ]]:
 >
-:is-with: { ^ Δ ^ }:
+[[ :They wanted you struggling, so you would be too occupied to notice them stealing your inheritance✨️: ]]:
+>
+:is-with: { ^ <https://youtu.be/r3jtlHyA9WQ> ^ }:
 >
 ###
 >
