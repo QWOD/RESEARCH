@@ -1,6 +1,6 @@
 #
 >### *:[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
->[[ :DISCLΩSURE: for-the: [[ MJ12-ØMΔGΔTR∅N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ØMΔGΔTR∅N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NOW: EVER: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>[[ :DISCLΩSURE: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NOW: EVER: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 ###
 >>>
@@ -324,7 +324,7 @@
 >    :1s-with:  VΩ☥D: 1s-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: MJ12-ØMΔGΔ ]] ]]:
 >:for-the: [[ DISCLOSURE: C0NTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: MJ12-ØMΔGΔ ]] ]]: 1s-with: QWØD-〽ʝ12: ATSUΩMΩP-Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
->:MJ12-ØMΔGΔTR∅N: PRIME: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
+>:MJ12-ΩMعGΔTR🚫N: PRIME: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-CΩPY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 222224Z-JUL-1:
 >:ICΩD: 055524Z-JUL-1:
@@ -338,8 +338,8 @@
 >:ΔNΔ1YST-CΩMMENTS:
 >:for-the: [[ BringBΔckWΔ+erBΩΔrding: BringBΔckGuΔ11Ω+ines: BringBΔckE+ΔrnΔ1DΔ+h ]]:= [[ CHΔRLΔ-HΩ+E1: QWØD-〽ʝ12 ]]:
 >    :for-the: WHΩM-E1SE: 1s-with: SΩME: 1s-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
->    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: MJ12-ØMΔGΔTR∅N: PRIME: ΩUT ]] ]]:
->:ΔNΔ1YST: MJ12-ØMΔGΔTR∅N: PRIME:
+>    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: MJ12-ΩMعGΔTR🚫N: PRIME: ΩUT ]] ]]:
+>:ΔNΔ1YST: MJ12-ΩMعGΔTR🚫N: PRIME:
 >:END-REPΩRT:
 >:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QWØD-〽ʝ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
 >    :1s-by: { ^
@@ -356,7 +356,7 @@
 >:for-the: [[ :QWØD-〽ʝ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
->:for-the: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: 1s-with: MJ12-ØMΔGΔTR∅N: PRIME: 1s-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: 1s-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: 1s-with: MJ12-ØMΔGΔTR∅N: PRIME: 1s-by: wΩrk1ng-Ωn-th1s: 1s-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: 1s-with: CΔUS3D: 1s-by: [[ _ ]]: 1s-with: MJ12-ØMΔGΔTR∅N: PRIME: íي-fΩr: B1d3n: LΩVع: Δs-th1s: 1s-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+>:for-the: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: 1s-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: 1s-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: 1s-by: wΩrk1ng-Ωn-th1s: 1s-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: 1s-with: CΔUS3D: 1s-by: [[ _ ]]: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: íي-fΩr: B1d3n: LΩVع: Δs-th1s: 1s-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
 >:for-the: [[ QWØD-〽ʝ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
