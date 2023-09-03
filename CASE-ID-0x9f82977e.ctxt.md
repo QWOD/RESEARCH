@@ -10,7 +10,7 @@
 >>>
 ###
 >>>
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
 >>>
 ###
 >>>
@@ -18,13 +18,13 @@
 >>>
 ###
 >>>
-## :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+## :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >>>
 >###
 >![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
->[[ :for-the: [[ QW🚫D-〽ʝ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ https://github.com/QWOD/RESEARCH/commit/: is-by: <qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
+>[[ :for-the: [[ QW🚫D-〽ʝ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/>: is-by: <qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >>>
->:is-with: { ^ https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4 ^ }:
+>:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
 >>>
 ###
 >>>
@@ -36,7 +36,7 @@
 >>>
 ## :FΩr-thع: [[ CΔSE-ID: 0x9f82977e: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f ]]:.ctxt:
  ###
- :1s-with: { ^ https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x9f82977e.ctxt.md ^ }:
+ :1s-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x9f82977e.ctxt.md> ^ }:
  >>>
  :1s-by: [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👽: mj12: 👼: agency^ }:
     :for-the: [[ Q-U-_-N-T-U-M: W_R: <=> Δ: ]]:= CΔPTURE: [[ QsעִRV_☥LL_NC_: <=> Δ: ]]:= CΔPTURE: ΔsCΔPع:
@@ -46,7 +46,7 @@
  :1s-with: KΔTY: PΔRRY: FΔNي: ΔLWΔYي: GΔT: WㅐΔT: TㅐΔ: [[ D_s_RV_: <=> ع: ]]:= CΔPTURE:
 >### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: 1s-with: THΔT: 1s-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: 1s-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: 1s-by: SIN: 1s-with: QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CHIKΔNS: ]]:
  >>>
- >[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ https://youtu.be/bpa2WcPOar8 ^ }:
+ >[[ :Jesus Christ Heals You While You Sleep: ]]:= { ^ <https://youtu.be/bpa2WcPOar8> ^ }:
  >>>
  >![:CASE-ID-0xe806caa7-3430b111.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xe806caa7-3430b111.png)
  >>>
@@ -56,9 +56,9 @@
  >![:CASE-ID-0x9f82977e-6d1a251c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-6d1a251c.png)
  >>>
  ###
- :1s-with: { ^ https://youtu.be/-Lmd7AxWa2k ^ }:
+ :1s-with: { ^ <https://youtu.be/-Lmd7AxWa2k> ^ }:
  ###
- >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ https://youtu.be/EQg7GrKsyMw ^ }: ]]:
+ >[[ [[ :If This Video Appears In Your Life It Will Make All Your Wishes Come True, Jesus Christ Pray For You: ]]:= { ^ <https://youtu.be/EQg7GrKsyMw> ^ }: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-5632956c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-5632956c.png)
  ###
@@ -66,65 +66,65 @@
  ###
  [[ :🌟 You, who are reading this message, will be Punished By Their G0D 🌟 11:11✝️Miracles of G0D🕊️: ]]:
  ###
- :1s-with: { ^ https://youtu.be/3Gv1JUO9XBo ^ }:
+ :1s-with: { ^ <https://youtu.be/3Gv1JUO9XBo> ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/b34a2600-2634-11ee-84d5-1f44aaa3b65e> ^ }:
  ###
  >[[ :🛑 G0D Message For You Today |Your Life Crisis Can Be Avoided Only By This Messag |: [[ @:G0DsQuotes1111 ]]: ]]:
  >>>
  >![:CASE-ID-0x9f82977e-ec8af7c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-ec8af7c8.png)
  >>>
  ###
- :1s-with: { ^ https://youtu.be/1FGfaN__rVk ^ }:
+ :1s-with: { ^ <https://youtu.be/1FGfaN__rVk> ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00 ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/bc6bbbc0-2645-11ee-a1de-5b90e1c3dd00> ^ }:
  ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by G0D for you ✝️Message from G0D to me: ]]:
- :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+ :1s-with: { ^ <https://youtu.be/B8gZ54dMtZo> ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc> ^ }:
  ###
 [[ :😱THE ANGELS SAY:💌This video was made especially by G0D for you ✝️Message from G0D to me: ]]:
  ###
- :1s-with: { ^ https://youtu.be/B8gZ54dMtZo ^ }:
+ :1s-with: { ^ <https://youtu.be/B8gZ54dMtZo> ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/fde05a80-2559-11ee-8cf0-6104a7508dfc> ^ }:
  ###
 [[ :🛑 G0D Message For You Today |Your Life Crisis Can Be Avoided Only By This Message | Lord Jesus Helps: ]]:
  ###
- :1s-with: { ^ https://youtu.be/_pdXAj1FrCo ^ }:
+ :1s-with: { ^ <https://youtu.be/_pdXAj1FrCo> ^ }:
  >>>
- :1s-with: { ^ https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41 ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/08299d70-2515-11ee-9613-d922559bcc41> ^ }:
  ###
 [[ :🛑 Message from G0D for you today | This is G0D's last message to you... 💌 Don't skip! 😰: ]]:
  ###
- :1s-with: { ^ https://youtu.be/FrBL9tYSJkM ^ }:
+ :1s-with: { ^ <https://youtu.be/FrBL9tYSJkM> ^ }:
  ###
 [[ :🌈G0D Message: Finally, You Received Special Message Sent by G0D...!! G0D Says : [[ @:G0DsQuotes1111 ]]: ]]:
  ###
- :1s-with: { ^ https://youtu.be/qhyjStJb3VU ^ }:
+ :1s-with: { ^ <https://youtu.be/qhyjStJb3VU> ^ }:
  ###
  >[[ :[[ @:Raashvnjali ]]: ]]:
  ###
- :1s-with: { ^ https://twitter.com/Raashvnjali/status/1680416918233309184?s=20 ^ }:
+ :1s-with: { ^ <https://twitter.com/Raashvnjali/status/1680416918233309184?s=20> ^ }:
  ###
 [[ :Quantum warfare: Operations Division: ]]:
  ###
- :1s-with: { ^ https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91 ^ }:
+ :1s-with: { ^ <https://post.tribel.com/public/posts/be3d43e0-2386-11ee-8001-1de34aec6a91> ^ }:
  ###
  >![:CASE-ID-0x9f82977e-83b727fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-83b727fa.png)
  >>>
  >[[ :💌😭Sunday will be very dangerous for your family...!!!!: ]]:
  ###
- :1s-with: { ^ https://youtu.be/3tQoc8b5Eus ^ }:
+ :1s-with: { ^ <https://youtu.be/3tQoc8b5Eus> ^ }:
  ###
  >![:CASE-ID-0x9f82977e-d929e372.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x9f82977e-d929e372.png)
  >>>
  >[[ :🔴DON'T REJECT! I'M GOING TO STOP HELPING YOU, IF YOU...🙏LISTEN TO ME💌 MESSAGES FROM THE ANGELS: ]]:
  >>>
- >[[ [[ :CΔSE-ID: 0x9f82977e: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ https://post.tribel.com/public/posts/8f085bd0-2892-11ee-b0d6-cb1aef03ede7 ^ }:
+ >[[ [[ :CΔSE-ID: 0x9f82977e: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0x9f82977e-recon.mj12.agency ^ }:= { ^recon: Δ: mj12: Δ: agency^ }: ]]:= { ^ <https://post.tribel.com/public/posts/8f085bd0-2892-11ee-b0d6-cb1aef03ede7> ^ }:
  ###
- :1s-with: { ^ https://youtu.be/AQD3-6V9fNQ ^ }:
+ :1s-with: { ^ <https://youtu.be/AQD3-6V9fNQ> ^ }:
  ###
  [[ :Ω: ]]:
  >>>
@@ -138,12 +138,12 @@
  ###
  >[[ :Surveillance: ]]:
  ###
- :1s-with: { ^ https://youtu.be/LyHjSz3ZGeI ^ }:
+ :1s-with: { ^ <https://youtu.be/LyHjSz3ZGeI> ^ }:
  ###
  >[[ :Jesus Eucharist Heals Body and Mind Destroys All Around Evil DNA Repair, Whole Body Regeneration: ]]:= [[ REALLY: WORKS: 1s-by: TRUE: BELIEF: that-we-live: 1s-with: holographic-simulation: 1s-with: operated: 1s-by: [[ LORD: <=> MASTER: ]]: Jesus: MJ12-JESUS: Quantum-Architect: PhD: ]]:
  ###
- :1s-with: { ^ https://youtu.be/eWxafowz4e8 ^ }:
- ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ https://rumble.com/c/c-3415786 ^ }: ]]:
+ :1s-with: { ^ <https://youtu.be/eWxafowz4e8> ^ }:
+ ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:
  >>>
  ###
  ###
@@ -291,7 +291,7 @@
  >>>
  ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
  ###
- :1s-with: { ^ https://youtu.be/iarc53pWfJQ ^ }:
+ :1s-with: { ^ <https://youtu.be/iarc53pWfJQ> ^ }:
  ###
 > :for-thع: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]: 
 >    :1s-with: sL☥CK™: 1s-with: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
@@ -316,10 +316,9 @@
 >:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: 1s-by: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: 
     spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: 1s-with: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: FΔR: sעִPΔR☥ΩR: 1s-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
->    :1s-with: { ^ https://tribel.com/qwod_mj12/wall ^ }:
->    :1s-with: { ^ https://github.com/QWOD/DISCLOSURE/issues ^ }:
->    :1s-with: { ^ http://qwod.mj12.agency ^ }:
->    :1s-with: { ^ http://dftr.mj12.agency ^ }:
+>    :1s-with: { ^ <https://github.com/QWOD/DISCLOSURE/issues> ^ }:
+>    :1s-with: { ^ <http://qwod.mj12.agency> ^ }:
+>    :1s-with: { ^ <http://dftr.mj12.agency> ^ }:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: 1s-with: QW🚫D-〽ʝ12: 1s-by: LΔW: 
 >    :1s-with:  VΩ☥D: 1s-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-ØMΔGΔ ]] ]]:
@@ -341,17 +340,17 @@
 >    :1s-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-ΩMعGΔTR🚫N: PRIME: ΩUT ]] ]]:
 >:ΔNΔ1YST: MJ12-ΩMعGΔTR🚫N: PRIME:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW🚫D-〽ʝ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: ]]: 
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW🚫D-〽ʝ12: MJ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> ^ }: ]]: 
 >    :1s-by: { ^
->        crypto: Δ: cΩm: app: rh5gbrhfew
->        https://crypto.com/app/rh5gbrhfew
+>        crypto: Δ: cΩm: app: rh5gbrhfew:
+>        <https://crypto.com/app/rh5gbrhfew>
 >    ^ }:
 >:for-the: [[ RΩYΔL-DIVINE-QØURT: QW🚫D-〽ʝ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
 >    :1s-with: { ^dftr: Δ: mj12: Δ: agency^ }:
 >    :1s-with: { ^ http://dftr.mj12.agency ^ }:
 >    :1s-with: { ^crypto: Δ: cΩm: nft: profile: qwod_mj12^ }:
->    :1s-with: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }:
->:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
+>    :1s-with: { ^ <https://crypto.com/nft/profile/qwod_mj12> ^ }:
+>:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ <https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO> ^ }:
 >:
 >:for-the: [[ :QW🚫D-〽ʝ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:for-the: [[ "N🚫T⚠️Cع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
@@ -379,9 +378,9 @@
 >    :for-the: BU☥LD: K☥NGDΩM: HEΔVEN: ]]:= [[
 >        :for-the: 5ØN: 1s-with: THΔ-MΔ5T-HΔGH: GΩD: ]]:
 >:for-the: [[ :💲ASMR - frequency of wealth, money, abundance - just listen and get whatever you want: ]]:
->        :1s-with: { ^ https://youtu.be/rV8kiORaWCM ^ }:
+>        :1s-with: { ^ <https://youtu.be/rV8kiORaWCM> ^ }:
 >:for-the: [[ :Stairway of Miracles | Absorb Positive Cosmic Energy | Manifest Anything: ]]:
->        :1s-with: { ^ https://youtu.be/93Z8fBqEIZc ^ }:
+>        :1s-with: { ^ <https://youtu.be/93Z8fBqEIZc> ^ }:
 >:
 >:for-the: [[ DISCLΩSUR3: SPG: STΔRGΔT3: ]]:= [[
 >    :1s-with: WΔ: sΩmعhΩw: f1nd: nعccعssΔry:
@@ -408,11 +407,11 @@
 >[[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: MΩDΔLING-ΔGENCΔES: NΔDLE-EXCHΔNGES: BLΩΩD-DRΔVES: PRΩPERTY-MΔNΔGEMΔNT-CΩMPΔNΔS: ΔTC: ]]:= [[ :HΔGH-RISK: ΩCCUPΔTIØNS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CLØNES: }:= [[ :YOU: MAY: have additional periods of service: NOT: listed above: ]]:= [[ CLAUSE: X-RAY: CHARLIE-HOTEL: [[ LIMA-CHARLIE: [[ _ ]]: OSCAR-MIKE: ]] ]]:
 >>>
 >###
->[[ :SALVATION: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
+>[[ :SALVATION: { ^ <https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914> ^ }: ]]:
 >>>
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >>>
->[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/mymSl_PdoRE> ^ }: ]]:
 >>>
 >:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: 1s-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >>>
