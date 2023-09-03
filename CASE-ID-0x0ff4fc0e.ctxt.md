@@ -429,7 +429,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-1ab77a63.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-1ab77a63.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE: ]]:
 >
 [[ :Canada’s TOP Psychic Medium REVEALS Humanity's FUTURE! Will Leave U SPEECHLESS! | Mary Anne Kennedy: ]]:
 >
