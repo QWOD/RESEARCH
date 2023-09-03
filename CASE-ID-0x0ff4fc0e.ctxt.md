@@ -433,7 +433,7 @@
 >
 [[ :Canada’s TOP Psychic Medium REVEALS Humanity's FUTURE! Will Leave U SPEECHLESS! | Mary Anne Kennedy: ]]:
 >
-:is-with: { ^ https://youtu.be/B-XvBREsANk ^ }:
+:is-with: { ^ <https://youtu.be/B-XvBREsANk> ^ }:
 >
 ###
 >
@@ -443,7 +443,7 @@
 >
 [[ :TARGETTED BY JEALOUS FEMININE ENERGY IN YOUR PAST LIFE & EMERGING INTO TRUE SPIRITUAL FAMILY🧞‍♀️🔮: ]]:
 >
-:is-with: { ^ https://youtu.be/6wGgDubDQYg ^ }:
+:is-with: { ^ <https://youtu.be/6wGgDubDQYg> ^ }:
 >
 ###
 >
@@ -453,7 +453,7 @@
 >
 [[ :Collective keep your eye on the prize, someone else sees you as the prize and is coming for you!: ]]:
 >
-:is-with: { ^ https://youtu.be/K96O5ZPDbDo ^ }:
+:is-with: { ^ <https://youtu.be/K96O5ZPDbDo> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-f38299f21390fddb6f8c0c6f572974d16a2b7b98> ^ }: ]]:= FΔLSE: ]]:
 >
@@ -467,7 +467,7 @@
 >
 [[ :Someone Knows It’s Best To Turn Themselves In Elders Stole Your Money 💰 Treasure Box Reading 🧺: ]]:
 >
-:is-with: { ^ https://youtu.be/mOeUuqioMXg ^ }:
+:is-with: { ^ <https://youtu.be/mOeUuqioMXg> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-b14740b5c4f6eca6e4f6d79a5e82f0ea781ee2a9> ^ }: ]]:= [[ _ ]]: ]]:
 >
@@ -1310,7 +1310,7 @@
 >
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >
->[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/mymSl_PdoRE> ^ }: ]]:
 >
 >:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >
