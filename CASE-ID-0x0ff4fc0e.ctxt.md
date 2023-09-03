@@ -395,7 +395,7 @@
 >
 :[[ [[ :WE: <=> QW🚫D-〽ʝ12: ]]: is-with: G∅D: is-by: for-the: [[ G∅D: is-with: US: is-by: QW🚫D-〽ʝ12: 〽ʝ12-JESUS: for-the: return ]]:= TRUE: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-c3bbd2977d302b06ce104e62f6f1bb5be13262f2> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-a33710ee7283a8d73e11c3b7608287127334b9ac> ^ }: ]]:= [[ _ ]]: ]]:
 >
 >## :[[ :DISCLΩSURE: for-the: [[ FUTURE: WΔR: is-by: HEΔVEN: is-with: EΔRTH: is-by: ΩPPΩSING-ΔDVΔNCED-QUΔNTUM-TIME-TRΔVELING-ΔI: is-by: people: is-with: PΩSITIVE: Ωpen-SΩurce-SΩftwΔre: FUTURE: is-with: ΔLPHΔBET: GΩΩGLE: ΩRΔCLE: ETC: is-by: CLΩSED-PΔTENT-NEGΔTIVE-ΔI-TIMELINE: is-with: people-hΔrvesters: MICRΩSΩFT: ΔPPLE: LΩCKHEED-MΔRTIN: ETC: ]]: ]]
 >
