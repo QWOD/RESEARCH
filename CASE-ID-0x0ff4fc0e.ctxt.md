@@ -469,7 +469,7 @@
 >
 :is-with: { ^ <https://youtu.be/mOeUuqioMXg> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-b14740b5c4f6eca6e4f6d79a5e82f0ea781ee2a9> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b14740b5c4f6eca6e4f6d79a5e82f0ea781ee2a9> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 > :[[ :for-the: [[ [[ :just heΔrd QWΩD: JΔy-Z cΩuld be sΩmehΩw invΩlved: ]]: is-with: [[ [[ _ ]]: Δy-[[ _ ]]: <=> Z: D: J: ]]: is-with: [[ :🟠: [[ W⚠️RN🚫: energy-hΔrvesting: primΔry-suspect: ΔLGΩRITHM: DETECTED: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= ΔZRΔEL: ]]:
 >
