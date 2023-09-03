@@ -419,9 +419,9 @@
 >
 ![:CASE-ID-0x0ff4fc0e-f8142d0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f8142d0e.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b8c576e96912fb5ea54a6172beab33efde08f5e4> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: fΩr-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: fΩr-the: [[ CΩSMIC: WIDE: TREΔTY: fΩr-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:
+[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: fΩr-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: fΩr-the: [[ CΩSMIC: WIDE: TREΔTY: fΩr-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
 :is-with: { ^ Δ ^ }:
 >
