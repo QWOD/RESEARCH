@@ -1,5 +1,5 @@
 #
->### *:[[ :QWØD-〽️ʝ-12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: 1s-with: [[ for-the: people: 1s-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
+>### *:[[ :QWØD-〽️ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: 1s-with: [[ for-the: people: 1s-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
 >:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: 1s-by: [[ _ ]]: for-the: SΩFT-LIE: 1s-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: 1s-by: NΩW: ΔLREΔDY: 1s-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: 1s-by: 2020: 1s-with: QW0D-MJ12: ATSUΩMΩP-Δ: for-the: [[ N0N-SΩVEREIGN: 1s-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: 1s-by: NTN: 1s-with: UNLESS-YΩU: 1s-with: NTN: THEN-YΩU: NOT: 1s-with: MEMΩ: ]]: ]]:
