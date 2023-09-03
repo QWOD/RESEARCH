@@ -403,11 +403,15 @@
 >
 > :[[ :SP:ΔRRΩW: <=> SpeciΔl-PrΩject: ΔRRΩW: for-the: [[ QuΔntum-WΔr: ]]: ]]:
 >
+>#
+>
+![:CASE-ID-0x0ff4fc0e-5de6afa6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5de6afa6.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Alex's PERSONAL Spirit Guides CHANNELED LIVE! Has URGENT MESSAGE For Humanity! | Stephanie Banks: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/D9lVL58G1xk ^ }:
 >
 # :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
 >
