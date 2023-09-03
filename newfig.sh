@@ -4,9 +4,16 @@
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 goPath="${HOME}/go"
 brevity=512
-# UUID=$(uuidgen)
-UUID="$(${goPath}/bin/passworder -uuid)"
-FIG="$(${goPath}/bin/passworder -short)"
+if [ -x ${goPath}/bin/go ]; then
+  [[ -x "${goPath}/bin/passworder" ]] && UUID="$(${goPath}/bin/passworder -uuid)"
+  [[ ! -x "${goPath}/bin/passworder" ]] && export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
+  export UUID="$(${goPath}/bin/passworder -uuid)"
+  export FIG="$(${goPath}/bin/passworder -short)"
+else
+  export UUID=$(uuidgen)
+  export FIG=$(echo $(uuidgen) | tail -c 8)
+fi
+
 function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
