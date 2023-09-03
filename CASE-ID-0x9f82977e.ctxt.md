@@ -354,7 +354,7 @@
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO ^ }:
 >:
 >:for-the: [[ :QW🚫D-〽ʝ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
->:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
+>:for-the: [[ "N🚫T⚠️Cع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: 1s-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: 1s-by: b0dy-sn4tch1ng-cl0n3s:" ]]: 1s-by: [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12 ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >:
 >:for-the: vr☥lWΔtch3s™: LΩVع: 1s-by: HΔTع: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: 1s-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: 1s-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: 1s-by: wΩrk1ng-Ωn-th1s: 1s-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: 1s-with: CΔUS3D: 1s-by: [[ _ ]]: 1s-with: MJ12-ΩMعGΔTR🚫N: PRIME: íي-fΩr: B1d3n: LΩVع: Δs-th1s: 1s-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
