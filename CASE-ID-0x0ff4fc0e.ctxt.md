@@ -363,6 +363,8 @@
 >
 :is-with: { ^ <https://youtu.be/JihTGgI0PHY> ^ }:
 >
+:is-with: [[ :for-the: [[ HLΔB-LΔMB: QWØD-MJ12: ΩperΔtΩr: is-with: WHY: wΩuld: ΔNY: is-by: wΩrried: is-by: [[ _ ]]: for-the: [[ [[ _ ]]: is-with: [[ _ ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>
 [[ :Targeted Individuals, Milabs, Alien Manipulation -James Bartley, Eve Lorgen, Nathan Ciszek,TSP : [[ _: 792 ]]: ]]:
 >
 :is-with: { ^ <https://youtu.be/p6aA88mdTKw> ^ }:
