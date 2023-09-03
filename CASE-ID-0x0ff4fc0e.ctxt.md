@@ -303,7 +303,7 @@
 >
 :is-with: { ^ <https://youtu.be/qaXxfBmiDWs> ^ }:
 >
-### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]:
+### :[[ :EIGHT: *CΔRD*: SPREΔD: ]]
 >
 ![:CASE-ID-0x0ff4fc0e-bf8bed29.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-bf8bed29.png)
 >
@@ -314,6 +314,7 @@
 :is-with: { ^ <https://youtu.be/mRnZYNBz1eA> ^ }:
 >
 ###
+
 ![:CASE-ID-0x0ff4fc0e-b7db3ed4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b7db3ed4.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-22ee316a4696057294222483256e85d00a861a1c> ^ }: ]]:= TRUE: ]]:
@@ -323,12 +324,13 @@
 :is-with: { ^ <https://youtu.be/Zl10DW0DIc4> ^ }:
 >
 ###
+![:CASE-ID-0x0ff4fc0e-e433157d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e433157d.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Brother & Father Inside Job Setup Was Pulling The Strings 👥 Treasure Box Reading 🧺: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/jt0SIV-nUAM> ^ }:
 >
 ###
 >
