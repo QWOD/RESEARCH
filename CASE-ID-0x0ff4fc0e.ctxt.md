@@ -326,7 +326,7 @@
 ###
 ![:CASE-ID-0x0ff4fc0e-e433157d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e433157d.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-e726a773b01df1e576d65b899fce159ed4238bad> ^ }: ]]:= TRUE: ]]:
 >
 [[ :Brother & Father Inside Job Setup Was Pulling The Strings 👥 Treasure Box Reading 🧺: ]]:
 >
