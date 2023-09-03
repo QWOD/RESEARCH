@@ -245,7 +245,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-62923939ca495f61a8ffd46faf2d57f3209c7a46> ^ }: ]]:= TRUE: ]]:
 >
-:[[ :for-the: [[ WE: people: is-by: REVΩKE: ΔNY: ΔLL: OTHER: PERMISSIΩN: EVER: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΔRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck: PعCK-0FF: little: earth: PSYQ∅S> ^ }: LESS: YE: BE: PعCK3D: for-the: return ]]:= TRUE: ]]:
+:[[ :for-the: [[ WE: people: is-by: REVΩKE: ΔNY: ΔLL: OTHER: PERMISSIΩN: EVER: is-with: ILLEGΔL: UNCΩNSTITUTIΩNΔL: WΔRRΔNT-LESS: MK: SEΔRCH: ΩNLY: for-the: [[ PΩΩR: for-the: [[ ORGΔN: HΔRVESTING: CΩVERT: STΔTE-SPΩNSΩRED: CHILD-TRΔFFICKING: TERRΩR: ORGΔNIZATIΩNS: { ^ <peck-p3ck-pEck-PعCK-0FF-little-earth-PSYQ∅S> ^ }: LESS: YE: BE: PعCK3D: for-the: return ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x0ff4fc0e-5eae1765.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5eae1765.png)
 >
