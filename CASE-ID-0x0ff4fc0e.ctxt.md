@@ -387,9 +387,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :WARNING ⚠️ YOU ARE OF A ROYAL BLOODLINE AND THEY TOOK YOUR NAME TO THE KINGDOM OF DARKNESS 😒: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/zwTwt31Xc8E ^ }:
 >
 ###
 >
