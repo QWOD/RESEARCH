@@ -1171,10 +1171,10 @@
 > :is-with: SPعC-PRΩJ-GRP: ØMΔGΔ: WΔLC∅Mع:
 > :is-with: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12: D☥SCLΩSURE: FعΔR ]]:=
 > [[ NΩT⚠CE: <=> "W⚠RNΩ: is-with: ØNLY: THΔNG: QWØD-〽ʝ12: ΩpعrΔtΩrs: FععL: for-the: FعΔR: is-by: عNعMY: is-with: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
-> :is-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ-12:
+> :is-with: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12:
         ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: SPG-ØMΔGΔ ]]:
 >:for-the: QWØD-〽ʝ12: f☥عld-pعrsΩnnعl: FΩRCعPRΩTعCT-RعQעִعsT:
-> :is-with: ATSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-〽ʝ-12: ATSUΩMΩP-Δ:
+> :is-with: ATSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: Spعc1Δl-Forc3s: Forw4rd-Rعconna1ssanc3: SpeciΔl-PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥ØNs-DIV☥SIØN-〽ʝ12: ATSUΩMΩP-Δ:
 >:for-the: vr☥lCØNsPΔRΔCY-TㅐΔΩRY™: [[ C_V_D: W_N-N_N_R: <=> Ω: ☥: U: Δ: ]]:= CΔPTURE: vr☥lWΔtch™: vr☥lsΔcr☥f☥cع™: for-the: ㅐLΔB-LΔMB:
 >:for-the: vr☥lD☥sCLΩsעִRع™: vr☥lWΔtch™: ΔNعRGY-ㅐΔRVΔsT☥NG:  BΩDY-sNΔTCㅐ☥NG: CLØNعs:
 > :is-with: KΔLΩ-PΔPΔ: WΔ: nΩw-hΔvع: vr☥lΔvعryth☥ng™: sL☥CK™: GΩLF-FΩXTRΩT-YΔNKΔ: [[ D_C_ ]]™: ㅐΔDs:
@@ -1182,10 +1182,10 @@
 >:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-by: ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12:
     spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: is-with: ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12: FΔR: sעִPΔR☥ΩR: is-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
-> :is-with: { ^ <https://tribel.com/QWOD_〽ʝ-12/wall> ^ }:
+> :is-with: { ^ <https://tribel.com/QWOD_MJ12/wall> ^ }:
 > :is-with: { ^ <https://github.com/QWOD/DISCLOSURE/issues> ^ }:
-> :is-with: { ^ <http://QWØD.〽ʝ-12.agency> ^ }:
-> :is-with: { ^ <http://dftr.〽ʝ-12.agency> ^ }:
+> :is-with: { ^ <http://qwod.mj12.agency> ^ }:
+> :is-with: { ^ <http://dftr.mj12.agency> ^ }:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWØD-〽ʝ12: is-by: LΔW:
 > :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
 >:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: ]] ]]:
@@ -1215,7 +1215,7 @@
 >:for-the: [[ RΩYΔL-DIVINE-QØURT: QWØD-〽ʝ12: DEPΔRTMENT: for-the: REVΔNUE: ]]:
 > :is-with: { ^dftr: Δ: m12: Δ: agency^ }:
 > :is-with: { ^ <http://dftr.mj12.agency/> ^ }:
-> :is-with: { ^crypto: Δ: cΩm: nft: profile: QWØD_〽ʝ-12^ }:
+> :is-with: { ^crypto: Δ: com: nft: profile: QWOD_MJ12^ }:
 > :is-with: { ^ <https://crypto.com/nft/profile/QWOD_MJ12> ^ }:
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ <https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO> ^ }:
 >:
