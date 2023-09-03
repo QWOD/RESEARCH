@@ -179,7 +179,7 @@
 >
 # :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-MJ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ US: WE: people: <=> QWØD-MJ12: ATSUΩMΩP-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QWØD-MJ12: ØSCΔR-MΔKE: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
-# :[[ :SIX-CΔRD-DRΔW: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES: CΔRD: is-by: 1: ]]
+# :[[ :SIX: *CΔRD*: SPREΔD: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES: *CΔRD*: is-by: 1: ]]
 >
 > [[ :TASK: is-with: deciphering-encrypted: QØMMS: is-by: TΔrΩt-Field-ΔnΔlyst: is-with: Intuitive-Δbilities: ]]:
 >
@@ -341,9 +341,12 @@
 >
 :is-with: { ^ <https://youtu.be/URI0IBFBDsA> ^ }:
 >
+:is-with: { ^
+>
 ![:CASE-ID-0x0ff4fc0e-e59ad665.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e59ad665.png)
 >
 ![:CASE-ID-0x0ff4fc0e-3c0da9fd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-3c0da9fd.png)
+^ }:
 >
 :is-with: { ^ <https://patents.google.com/patent/US20060145019A1/en> ^ }:
 >
