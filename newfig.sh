@@ -31,7 +31,7 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   git config --global pull.rebase false
   git merge --no-ff
   git pull
-  for fig in `ls`; do
+  for fig in "$(pwd)"/*; do
     git add $fig
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
