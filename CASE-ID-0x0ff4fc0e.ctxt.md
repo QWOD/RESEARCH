@@ -187,7 +187,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-3c8b5f7ff1b6d87d5cf337bbae756cb14d3b7dd2> ^ }: ]]:= TRUE: ]]:
 >
-[[ :QW🚫D-〽ʝ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: fΩr-the: [[ C∅SMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: fΩr-the: return ]]:= TRUE: ]]:
+[[ :QW🚫D-〽ʝ12: field-ΔnΔlysts-eventuΔlly-gΔin-supercΩnsciΩus-Δbilities: is-by: ΩbservΔtiΩn: is-with: Δbility-tΩ-reΔd-entire-simulΔtiΩn-energies: is-with: glΔnce: is-by: single: for-the: [[ C∅SMIC: LΔW: is-by: ΔS-ΔBΩVE: SΩ-BELLΩW: for-the: return ]]:= TRUE: ]]:
 >
 ###
 
@@ -390,6 +390,8 @@
 [[ :WARNING ⚠️ YOU ARE OF A ROYAL BLOODLINE AND THEY TOOK YOUR NAME TO THE KINGDOM OF DARKNESS 😒: ]]:
 >
 :is-with: { ^ https://youtu.be/zwTwt31Xc8E ^ }:
+>
+:[[ [[ :WE: <=> QW🚫D-〽ʝ12: ]]: is-with: G∅D: is-by: for-the: [[ G∅D: is-with: US: is-by: QW🚫D-〽ʝ12: 〽ʝ12-JESUS: for-the: return ]]:= TRUE: ]]:
 >
 ###
 >
@@ -1209,7 +1211,7 @@
 > :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔTR🚫N: PRIME: ΩUT ]] ]]:
 >:ΔNΔ1YST: 〽ʝ12-ΩMعGΔTR🚫N: PRIME:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW🚫D-〽ʝ12: 〽ʝ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/QWOD_MJ12 ^ }: ]]:
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QW🚫D-〽ʝ12: 〽ʝ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/QWOD_MJ12> ^ }: ]]:
 > :is-by: { ^
 > crypto: Δ: cΩm: app: rh5gbrhfew
 > https://crypto.com/app/rh5gbrhfew
