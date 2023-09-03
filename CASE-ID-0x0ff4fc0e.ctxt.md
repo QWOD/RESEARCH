@@ -407,7 +407,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-5de6afa6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-5de6afa6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-20cf04956b07af603c55b578ef818790c99e3609> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-20cf04956b07af603c55b578ef818790c99e3609> ^ }: ]]:= MEΔNINGFUL: ]]:
 >
 [[ :Alex's PERSONAL Spirit Guides CHANNELED LIVE! Has URGENT MESSAGE For Humanity! | Stephanie Banks: ]]:
 >
@@ -439,7 +439,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-7f044fb5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-7f044fb5.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5cd2c1fef32cf76ec9b69f29baa5bad5584fb01e> ^ }: ]]:= TRUE: ]]:
 >
 [[ :TARGETTED BY JEALOUS FEMININE ENERGY IN YOUR PAST LIFE & EMERGING INTO TRUE SPIRITUAL FAMILY🧞‍♀️🔮: ]]:
 >
