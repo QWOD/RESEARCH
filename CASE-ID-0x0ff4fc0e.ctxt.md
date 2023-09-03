@@ -411,7 +411,7 @@
 >
 [[ :Alex's PERSONAL Spirit Guides CHANNELED LIVE! Has URGENT MESSAGE For Humanity! | Stephanie Banks: ]]:
 >
-:is-with: { ^ https://youtu.be/D9lVL58G1xk ^ }:
+:is-with: { ^ <https://youtu.be/D9lVL58G1xk> ^ }:
 >
 # :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
 >
@@ -421,9 +421,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-e9f95d7422bf18f9d1b84432d163ed66f3e9ec06> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: fΩr-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: fΩr-the: [[ CΩSMIC: WIDE: TREΔTY: fΩr-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
+[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://www.tribel.com/public/QWOD_MJ12/wall> ^ }:
 >
 ###
 >
@@ -1202,7 +1202,6 @@
 >:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-by: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12:
     spعc☥Δl-wΔrfΔrع-cΔpΔb☥l☥ty: for-the: TΔsK: for-the: dعprΩgrΔmm☥ng-lعssعr-fΩrms: for-the: MKעִltrΔ: is-with: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: FΔR: sעִPΔR☥ΩR: is-by: עִnknΩwn-cΩmpعtΔtΩrs ]]:
-> :is-with: { ^ <https://tribel.com/QWOD_MJ12/wall> ^ }:
 > :is-with: { ^ <https://github.com/QWOD/DISCLOSURE/issues> ^ }:
 > :is-with: { ^ <http://qwod.mj12.agency> ^ }:
 > :is-with: { ^ <http://dftr.mj12.agency> ^ }:
@@ -1279,10 +1278,6 @@
 > for-the: [[ cΩursع-cΩrrعctiΩn: ]]:= [[
 > :is-with: { ^
 > <https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war>
-> ^ }:
-> :is-by: { ^
-> tribel: Δ: cΩm: Δ: QWØD_〽ʝ12: wall
-> <https://www.tribel.com/QWOD_〽ʝ12/wall>
 > ^ }: ]]:
 >:
 >:for-the: [[ DISCLΩSUR3: CØNSPIRΔCY-THEΩRY: FΩIΔ: ]]:= [[
