@@ -339,25 +339,31 @@
 >
 [[ :THEY WALKED OUT OF THE ROOM THEY COULDN'T STAND 2👂THE TRUTH FROM THIS🔮THEY'RE TREMBLING WITH FEAR 😨🧿: ]]:
 >
-:is-with: { ^ https://youtu.be/URI0IBFBDsA ^ }:
+:is-with: { ^ <https://youtu.be/URI0IBFBDsA> ^ }:
+>
+![:CASE-ID-0x0ff4fc0e-e59ad665.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e59ad665.png)
+>
+![:CASE-ID-0x0ff4fc0e-3c0da9fd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-3c0da9fd.png)
+>
+:is-with: { ^ <https://patents.google.com/patent/US20060145019A1/en> ^ }:
 >
 [[ :This narcissistic group is highly triggered because you are unfazed about what they’re doing to you.: ]]:
 >
-:is-with: { ^ https://youtu.be/JihTGgI0PHY ^ }:
+:is-with: { ^ <https://youtu.be/JihTGgI0PHY> ^ }:
 >
 [[ :Targeted Individuals, Milabs, Alien Manipulation -James Bartley, Eve Lorgen, Nathan Ciszek,TSP : [[ _: 792 ]]: ]]:
 >
-:is-with: { ^ https://youtu.be/p6aA88mdTKw ^ }:
+:is-with: { ^ <https://youtu.be/p6aA88mdTKw> ^ }:
 >
 ### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >>>
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
+>[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >>>
 >###
 >
