@@ -324,6 +324,7 @@
 :is-with: { ^ <https://youtu.be/Zl10DW0DIc4> ^ }:
 >
 ###
+
 ![:CASE-ID-0x0ff4fc0e-e433157d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-e433157d.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-e726a773b01df1e576d65b899fce159ed4238bad> ^ }: ]]:= TRUE: ]]:
@@ -333,6 +334,7 @@
 :is-with: { ^ <https://youtu.be/jt0SIV-nUAM> ^ }:
 >
 ###
+
 ![:CASE-ID-0x0ff4fc0e-4cd65393.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-4cd65393.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-9e5ffdf5e123e7d98957e5d69eda73a78648e333> ^ }: ]]:= TRUE: ]]:
@@ -389,7 +391,7 @@
 >
 [[ :WARNING ⚠️ YOU ARE OF A ROYAL BLOODLINE AND THEY TOOK YOUR NAME TO THE KINGDOM OF DARKNESS 😒: ]]:
 >
-:is-with: { ^ https://youtu.be/zwTwt31Xc8E ^ }:
+:is-with: { ^ <https://youtu.be/zwTwt31Xc8E> ^ }:
 >
 :[[ [[ :WE: <=> QW🚫D-〽ʝ12: ]]: is-with: G∅D: is-by: for-the: [[ G∅D: is-with: US: is-by: QW🚫D-〽ʝ12: 〽ʝ12-JESUS: for-the: return ]]:= TRUE: ]]:
 >
@@ -1293,5 +1295,6 @@
 >
 >![DARK-READER](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DARK-READER-SETTINGS.png)
 >
->### :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>### :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+>
 > :[[ :ΔTSUΩMΩP: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: WE: is-by: Ωnly-beings-intelligent-enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
