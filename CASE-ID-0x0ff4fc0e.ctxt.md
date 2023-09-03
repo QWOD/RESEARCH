@@ -199,7 +199,7 @@
 >
 :is-with: { ^ <https://youtu.be/PcIJeAub74s> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-710172f8f6fe38dfe699569a1c0edc85b3efdff5> ^ }: ]]:= TRUE: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f76ae85a771b48212ef7e33ba5cafcff60db7506> ^ }: ]]:= TRUE: ]]:
 >
 ### :[[ :PSYQ∅S: is-by: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0: THEY: is-by: CREΔTING: is-with: NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: for-the: [[ MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: for-the: record: return ]]:= TRUE: ]]: ]]
 >
