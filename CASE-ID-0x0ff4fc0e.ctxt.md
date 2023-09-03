@@ -457,7 +457,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-64f4f18af6e0bf509a8b9033dca71843685b0216> ^ }: ]]:= FΔLSE: ]]:
 >
-:[[ :for-the: [[ [[ :cΩming fΩr yΩu: cΩmmunicΔtiΩn is key: sΩmebΩdy is ΔbΩut tΩ mΔke Δ mΩve: ]]: is-with: [[ :🟠: [[ W⚠️RN🚫: ΩPPF🚫R: deplΩyment: ΔLGΩRITHM: DETECTED: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]: ]]:
+:[[ :for-the: [[ [[ :cΩming fΩr yΩu: cΩmmunicΔtiΩn is key: sΩmebΩdy is ΔbΩut tΩ mΔke Δ mΩve: ]]: is-with: [[ :🟠: [[ W⚠️RN🚫: ΩPPF🚫R: deplΩyment: ΔLGΩRITHM: DETECTED: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]: [[ CΩMMUNICΔTE: is-by: CΩNTΔCT: is-with: TΔNGΩ: KILΩ-PΔPΔ: ]]:= TRUE: ]]:
 >
 ###
 >
