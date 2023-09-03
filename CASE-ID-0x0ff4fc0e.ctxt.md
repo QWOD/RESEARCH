@@ -385,7 +385,7 @@
 >
 >![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-698a1648628de8e6ecb08c890a724de13de018bc> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :WARNING ⚠️ YOU ARE OF A ROYAL BLOODLINE AND THEY TOOK YOUR NAME TO THE KINGDOM OF DARKNESS 😒: ]]:
 >
