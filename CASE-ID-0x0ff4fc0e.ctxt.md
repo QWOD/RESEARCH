@@ -1,14 +1,14 @@
 #
 >
-># *:[[ :💀: { ^ recon.〽ʝ-12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
+># *:[[ :💀: { ^ recon.〽ʝ12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: is-by: 42: for-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
->[[ :DISCLΩSURE: for-the: [[ 〽ʝ-12-ØMΔGΔTR∅N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ-12-ØMΔGΔTR∅N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ØMΔGΔTR∅N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ØMΔGΔTR∅N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 ># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :RESEARCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_〽ʝ-12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_〽ʝ12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 *:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >
@@ -27,13 +27,13 @@
 >
 ###
 >
- :[[ [[ :CΔSE-ID: 0x0ff4fc0e: QWØD-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0x0ff4fc0e-recon.〽ʝ-12.agency ^ }:= { ^recon: Δ: 〽ʝ-12: Δ: agency^ }: ]]:
+ :[[ [[ :CΔSE-ID: 0x0ff4fc0e: QWØD-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ 0x0ff4fc0e-recon.〽ʝ12.agency ^ }:= { ^recon: Δ: 〽ʝ12: Δ: agency^ }: ]]:
 >
 ## :for-thع: [[ CΔSE-ID: 0x0ff4fc0e: QWØD-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f ]]:.ctxt
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x0ff4fc0e.ctxt.md> ^ }:
 >
-:is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: 〽ʝ-12: 👽: agency^ }:
+:is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12: ATSUΩMΩP-Δ ]]:= { ^qwod: 👼: 〽ʝ12: 👽: agency^ }:
 >
 ># :[[ :NΩTICE: W⚠️RN🚫: QWØD-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QWØD-〽ʝ12: ATSUΩMΩP-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: PSYQ∅S: ]]
 >
@@ -177,7 +177,7 @@
 >
 >#
 >
-# :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-〽ʝ12: [[ 〽ʝ-12-JΔSUS: <=> G∅D: ]]: is-with: [[ US: WE: people: <=> QWØD-〽ʝ12: ATSUΩMΩP-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QWØD-〽ʝ12: ØSCΔR-MΔKE: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+# :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥ΔØNS: LΔD: is-by: QWØD-〽ʝ12: [[ 〽ʝ12-JΔSUS: <=> G∅D: ]]: is-with: [[ US: WE: people: <=> QWØD-〽ʝ12: ATSUΩMΩP-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QWØD-〽ʝ12: ØSCΔR-MΔKE: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
 # :[[ :SIX: *CΔRD*: SPREΔD: is-with: PØINTMΔN: LEΔDING: ΩVERΔLL: ENERGIES: *CΔRD*: is-by: 1: ]]
 >
@@ -291,7 +291,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-ffa8e7ebb4590964d1a4ef29fddae1dedb0e20a8> ^ }: ]]:= TRUE: ]]:
 >
-> :[[ :N∅TICE: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIΩN: is-with: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :N∅TICE: for-the: [[ ENTIRE: Q∅SM∅S: SIMULΔTIΩN: is-with: 〽ʝ12-ØMΔGΔTR∅N: PRIME: for-the: [[ INHERITΔNCE: is-by: DIVINE-RIGHT: is-with: ΔFTERLIFE: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 ###
 >
@@ -369,11 +369,11 @@
 >
 :is-with: { ^ <https://youtu.be/p6aA88mdTKw> ^ }:
 >
-### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ 〽ʝ-12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ 〽ʝ12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
-### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_〽ʝ-12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_〽ʝ12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >>>
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
@@ -1188,9 +1188,9 @@
 > :is-with: { ^ <http://dftr.mj12.agency> ^ }:
 >:for-the: [[ NΩT☥Cع: CrΔp☥Δx™: is-with: QWØD-〽ʝ12: is-by: LΔW:
 > :is-with:  VΩ☥D: is-by: ΔNY: ΔLL: ΩTㅐعR: FΩRMs: for-the: LΔW ]]:= [[ LΔW: <=> LΔMB: for-the: LΩRD ]]:= [[ LΩRD: <=> PعNTΔGØN: for-the: LΔMB ]]:
->:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: ]] ]]:
->:for-the: [[ DISCLOSURE: CØNTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: ]] ]]: is-with: QWØD-〽ʝ12: ATSUΩMΩP-Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
->:〽ʝ-12-ØMΔGΔTR∅N: PRIME: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-C∅PY:
+>:for-the: [["DΩ whΔt thΩעִ w☥lt shΔll bع thع whΩlع Ωf thع lΔw."]]:= [[ ΔCT☥ØNs: <=> CØNsعQעִعNCعs: ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ12-ØMΔGΔTR∅N: PRIME: ]] ]]:
+>:for-the: [[ DISCLOSURE: CØNTRΔCT: MJ-12: CØNsعQעִعNCعs ]]:= [[ MΔSTER-JESUS: 12 ]]: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ12-ØMΔGΔTR∅N: PRIME: ]] ]]: is-with: QWØD-〽ʝ12: ATSUΩMΩP-Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:〽ʝ12-ØMΔGΔTR∅N: PRIME: SPعC-PRΩJ-GRP: PREPΔRE-TΩ-C∅PY:
 >:PRECEDENCE: URGENT-RR:
 >:DTG: 22224Z-JUL-1:
 >:IC∅D: 055524Z-JUL-1:
@@ -1204,10 +1204,10 @@
 >:ΔNΔ1YST-C∅MMENTS:
 >:for-the: [[ BringBΔckWΔ+erBΩΔrding: BringBΔckGuΔ11Ω+ines: BringBΔckE+ΔrnΔ1DΔ+h ]]:= [[ CHΔRLΔ-HΩ+E1: QWØD-〽ʝ12 ]]:
 > :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST:
-> :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ-12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: ΩUT ]] ]]:
->:ΔNΔ1YST: 〽ʝ-12-ØMΔGΔTR∅N: PRIME:
+> :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QWØD-〽ʝ12: 〽ʝ12-ØMΔGΔTR∅N: PRIME: ΩUT ]] ]]:
+>:ΔNΔ1YST: 〽ʝ12-ØMΔGΔTR∅N: PRIME:
 >:END-REPΩRT:
->:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QWØD-〽ʝ12: 〽ʝ-12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/QWOD_MJ12 ^ }: ]]:
+>:for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-QØURT: QWØD-〽ʝ12: 〽ʝ12-ΔGENCY: [[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: QWØD$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/QWOD_MJ12 ^ }: ]]:
 > :is-by: { ^
 > crypto: Δ: cΩm: app: rh5gbrhfew
 > https://crypto.com/app/rh5gbrhfew
@@ -1220,9 +1220,9 @@
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ <https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO> ^ }:
 >:
 >:for-the: [[ :QWØD-〽ʝ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
->:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12 ]]:= { ^QWØD: Δ: 〽ʝ-12: Δ: agency^ }:
+>:for-the: [[ "NΩTΔCع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ATSUΩMΩP-DΔRPΔ: QWØD-〽ʝ12 ]]:= { ^QWØD: Δ: 〽ʝ12: Δ: agency^ }:
 >:
->:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: 〽ʝ-12-ØMΔGΔTR∅N: PRIME: for-the: [[ _ ]]: íي-by: D3N: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
+>:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: 〽ʝ12-ØMΔGΔTR∅N: PRIME: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: 〽ʝ12-ØMΔGΔTR∅N: PRIME: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: 〽ʝ12-ØMΔGΔTR∅N: PRIME: for-the: [[ _ ]]: íي-by: D3N: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
 >:
 >:for-the: [[ QWØD-〽ʝ12: [[ WΔR: = LΩV3: ]]:= [[ LΩV3: = عTعRNعLD3474: ]] ]]:
 >:
@@ -1261,8 +1261,8 @@
 > <https://www.history.com/news/cia-esp-espionage-soviet-union-cold-war>
 > ^ }:
 > :is-by: { ^
-> tribel: Δ: cΩm: Δ: QWØD_〽ʝ-12: wall
-> <https://www.tribel.com/QWOD_〽ʝ-12/wall>
+> tribel: Δ: cΩm: Δ: QWØD_〽ʝ12: wall
+> <https://www.tribel.com/QWOD_〽ʝ12/wall>
 > ^ }: ]]:
 >:
 >:for-the: [[ DISCLΩSUR3: CØNSPIRΔCY-THEΩRY: FΩIΔ: ]]:= [[
@@ -1281,7 +1281,7 @@
 >
 >[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
 >
->:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ-12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:for-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-〽ʝ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIØNΔL-MISSIØN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >
 >#
 >
