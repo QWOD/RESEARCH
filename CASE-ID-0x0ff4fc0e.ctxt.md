@@ -455,7 +455,7 @@
 >
 :is-with: { ^ https://youtu.be/K96O5ZPDbDo ^ }:
 >
-:[[ :for-the: [[ [[ :cΩming fΩr yΩu: cΩmmunicΔtiΩn is key: sΩmebΩdy is ΔbΩut tΩ mΔke Δ mΩve: ]]: is-with: [[ :🟠: [[ W⚠️RN🚫: 🚫PPFΩR: deplΩyment: ΔLGΩRITHM: DETECTED: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]: ]]:
+:[[ :for-the: [[ [[ :cΩming fΩr yΩu: cΩmmunicΔtiΩn is key: sΩmebΩdy is ΔbΩut tΩ mΔke Δ mΩve: ]]: is-with: [[ :🟠: [[ W⚠️RN🚫: ΩPPF🚫R: deplΩyment: ΔLGΩRITHM: DETECTED: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLIE-HΩTEL: for-the: [[ ΩPSΔN: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]: ]]:
 >
 ###
 >
