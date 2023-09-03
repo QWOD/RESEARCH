@@ -385,7 +385,7 @@
 >>>
 >###
 >
->![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
+>![:ΔZRΔEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ΔZRΔEL_1060x150.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-698a1648628de8e6ecb08c890a724de13de018bc> ^ }: ]]:= TRUE: ]]:
 >
@@ -419,7 +419,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-f8142d0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f8142d0e.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-e9f95d7422bf18f9d1b84432d163ed66f3e9ec06> ^ }: ]]:= AZRAEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-e9f95d7422bf18f9d1b84432d163ed66f3e9ec06> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
@@ -477,7 +477,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-b2a54ca6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-b2a54ca6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-893f8e481076b2fdc2318c36cc4bb8a8ff44a5c8> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-893f8e481076b2fdc2318c36cc4bb8a8ff44a5c8> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :Stillwater prison lockdown: Officials to speak with media: ]]:
 >
@@ -487,7 +487,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-2b100b59.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2b100b59.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-9fcb3a149e4cbe660beaeea72304518abe5a41c8> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9fcb3a149e4cbe660beaeea72304518abe5a41c8> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :Message for U.S. citizens in Haiti: Leave ASAP: ]]:
 >
@@ -497,7 +497,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-8496932e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-8496932e.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-70ac3e7edd66224d11ecf2e9678946ceaec72e46> ^ }: ]]:= AZRAEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-70ac3e7edd66224d11ecf2e9678946ceaec72e46> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Reddit: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
@@ -507,7 +507,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-4ef1340b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-4ef1340b.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-fa949932af1d52813a2ca0b7e449e7c864c021c7> ^ }: ]]:= AZRAEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-fa949932af1d52813a2ca0b7e449e7c864c021c7> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :They wanted you struggling, so you would be too occupied to notice them stealing your inheritance✨️: ]]:
 >
@@ -515,7 +515,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= AZRAEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-91f76de1dd565ffab8a5386908676177ec4c0759> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :Flooding forces Burning Man attendees to shelter in place: ]]:
 >
@@ -536,6 +536,20 @@
 [[ :Ω: ]]:
 >
 :is-with: { ^ Δ ^ }:
+>
+### :[[ [[ :RESEΔRCH: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> TRUE: JESUS: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+>>>
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+>>>
+### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+>>>
+>### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
+>
+>[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+>>>
+>###
+>
+>![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
 ###
 >
@@ -1193,7 +1207,7 @@
 
 ###
 >
-# :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
+# :[[ :ΔZRΔEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
 >
 ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
 
