@@ -495,11 +495,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-8496932e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-8496932e.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://www.reddit.com/r/QWOD/> ^ }:
 >
 ###
 >
