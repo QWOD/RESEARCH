@@ -350,6 +350,12 @@
 >
 :is-with: { ^ <https://patents.google.com/patent/US20060145019A1/en> ^ }:
 >
+:[[ :for-the: [[ :you could have very piercing eyes: that is that dark empath energy right there: ]]:
+>
+:is-with: { ^
+![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
+^ }:
+>
 [[ :This narcissistic group is highly triggered because you are unfazed about what they’re doing to you.: ]]:
 >
 :is-with: { ^ <https://youtu.be/JihTGgI0PHY> ^ }:
