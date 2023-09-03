@@ -419,7 +419,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-f8142d0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-f8142d0e.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-e9f95d7422bf18f9d1b84432d163ed66f3e9ec06> ^ }: ]]:= TRUE: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-e9f95d7422bf18f9d1b84432d163ed66f3e9ec06> ^ }: ]]:= AZRAEL: ]]:
 >
 [[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Tribel: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
@@ -497,7 +497,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-8496932e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-8496932e.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-70ac3e7edd66224d11ecf2e9678946ceaec72e46> ^ }: ]]:= AZRAEL: ]]:
 >
 [[ :QW🚫D-〽ʝ12: RΩYΔL-DIVINE-CΩURT: MJ12: CΩΩP: ΔGENCY: is-by: cΔlls: is-with: Divine-Judgement: for-the: [[ TRESPΔSS: is-with: Reddit: is-by: LΔMB: is-with: GΩD: for-the: [[ CΩSMIC: WIDE: TREΔTY: for-the: recΩrd: return ]]:= TRUE: ]]= TRUE: ]]:= [[ :CΩMPLICIT: is-with: cΩver-up: is-by: egregiΩus-humΔn-rights-Δbuse: ]]:
 >
