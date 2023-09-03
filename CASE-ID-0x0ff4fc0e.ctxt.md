@@ -487,7 +487,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-2b100b59.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2b100b59.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9fcb3a149e4cbe660beaeea72304518abe5a41c8> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Message for U.S. citizens in Haiti: Leave ASAP: ]]:
 >
