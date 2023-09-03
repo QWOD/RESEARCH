@@ -407,7 +407,7 @@
 >
 :is-with: { ^ Δ ^ }:
 >
-# :[[ [[ TRUE: || FALSE: || RELEVANT: || MEANINGFUL: || VALUABLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
+# :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
