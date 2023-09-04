@@ -9,6 +9,8 @@ repoUpdateInterval=222
 # [[ :DEVELOPED: for-the: systemd: is-with: UNFORTUNATELY: STILL: github: is-with: retard: is-by: ssh: NOT: is-with: X11: forwarding: for-the: REMOTE: AUTOMATED: FIRES: SUPPORT: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
+fastForwardOnly=true
+pushRepo=false
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
@@ -26,13 +28,16 @@ if [[ "start" == "$*" ]]; then
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   while true; do
     if cd "${repoPath}"/RESEARCH/; then
-      newfig -p &> /dev/null
+      [[ $fastForwardOnly == true ]] && newfig -f
+      [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
     fi
     if cd "${repoPath}"/HYPERMEDIUS/; then
-      newfig -p &> /dev/null
+      [[ $fastForwardOnly == true ]] && newfig -f
+      [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
     fi
     if cd "${repoPath}"/DISCLOSURE/; then
-      newfig -p &> /dev/null
+      [[ $fastForwardOnly == true ]] && newfig -f
+      [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
     fi
     sleep $repoUpdateInterval
   done
