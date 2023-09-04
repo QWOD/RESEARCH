@@ -637,9 +637,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Incredible Destruction in China! Flash Flooding destroys everything in its path in Beijing: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/9ao0zmQbjHk ^ }:
 >
 ###
 >
