@@ -651,7 +651,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b2800f5442d20706a3732ee7945bc5876ac45bc5> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :You CAN’T be SERIOUS….: ]]:
 >
@@ -659,6 +659,8 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-820e8d43.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-820e8d43.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Ω: ]]:
@@ -667,11 +669,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-62c28e8d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-62c28e8d.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Turkey Covered in Flames! Wildfire destroys all life in Çanakkale, Türkiye: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/7I0Yd8kH5gI ^ }:
 >
 ###
 >
