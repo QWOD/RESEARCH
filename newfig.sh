@@ -4,10 +4,11 @@
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 goPath="${HOME}/go"
 brevity=513
+localRepoPath="${HOME}/hyperstor/QWOD"
 sshKey="/var/home/hyperuser/.ssh/id_rsa"
 sshHost=secure.us.hyperspire.net
-fastForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
-pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
+localForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
+remoteForwardOnly=false # :[[ :LOCAL-GIT-TREE: ]]:
 
 if [ -x "${goPath}/bin/go" ]; then
   [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
@@ -22,15 +23,21 @@ function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
 
-function fastForward() {
+function remoteForward() {
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f'"
 }
 
+function localForward() {
+  cd "${localRepoPath}/HYPERMEDIUS" || exit; git pull --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit; git pull --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit; git pull --ff-only
+}
+
 if [[ $* == "-f" ]]; then
-  [[ $fastForwardOnly == true ]] && fastForward
-  [[ $pushRepo == true ]] && newfig -p &> /dev/null
+  [[ $remoteForwardOnly == true ]] && remoteForward
+  [[ $localForwardOnly == true ]] && localForward
   exit 0
 fi
 if [[ $* == "-r"  ]]; then
