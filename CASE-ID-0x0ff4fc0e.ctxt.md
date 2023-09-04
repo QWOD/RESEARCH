@@ -679,7 +679,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b9ec32cfe49693d25209efe641897428d3584d79> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Another Earthquake in Turkey! M5.6 Earthquake destroyed buildings in Malatya, Turkey: ]]:
 >
@@ -695,7 +695,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-af0a3e96c757dfed4998864e1515147d3a3da1d6> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Car with giant bull as passenger pulled over by Nebraska police: ]]:
 >
@@ -705,17 +705,17 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Border officers fire pepper balls at migrants attempting mass entry: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/i2V9bHlFPx0 ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Two 10-year-olds caught working at McDonalds.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/nzsFYmY7YcI ^ }:
 >
 ###
 >
