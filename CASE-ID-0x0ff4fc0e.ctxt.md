@@ -863,9 +863,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Natural Disasters for Today - Flooding in Las Vegas, China Typhoon Saola, Europe Storm (03.09.2023): ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/EWDs8WJCAIU> ^ }:
 >
 ###
 >
