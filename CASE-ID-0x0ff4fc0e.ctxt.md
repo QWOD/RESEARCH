@@ -877,7 +877,9 @@
 >
 :is-with: { ^ <https://youtu.be/EWDs8WJCAIU> ^ }:
 >
-:[[ :🟠: [[ W⚠️RN🚫: fΩr-the: [[ CΩPPER-ΩXIDE: is-with: green-meteΩrites: is-by: ΔlreΔdy: is-with: entering-ΔtmΩsphere: is-with: Nibiru: imminent-ΔpprΩΔch: is-with: extinctiΩn-level-event: is-by: VERY-NEΔR: fΩr-the: return ]]:= TRUE: ]]: ]]:
+:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ CΩPPER-ΩXIDE: is-with: green-meteΩrites: is-by: ΔlreΔdy: is-with: entering-ΔtmΩsphere: is-with: Nibiru: imminent-ΔpprΩΔch: is-with: extinctiΩn-level-event: is-by: VERY-NEΔR: for-the: return ]]:= TRUE: ]]: ]]:
+>
+:is-with: { ^ <https://www.youtube.com/results?search_query=green+meteorite&sp=EgIIBA%253D%253D> ^ }: for-the: [[ FILTER: is-by: LAST: is-with: MΩNTH: ]]:
 >
 ###
 >
