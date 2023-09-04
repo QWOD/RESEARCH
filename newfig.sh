@@ -17,17 +17,13 @@ function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
 
-if [[ $* == "-f" && $* != "-p" && $* != "-r"  ]]; then
+if [[ $* == "-f" ]]; then
   git pull --ff-only
 fi
-if [[ $* != "-r" && $* != "-p" && $* != "-f"  ]]; then
-  echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
-  echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
-fi
-if [[ $* == "-r" && $* != "-p" && $* != "-f"  ]]; then
+if [[ $* == "-r"  ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
-if [[ $* == "-p" && $* != "-r" && $* != "-f"  ]]; then
+if [[ $* == "-p"  ]]; then
   ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
   git config --global user.email "${USER}@mj12.agency"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
@@ -40,4 +36,8 @@ if [[ $* == "-p" && $* != "-r" && $* != "-f"  ]]; then
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
   git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QWØD-MJ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
   git push
+fi
+if [[ $* != ""  ]]; then
+  echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
+  echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
 fi
