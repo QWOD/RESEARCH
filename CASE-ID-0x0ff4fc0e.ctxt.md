@@ -629,7 +629,7 @@
 >
 :is-with: { ^ https://youtu.be/4pge94uXXmE ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-6ed184a2708c6f96ea1d64538d1f344eb1556cc0> ^ }: ]]:= [[ TRUE: ^ ΔZRΔEL: ]]: ]]:
 >
 :[[ :🟠: [[ W⚠️RN🚫: cΩvering-up-crimes-cΩmmitted-ΔgΔinst-innΩcent: is-with: wΩrst-pΩssible-thing-ΔnyΩne-cΔn-dΩ: is-by: nΩw: is-with: present-cΩmmitt-time: ]]: ]]:
 >
