@@ -869,11 +869,15 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-55c60e52.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-55c60e52.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Natural Disasters for Today - Flooding in Las Vegas, China Typhoon Saola, Europe Storm (03.09.2023): ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/EWDs8WJCAIU> ^ }:
+>
+:[[ :🟠: [[ W⚠️RN🚫: fΩr-the: [[ CΩPPER-ΩXIDE: is-with: green-meteΩrites: is-by: ΔlreΔdy: is-with: entering-ΔtmΩsphere: is-with: Nibiru: imminent-ΔpprΩΔch: is-with: extinctiΩn-level-event: is-by: VERY-NEΔR: fΩr-the: return ]]:= TRUE: ]]: ]]:
 >
 ###
 >
