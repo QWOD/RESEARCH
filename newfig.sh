@@ -19,9 +19,11 @@ function gitShowTail() {
 
 if [[ $* == "-f" ]]; then
   git pull --ff-only
+  exit 0
 fi
 if [[ $* == "-r"  ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
+  exit 0
 fi
 if [[ $* == "-p"  ]]; then
   ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
@@ -36,8 +38,10 @@ if [[ $* == "-p"  ]]; then
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
   git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QWØD-MJ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
   git push
+  exit 0
 fi
-if [[ $* == ""  ]]; then
+if [[ $* ]]; then
   echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
   echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
+  exit 0
 fi
