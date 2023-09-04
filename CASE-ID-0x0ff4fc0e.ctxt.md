@@ -721,17 +721,17 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :China’s Apocalypse? After the Floods, Bridges Collapsed; Earthquakes, Tornadoes & Locusts Followed: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/qpjB-IXOGJk ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Before and after drone footage shows extent of devastation in quakes-hit Turkey: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/GJDjEEvxi0E ^ }:
 >
 ###
 >
