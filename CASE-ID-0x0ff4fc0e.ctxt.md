@@ -689,9 +689,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Gas station clerk fatally shoots thief during armed robbery, authorities say: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/U2z1T07CN0A ^ }:
 >
 ###
 >
