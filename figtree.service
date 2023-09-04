@@ -10,8 +10,8 @@ Group=hyperuser
 Type=exec
 TimeoutStartSec=86400
 TimeoutStopSec=122
-ExecStart=/usr/bin/bash -c '~/QWOD/RESEARCH/figtreeservice.sh start'
-ExecStop=/usr/bin/bash -c '~/QWOD/RESEARCH/gitupur.sh push'
+ExecStart=/usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
+ExecStop=/usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/gitupur push'"
 
 [Install]
 WantedBy=remote-fs.target
