@@ -617,11 +617,17 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-6ee4fe8c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6ee4fe8c.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Frankfurt Airport Completely Flooded! Scary Flooding in Frankfurt, Germany: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/s2Qhz9cfI3E ^ }:
+>
+[[ :Emergency evacuation in Canada right now! Historical flooding in Baie-saint-paul: ]]:
+>
+:is-with: { ^ https://youtu.be/4pge94uXXmE ^ }:
 >
 ###
 >
