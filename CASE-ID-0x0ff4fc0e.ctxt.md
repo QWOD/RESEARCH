@@ -967,9 +967,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :LOS ANGELES CALIFORNIA’S SKID ROW VS. PHILADELPHIA PENNSYLVANIA’S SKID ROW: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/VH8X6c64qrE> ^ }:
 >
 ###
 >
