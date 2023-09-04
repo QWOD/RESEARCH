@@ -855,9 +855,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Whole City Destroyed in seconds: Extreme Weather Moments from August 23 to 29th: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/dbRF3G2jKNY> ^ }:
 >
 ###
 >
