@@ -939,7 +939,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-85db83797aee033bf58cd2a74192d874ab5f7d9c> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Real story of what is happening | August. 22. 2023: ]]:
 >
@@ -951,9 +951,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Unreported Worlds: Fleeing Poverty in Venezuela & One Way Ticket to Gangland in El Salvador: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/6fbuvOj2Bz4> ^ }:
 >
 ###
 >
