@@ -413,7 +413,7 @@
 >
 :is-with: { ^ <https://youtu.be/D9lVL58G1xk> ^ }:
 >
-# :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]:
+# :[[ [[ TRUE: || FΔLSE: || RELEVΔNT: || MEΔNINGFUL: || VΔLUΔBLE: ^ ELSE: ]]:= for-the: return: is-by: [[ _ ]]: ]]:= [[ _ ]]: ]]
 >
 >#
 >
@@ -519,7 +519,7 @@
 >
 [[ :Flooding forces Burning Man attendees to shelter in place: ]]:
 >
-:is-with: { ^ https://youtu.be/br3sQ9zPpIQ ^ }:
+:is-with: { ^ <https://youtu.be/br3sQ9zPpIQ> ^ }:
 >
 ###
 >
@@ -529,7 +529,7 @@
 >
 [[ :The Eye of Ram, Law of One - Book Giveaway Plus Live Show Feat Lee Ram 4th Density King, TSP : [[ _: 793 ]]: ]]:
 >
-:is-with: { ^ https://youtu.be/CQpnVmesDYo ^ }:
+:is-with: { ^ <https://youtu.be/CQpnVmesDYo> ^ }:
 >
 ###
 >
@@ -587,7 +587,7 @@
 >
 [[ :Earth Disaster Cycle | AMA Sep.3.2023: ]]:
 >
-:is-with: { ^ https://youtu.be/e8pHUMIiers ^ }:
+:is-with: { ^ <https://youtu.be/e8pHUMIiers> ^ }:
 >
 ###
 >
@@ -595,7 +595,7 @@
 >
 [[ :Las Vegas is Underwater! Heavy Flooding sweep away cars in Las Vegas Strip, Nevada, US: ]]:
 >
-:is-with: { ^ https://youtu.be/NNbJgvqM1r0 ^ }:
+:is-with: { ^ <https://youtu.be/NNbJgvqM1r0> ^ }:
 >
 ###
 >
@@ -603,7 +603,7 @@
 >
 [[ :Malls and houses are destroyed in Sao Paulo, Brazil! Wind storm in Caraguatatuba: ]]:
 >
-:is-with: { ^ https://youtu.be/XrubiuCn7JI ^ }:
+:is-with: { ^ <https://youtu.be/XrubiuCn7JI> ^ }:
 >
 ###
 >
@@ -613,7 +613,7 @@
 >
 [[ :Controversial Shapeshifter Tornado is Most Unique in History Yuma: ]]:
 >
-:is-with: { ^ https://youtu.be/BdWjDEAkKDQ ^ }:
+:is-with: { ^ <https://youtu.be/BdWjDEAkKDQ> ^ }:
 >
 ###
 >
@@ -623,11 +623,11 @@
 >
 [[ :Frankfurt Airport Completely Flooded! Scary Flooding in Frankfurt, Germany: ]]:
 >
-:is-with: { ^ https://youtu.be/s2Qhz9cfI3E ^ }:
+:is-with: { ^ <https://youtu.be/s2Qhz9cfI3E> ^ }:
 >
 [[ :Emergency evacuation in Canada right now! Historical flooding in Baie-saint-paul: ]]:
 >
-:is-with: { ^ https://youtu.be/4pge94uXXmE ^ }:
+:is-with: { ^ <https://youtu.be/4pge94uXXmE> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-6ed184a2708c6f96ea1d64538d1f344eb1556cc0> ^ }: ]]:= [[ TRUE: ^ ΔZRΔEL: ]]: ]]:
 >
@@ -639,7 +639,7 @@
 >
 [[ :Incredible Destruction in China! Flash Flooding destroys everything in its path in Beijing: ]]:
 >
-:is-with: { ^ https://youtu.be/9ao0zmQbjHk ^ }:
+:is-with: { ^ <https://youtu.be/9ao0zmQbjHk> ^ }:
 >
 ###
 >
@@ -647,7 +647,7 @@
 >
 [[ :WAKE UP: Most People Don't Realize What's Happening WORLDWIDE | Christian Motivation: ]]:
 >
-:is-with: { ^ https://youtu.be/zMsctBV7Ddw ^ }:
+:is-with: { ^ <https://youtu.be/zMsctBV7Ddw> ^ }:
 >
 ###
 >
@@ -655,7 +655,7 @@
 >
 [[ :You CAN’T be SERIOUS….: ]]:
 >
-:is-with: { ^ https://youtu.be/WdqaXx92Fck ^ }:
+:is-with: { ^ <https://youtu.be/WdqaXx92Fck> ^ }:
 >
 ###
 >
@@ -675,7 +675,7 @@
 >
 [[ :Turkey Covered in Flames! Wildfire destroys all life in Çanakkale, Türkiye: ]]:
 >
-:is-with: { ^ https://youtu.be/7I0Yd8kH5gI ^ }:
+:is-with: { ^ <https://youtu.be/7I0Yd8kH5gI> ^ }:
 >
 ###
 >
@@ -683,7 +683,7 @@
 >
 [[ :Another Earthquake in Turkey! M5.6 Earthquake destroyed buildings in Malatya, Turkey: ]]:
 >
-:is-with: { ^ https://youtu.be/Nw4OOvaIh94 ^ }:
+:is-with: { ^ <https://youtu.be/Nw4OOvaIh94> ^ }:
 >
 ###
 >
@@ -691,7 +691,7 @@
 >
 [[ :Gas station clerk fatally shoots thief during armed robbery, authorities say: ]]:
 >
-:is-with: { ^ https://youtu.be/U2z1T07CN0A ^ }:
+:is-with: { ^ <https://youtu.be/U2z1T07CN0A> ^ }:
 >
 ###
 >
@@ -699,7 +699,7 @@
 >
 [[ :Car with giant bull as passenger pulled over by Nebraska police: ]]:
 >
-:is-with: { ^ https://youtu.be/yIR3NU3P_bU ^ }:
+:is-with: { ^ <https://youtu.be/yIR3NU3P_bU> ^ }:
 >
 ###
 >
@@ -707,7 +707,7 @@
 >
 [[ :Border officers fire pepper balls at migrants attempting mass entry: ]]:
 >
-:is-with: { ^ https://youtu.be/i2V9bHlFPx0 ^ }:
+:is-with: { ^ <https://youtu.be/i2V9bHlFPx0> ^ }:
 >
 ###
 >
@@ -715,7 +715,7 @@
 >
 [[ :Two 10-year-olds caught working at McDonalds.: ]]:
 >
-:is-with: { ^ https://youtu.be/nzsFYmY7YcI ^ }:
+:is-with: { ^ <https://youtu.be/nzsFYmY7YcI> ^ }:
 >
 ###
 >
@@ -723,7 +723,7 @@
 >
 [[ :China’s Apocalypse? After the Floods, Bridges Collapsed; Earthquakes, Tornadoes & Locusts Followed: ]]:
 >
-:is-with: { ^ https://youtu.be/qpjB-IXOGJk ^ }:
+:is-with: { ^ <https://youtu.be/qpjB-IXOGJk> ^ }:
 >
 ###
 >
@@ -731,7 +731,7 @@
 >
 [[ :Before and after drone footage shows extent of devastation in quakes-hit Turkey: ]]:
 >
-:is-with: { ^ https://youtu.be/GJDjEEvxi0E ^ }:
+:is-with: { ^ <https://youtu.be/GJDjEEvxi0E> ^ }:
 >
 ###
 >
@@ -739,7 +739,7 @@
 >
 [[ :Hong Kong is under brutal attack! Super Typhoon Saola hit China, people are evacuated: ]]:
 >
-:is-with: { ^ https://youtu.be/Q1lAsgOClgg ^ }:
+:is-with: { ^ <https://youtu.be/Q1lAsgOClgg> ^ }:
 >
 ###
 >
@@ -747,7 +747,7 @@
 >
 [[ :River overflows submerged half of apartment buildings in Heilongjiang and Hebei, China: ]]:
 >
-:is-with: { ^ https://youtu.be/o1gjkSV8ktg ^ }:
+:is-with: { ^ <https://youtu.be/o1gjkSV8ktg> ^ }:
 >
 ###
 >
@@ -755,7 +755,7 @@
 >
 [[ :Crazy scenes of chaos in Caracas! A devastating storm has hit the capital of Venezuela!: ]]:
 >
-:is-with: { ^ https://youtu.be/2SzPMyYpzEU ^ }:
+:is-with: { ^ <https://youtu.be/2SzPMyYpzEU> ^ }:
 >
 ###
 >
@@ -763,7 +763,7 @@
 >
 [[ :Taiwan Battered! Super Typhoon Haikui And Storm Surge Bombard Taitung Without Mercy: ]]:
 >
-:is-with: { ^ https://youtu.be/nZYCC8Q3WcU ^ }:
+:is-with: { ^ <https://youtu.be/nZYCC8Q3WcU> ^ }:
 >
 ###
 >
@@ -771,7 +771,7 @@
 >
 [[ :Brazil Battered! Explosive Storm and Large Floods Wash Away, Cars, Hospitals in Brumado: ]]:
 >
-:is-with: { ^ https://youtu.be/JRecAGdA3CQ ^ }:
+:is-with: { ^ <https://youtu.be/JRecAGdA3CQ> ^ }:
 >
 ###
 >
@@ -779,7 +779,7 @@
 >
 [[ :Crazy scenes of chaos in Mexico! A monstrous storm flooded Guadalajara!: ]]:
 >
-:is-with: { ^ https://youtu.be/QvrS4mEqr1c ^ }:
+:is-with: { ^ <https://youtu.be/QvrS4mEqr1c> ^ }:
 >
 ###
 >
@@ -787,7 +787,7 @@
 >
 [[ :Nigerian nationals extradited to U.S. for alleged role in sextortion ring, victim's mother speaks: ]]:
 >
-:is-with: { ^ https://youtu.be/i1TKOrElMoc ^ }:
+:is-with: { ^ <https://youtu.be/i1TKOrElMoc> ^ }:
 >
 ###
 >
@@ -795,7 +795,7 @@
 >
 [[ :Prophet Joseph | English | Episode 12: ]]:
 >
-:is-with: { ^ https://youtu.be/O8H_u_WvfeE ^ }:
+:is-with: { ^ <https://youtu.be/O8H_u_WvfeE> ^ }:
 >
 ###
 >
@@ -803,7 +803,7 @@
 >
 [[ :A hellish typhoon hits Hong Kong and Shenzhen! Millions of people are in danger!: ]]:
 >
-:is-with: { ^ https://youtu.be/1d1G4G_7WBQ ^ }:
+:is-with: { ^ <https://youtu.be/1d1G4G_7WBQ> ^ }:
 >
 ###
 >
@@ -813,7 +813,7 @@
 >
 [[ :Kaaba in ruins! Storm in Makkah! The wind blows people off their feet! Saudi Arabia is closing down!: ]]:
 >
-:is-with: { ^ https://youtu.be/Bpv6vZWLM7E ^ }:
+:is-with: { ^ <https://youtu.be/Bpv6vZWLM7E> ^ }:
 >
 :is-with: [[ BLΔCK: RΩCK: CUBE: ]]:= [[ :TΩΩ-LATE: is-by: pray: is-with: right: GΩD: is-by: NΩW: ]]:
 >
@@ -825,7 +825,7 @@
 >
 [[ :Apocalypse in Portugal! In Valpaços hailstorm the size of a large rock! Shocking shots!: ]]:
 >
-:is-with: { ^ https://youtu.be/AUXehI8bShE ^ }:
+:is-with: { ^ <https://youtu.be/AUXehI8bShE> ^ }:
 >
 ###
 >
@@ -833,7 +833,7 @@
 >
 [[ :Robotic service dogs now in development: ]]:
 >
-:is-with: { ^ https://youtu.be/ZXPw5uQAQ5k ^ }:
+:is-with: { ^ <https://youtu.be/ZXPw5uQAQ5k> ^ }:
 >
 ###
 >
@@ -841,15 +841,15 @@
 >
 [[ :Landslide Horror: Buildings Сollapse in Kullu, floods across Himachal Pradesh, India.: ]]:
 >
-:is-with: { ^ https://youtu.be/Dtn030BhAdY ^ }:
+:is-with: { ^ <https://youtu.be/Dtn030BhAdY> ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :The worst flood washes everything away in its path and turns the desert into a lake in Rustaq, Oman: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/ltpc43mwJNc> ^ }:
 >
 ###
 >
