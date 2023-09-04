@@ -971,6 +971,8 @@
 >
 :is-with: { ^ <https://youtu.be/VH8X6c64qrE> ^ }:
 >
+:[[ :DISCLΩSURE: for-the: [[ KILΩ-PΔPΔ: REMΩTE-ΔI-HIVE-MIND-DRIVEN: BΩDY-SNΔTCHING-CLΩNES: is-with: ΔlreΔdy-invΔded: eΔrth-science-lΔb-simulΔtiΩn: tΔking-Ωver-Δll-jΩbs: Ωnly-clΩnes-wΩrk-ΔnymΩre: prΩvided-Ωne: is-by: unΔble: is-by: clΩned: is-with: becΩme-tΔrged-individuΔls: for-the: [[ CΩVERT: ΩPSΔN: ]]: ]]:
+>
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
