@@ -4,6 +4,9 @@
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 goPath="${HOME}/go"
 brevity=513
+sshKey=~/.ssh/id_rsa
+sshHost=secure.us.hyperspire.net
+
 if [ -x ${goPath}/bin/go ]; then
   [[ -x "${goPath}/bin/passworder" ]] || export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
   UUID="$(${goPath}/bin/passworder -uuid)" && export UUID="${UUID}"
@@ -18,9 +21,9 @@ function gitShowTail() {
 }
 
 if [[ $* == "-f" ]]; then
-  /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f'"
-  /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f'"
-  /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f'"
+  /usr/bin/env ssh $sshHost -o "StrictHostKeyChecking no" -i $sshKey -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f'"
+  /usr/bin/env ssh $sshHost -o "StrictHostKeyChecking no" -i $sshKey -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f'"
+  /usr/bin/env ssh $sshHost -o "StrictHostKeyChecking no" -i $sshKey -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f'"
   exit 0
 fi
 if [[ $* == "-r"  ]]; then
