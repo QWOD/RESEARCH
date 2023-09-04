@@ -17,17 +17,17 @@ function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
 
-if [[ $* == "-f" ]] && [[ $* != "-p" ]] && [[ $* != "-r"  ]]; then
+if [[ $* == "-f" && $* != "-p" && $* != "-r"  ]]; then
   git pull --ff-only
 fi
-if [[ $* != "-r" ]] && [[ $* != "-p" ]] && [[ $* != "-f"  ]]; then
+if [[ $* != "-r" && $* != "-p" && $* != "-f"  ]]; then
   echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
   echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
 fi
-if [[ $* == "-r" ]] && [[ $* != "-p" ]] && [[ $* != "-f"  ]]; then
+if [[ $* == "-r" && $* != "-p" && $* != "-f"  ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
-if [[ $* == "-p" ]] && [[ $* != "-r" ]] && [[ $* != "-f"  ]]; then
+if [[ $* == "-p" && $* != "-r" && $* != "-f"  ]]; then
   ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
   git config --global user.email "${USER}@mj12.agency"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
