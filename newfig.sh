@@ -4,8 +4,10 @@
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 goPath="${HOME}/go"
 brevity=513
-sshKey="${HOME}/.ssh/id_rsa"
+sshKey="/var/home/hyperuser/.ssh/id_rsa"
 sshHost=secure.us.hyperspire.net
+fastForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
+pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
 
 if [ -x "${goPath}/bin/go" ]; then
   [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
@@ -20,10 +22,15 @@ function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
 
-if [[ $* == "-f" ]]; then
+function fastForward() {
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f'"
+}
+
+if [[ $* == "-f" ]]; then
+  [[ $fastForwardOnly == true ]] && fastForward
+  [[ $pushRepo == true ]] &&  git pull --ff-only
   exit 0
 fi
 if [[ $* == "-r"  ]]; then
