@@ -1,4 +1,4 @@
-# sudo cp ~/QWOD/RESEARCH/figtree.service /etc/systemd/system; sudo systemctl enable --now figtree.service
+# sudo cp figtree.service /etc/systemd/system; sudo systemctl enable --now figtree.service
 [Unit]
 Description=figtree.service
 Wants=remote-fs.target
@@ -10,8 +10,8 @@ Group=hyperuser
 Type=exec
 TimeoutStartSec=86400
 TimeoutStopSec=122
-ExecStart=/usr/bin/bash -c "/var/home/hyperuser/QWOD/RESEARCH/figtreeservice.sh start"
-ExecStop=/usr/bin/bash -c "/var/home/hyperuser/QWOD/RESEARCH/gitupur.sh push"
+ExecStart=/usr/bin/bash -c '~/QWOD/RESEARCH/figtreeservice.sh start'
+ExecStop=/usr/bin/bash -c '~/QWOD/RESEARCH/gitupur.sh push'
 
 [Install]
 WantedBy=remote-fs.target
