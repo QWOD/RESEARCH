@@ -19,10 +19,6 @@ if [[ $* == "stop" ]]; then
 fi
 
 if [[ "start" == "$*" ]]; then
-#   echo $(whoami)
-#   if cd ${storagePath}; then
-#     echo $(pwd)
-#   fi
   while true; do
     if cd "${storagePath}"/RESEARCH/; then
       git config --global user.email "${USER}@mj12.agency"

@@ -1,6 +1,6 @@
 [Unit]
 Description=figtree.service
-Wants=network-online.target
+Wants=remote-fs.target
 After=network-online.target
 
 [Service]
