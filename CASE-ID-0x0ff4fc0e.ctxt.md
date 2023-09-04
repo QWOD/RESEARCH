@@ -793,25 +793,25 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Prophet Joseph | English | Episode 12: ]]:
 >
-:is-with: { ^ Δ ^ }:
->
-###
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/O8H_u_WvfeE ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :A hellish typhoon hits Hong Kong and Shenzhen! Millions of people are in danger!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/1d1G4G_7WBQ ^ }:
+>
+###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :Kaaba in ruins! Storm in Makkah! The wind blows people off their feet! Saudi Arabia is closing down!: ]]:
+>
+:is-with: { ^ https://youtu.be/Bpv6vZWLM7E ^ }:
 >
 ###
 >
