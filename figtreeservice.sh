@@ -23,7 +23,7 @@ if [[ "start" == "$*" ]]; then
 #   if cd ${storagePath}; then
 #     echo $(pwd)
 #   fi
-  while [[ $? -eq 0 ]]; do
+  while true; do
     if cd "${storagePath}"/RESEARCH/; then
       git config --global user.email "${USER}@mj12.agency"
       git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
