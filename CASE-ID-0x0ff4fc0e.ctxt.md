@@ -523,11 +523,13 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-03f62689.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-03f62689.png)
 >
-[[ :Ω: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ FΔSCINΔTING: ^ RELEVΔNT: ]]: ]]:
 >
-:is-with: { ^ Δ ^ }:
+[[ :The Eye of Ram, Law of One - Book Giveaway Plus Live Show Feat Lee Ram 4th Density King, TSP : [[ _: 793 ]]: ]]:
+>
+:is-with: { ^ https://youtu.be/CQpnVmesDYo ^ }:
 >
 ###
 >
