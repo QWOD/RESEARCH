@@ -593,9 +593,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Las Vegas is Underwater! Heavy Flooding sweep away cars in Las Vegas Strip, Nevada, US: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/NNbJgvqM1r0 ^ }:
 >
 ###
 >
