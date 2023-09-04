@@ -601,9 +601,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Malls and houses are destroyed in Sao Paulo, Brazil! Wind storm in Caraguatatuba: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/XrubiuCn7JI ^ }:
 >
 ###
 >
