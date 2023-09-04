@@ -643,7 +643,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ TRUE: && NIBIRU: ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-45731a5ae41539ef02fbbc5296427cc9cd67dcc6> ^ }: ]]:= [[ TRUE: && NIBIRU: ]]: ]]:
 >
 [[ :WAKE UP: Most People Don't Realize What's Happening WORLDWIDE | Christian Motivation: ]]:
 >
