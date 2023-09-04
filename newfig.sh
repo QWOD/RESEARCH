@@ -25,6 +25,7 @@ if [[ $* == "-r" ]] && [[ $* != "-p" ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
 fi
 if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
+  ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
   git config --global user.email "${USER}@mj12.agency"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   git config --global pull.rebase false
