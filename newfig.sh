@@ -17,12 +17,12 @@ function gitShowTail() {
   ( git show --oneline | tail -c "${brevity}" )
 }
 
-if [[ $* != "-r" ]] && [[ $* != "-p" ]]; then
-  echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
-  echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
-fi
 if [[ $* == "-f" ]] && [[ $* != "-p" ]] && [[ $* != "-r"  ]]; then
   git pull --ff-only
+fi
+if [[ $* != "-r" ]] && [[ $* != "-p" ]] && [[ $* != "-f"  ]]; then
+  echo '{ FIG: "!'"[:CASE-ID-$*-${FIG}.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-$*-${FIG}.png)\" }"
+  echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
 fi
 if [[ $* == "-r" ]] && [[ $* != "-p" ]] && [[ $* != "-f"  ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
