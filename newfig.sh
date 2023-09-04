@@ -30,7 +30,7 @@ function fastForward() {
 
 if [[ $* == "-f" ]]; then
   [[ $fastForwardOnly == true ]] && fastForward
-  [[ $pushRepo == true ]] &&  git pull --ff-only
+  [[ $pushRepo == true ]] && newfig -p &> /dev/null
   exit 0
 fi
 if [[ $* == "-r"  ]]; then
