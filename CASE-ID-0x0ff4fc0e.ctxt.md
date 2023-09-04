@@ -591,7 +591,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-815a84e6e4c622ec32ca3074d116cdc5e76501ec> ^ }: ]]:= [[ TRUE: && NIRIRU: ]]: ]]:
 >
 [[ :Las Vegas is Underwater! Heavy Flooding sweep away cars in Las Vegas Strip, Nevada, US: ]]:
 >
