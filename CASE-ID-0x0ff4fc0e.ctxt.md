@@ -559,15 +559,17 @@
 >
 [[ :USPS Worker Saves Teenage Girl From Sex Trafficking: ]]:
 >
-:is-with: { ^ https://youtu.be/R35biJ_hZqo ^ }:
+:is-with: { ^ <https://youtu.be/R35biJ_hZqo> ^ }:
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-a15b38a9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a15b38a9.png)
 >
-[[ :Ω: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= ΔZRΔEL: ]]:
 >
-:is-with: { ^ Δ ^ }:
+[[ :Burning Man 2023: Death investigation underway after flooding traps thousands | LiveNOW from FOX: ]]:
+>
+:is-with: { ^ <https://youtu.be/m5wLptI6eMQ> ^ }:
 >
 ###
 >
