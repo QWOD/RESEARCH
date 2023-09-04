@@ -13,8 +13,8 @@ repoUpdateInterval=222
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if /usr/bin/env bash -c ~/bin/gitupur push; then
-      echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+  if /usr/bin/env bash -c gitupur push; then
+      echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
   fi
   exit 0
 fi
@@ -26,13 +26,13 @@ if [[ "start" == "$*" ]]; then
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   while true; do
     if cd "${repoPath}"/RESEARCH/; then
-      ~/bin/newfig -p &> /dev/null
+      newfig -p &> /dev/null
     fi
     if cd "${repoPath}"/HYPERMEDIUS/; then
-      ~/bin/newfig -p &> /dev/null
+      newfig -p &> /dev/null
     fi
     if cd "${repoPath}"/DISCLOSURE/; then
-      ~/bin/newfig -p &> /dev/null
+      newfig -p &> /dev/null
     fi
     sleep $repoUpdateInterval
   done
