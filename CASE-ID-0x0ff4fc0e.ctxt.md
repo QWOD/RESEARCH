@@ -839,9 +839,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Landslide Horror: Buildings Сollapse in Kullu, floods across Himachal Pradesh, India.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Dtn030BhAdY ^ }:
 >
 ###
 >
