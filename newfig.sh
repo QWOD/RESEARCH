@@ -11,7 +11,7 @@ if [ -x ${goPath}/bin/go ]; then
   export FIG="$(${goPath}/bin/passworder -short)"
 else
   export UUID=$(uuidgen)
-  export FIG=$(echo $(uuidgen) | tail -c 8)
+  export FIG=$(uuidgen | tail -c 8)
 fi
 
 function gitShowTail() {
@@ -32,7 +32,7 @@ if [[ $* == "-p" ]] && [[ $* != "-r" ]]; then
   git merge --no-ff
   git pull
   for fig in "$(pwd)"/*; do
-    git add $fig
+    git add "${fig}"
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
   git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QWØD-MJ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ youtu.be/dDJldh8KqnQ ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: ^ ΔZRΔEL: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null

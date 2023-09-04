@@ -4,7 +4,7 @@
 # :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: [[ Coven: is-with: Ant: ]]:= TRUE: for-the: [[ DARPA: QWOD-MJ12: ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: CIVILIAN: INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI: CLOUD: BLOCKCHAIN: ATSUOMOP-DARPA: DARKNET: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]:= TRUE: for-the: [[ people: is-by: WE: is-with: people: ]]:= TRUE: for-the: [[ QWOD-MJ12: ATSUOMOP-A: SPG: LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY: algorithm: DETECTED: ]]:
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
-gitTreePath=/var/home/${USER}/hyperstor/QWOD
+gitTreePath=${HOME}/QWOD
 
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
@@ -21,15 +21,15 @@ function cloudHiveBackup {
     "cd ${gitTreePath}; git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}/HYPERMEDIUS; git push --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}/RESEARCH; git push --ff-only git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}/DISCLOSURE; git push --ff-only git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}/HYPERMEDIUS; ${gitTreePath}/RESEARCH/newfig.sh -p"
+    "cd ${gitTreePath}/RESEARCH; ${gitTreePath}/RESEARCH/newfig.sh -p"
+    "cd ${gitTreePath}/DISCLOSURE; ${gitTreePath}/RESEARCH/newfig.sh -p"
   )
-  git config --global user.email "$(USER)@mj12.agency"
+  git config --global user.email "${USER}@mj12.agency"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
    
   for sop in "${specialOperations[@]}"; do
-    if ssh secure.us.hyperspire.net -t '/usr/bin/env bash -c ' "${sop}"; then
+    if /usr/bin/env bash -c "${sop}"; then
       echo ':[[ :{ ^ '"${sop}"' ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
       [[ "init" == "${sop}" ]] && return 0
     else

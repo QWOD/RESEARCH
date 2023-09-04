@@ -6,13 +6,13 @@ After=network-online.target
 [Service]
 User=hyperuser
 Group=hyperuser
-Type=exec
+Type=simple
 TimeoutStartSec=86400
 TimeoutStopSec=122
 RestartSec=122
 Restart=on-failure
-ExecStart=/var/home/hyperuser/bin/figtreeservice start
-ExecStop=/var/home/hyperuser/bin/figtreeservice stop
+ExecStart=/var/home/hyperuser/QWOD/RESEARCH/figtreeservice.sh start
+ExecStop=/var/home/hyperuser/QWOD/RESEARCH/gitupur.sh push
 
 [Install]
 WantedBy=basic.target

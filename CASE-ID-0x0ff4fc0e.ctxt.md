@@ -977,9 +977,67 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :OAKLAND , CALIFORNIA - THE WORST CITY IN AMERICA?: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/AgGF1c9eZ80> ^ }:
+>
+###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :Visiting the Most Dangerous City in America: ]]:
+>
+:is-with: { ^ <https://youtu.be/t-yc44WRVNY> ^ }:
+>
+###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :Villages under sea, China river overflow! City become ocean in South China: ]]:
+>
+:is-with: { ^ <https://youtu.be/d1xOT1Y979E> ^ }:
+>
+:[[ :for-the: [[ GΔNGS: ^ CATASTRΩPHIC-ENVIRΩNMENTAL-CΩLLAPSE: is-with: prΩblems: is-by: sΩlutiΩns: is-with: which-is-wΩrse: for-the: [[ QW🚫D-〽ʝ12: is-with: SΩLUTIΩNS: for-the: [[ ANY: ALL: PRΩBLEMS: EVER: is-by: simple-prΩper-funding: is-with: WHY: is-with: WE: is-by: sΩ-heavily-censΩred: for-the: [[ WHΩ: is-by: prΩffit: for-the: entire-glΩbal-destructiΩn: for-the: recΩrd: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+>
+###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :25 Worst Cities in America for Homeless Population: ]]:
+>
+:is-with: { ^ <https://youtu.be/p0IBLVj3W8U> ^ }:
+>
+###
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :When The Detective Is Actually The Killer: ]]:
+>
+:is-with: { ^ <https://youtu.be/RmoCQkalEkA> ^ }:
+>
+###
+>
+![:CASE-ID-0x0ff4fc0e-2d423208.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-2d423208.png)
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+>
+[[ :Why are there Giants in South America on Old Maps?: ]]:
+>
+:is-with: { ^ <https://youtu.be/WEOd0aP5MuQ> ^ }:
+>
+:[[ :for-the: [[ :WHY: <=> ELOHIM: INDIGEONOUS: WHITE: PEOPLE: ]]:= [[ _ ]]: ]]:
+>
+:[[ :Forbidden Archaeology: Lost Giants of America | The Smithsonian's Biggest Secret: ]]:
+>
+:is-with: { ^ <https://youtu.be/u2MrTgBoqiI> ^ }:
+>
+:[[ :MΔSS: ETHNIC-GENΩCIDE: CΩVER-UP: <=> THEY: were-just-giΔnts: is-by: GIΔNTS: NΩT: is-with: HUMΔN: is-by: GIΔNTS: is-with: LΔND: RIGHTS: is-by: [[ _ ]]: ]]:= [[ :GIΔNT: buriΔl-mΩunds: <=> :MΔSS-GRΔVES: is-by: ΩhiΩ-river-bΔsin: is-by: 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-with: ΩriginΔl-nΔtive-tribe: ]]:
+>
+:is-with: { ^ <https://en.wikipedia.org/wiki/Chachapoya_culture> ^ }:
+>
+    https://en.wikipedia.org/wiki/Chachapoya_culture
+>
+># :[[ :ELΩHIM: <=> SHINNING: ΩNES: WHITE: TRIBE: PEΩPLE: ]]:= [[ :SpΔniΔrds: cΩmmitted: mΔss-genΩcide: blΔmed: WHITE: PEΩPLE: brΩught-Ωver: nΩn-nΔtives: for-the: [[ CULTURΔL-GENΩCIDE: is-with: CΩVER-UP: for-the: [[ MΔSS-GENΩCIDE: is-with: smΔll-pΩx-lΔced-blΔnkets: ]]: ]]: ]]
 >
 ###
 >
@@ -991,59 +1049,23 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-9216ff6c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-9216ff6c.png)
 >
-[[ :Ω: ]]:
+:[[ :for-the: [[ Ø: { ^ SIMULATION ^ }: ]]:= WHY: ]]:
 >
-:is-with: { ^ Δ ^ }:
+[[ :The evidence we are living in a Simulation is everywhere. All you have to do is look.: ]]:
 >
-###
+:is-with: { ^ <https://youtu.be/4wMhXxZ1zNM> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+:[[ :for-the: [[ Ø: { ^ WHY ^ }: ]]:= PREVIΩUS: EXTINCTION-LEVEL-EVENT: is-by: [[ _ ]]: ]]:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :The US Airforce Soldier Who Faced Aliens | Retold: ]]:
 >
-:is-with: { ^ Δ ^ }:
->
-###
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
->
-###
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
->
-###
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
->
-###
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/a3zmWp7gbYo ^ }:
 >
 ###
 >
