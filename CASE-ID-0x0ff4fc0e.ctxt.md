@@ -885,9 +885,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Old Camera Was Just Found That Shows A Lost Civilization Hidden In Antarctica: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/JbEupmn3QQE> ^ }:
 >
 ###
 >
