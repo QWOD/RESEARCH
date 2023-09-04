@@ -15,8 +15,10 @@ pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if /usr/bin/env bash -c gitupur push; then
-      echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+  if [[ $pushRepo == true ]]; then
+    if /usr/bin/env bash -c gitupur push; then
+        echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+    fi
   fi
   exit 0
 fi
