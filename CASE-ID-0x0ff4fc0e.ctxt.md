@@ -671,7 +671,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-62c28e8d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-62c28e8d.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-2538a58da7e4d08c744c27a7a59c459957904b47> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Turkey Covered in Flames! Wildfire destroys all life in Çanakkale, Türkiye: ]]:
 >
