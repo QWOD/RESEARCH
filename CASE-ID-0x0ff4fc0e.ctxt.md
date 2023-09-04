@@ -941,9 +941,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Real story of what is happening | August. 22. 2023: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/sbwKIAxMBj8> ^ }:
+>
+:[[ :for-the: [[ ΩDT: <=> ΩPERΔTIØN: DΔRKTΔDE: PHΔSE-ΔLPHΔ: HΔLLΩWEEN: is-with: CHΔRLΔ-HΩTEL: ]]:= [[ :SΩULLESS-HΩΔRDS: ΔMΔSS: ]]:
 >
 ###
 >
