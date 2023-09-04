@@ -581,11 +581,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-fc2c15d1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-fc2c15d1.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Earth Disaster Cycle | AMA Sep.3.2023: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/e8pHUMIiers ^ }:
 >
 ###
 >
