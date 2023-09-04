@@ -565,7 +565,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-a15b38a9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-a15b38a9.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= ΔZRΔEL: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-39844bcdf31b89132cda537b952282dbb8a469d4> ^ }: ]]:= ΔZRΔEL: ]]:
 >
 [[ :Burning Man 2023: Death investigation underway after flooding traps thousands | LiveNOW from FOX: ]]:
 >
@@ -575,9 +575,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :East Palestine resident: ‘At this point, it’s pointless’ for Biden to visit | NewsNation Prime: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/gQQ1twuRBxc> ^ }:
 >
 ###
 >
