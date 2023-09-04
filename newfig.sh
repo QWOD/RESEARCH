@@ -5,13 +5,12 @@
 goPath="${HOME}/go"
 brevity=512
 if [ -x ${goPath}/bin/go ]; then
-  [[ -x "${goPath}/bin/passworder" ]] && UUID="$(${goPath}/bin/passworder -uuid)"
-  [[ ! -x "${goPath}/bin/passworder" ]] && export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
-  export UUID="$(${goPath}/bin/passworder -uuid)"
-  export FIG="$(${goPath}/bin/passworder -short)"
+  [[ -x "${goPath}/bin/passworder" ]] || export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
+  UUID="$(${goPath}/bin/passworder -uuid)" && export UUID="${UUID}"
+  FIG="$(${goPath}/bin/passworder -short)" && export FIG="${FIG}"
 else
-  export UUID=$(uuidgen)
-  export FIG=$(uuidgen | tail -c 8)
+  UUID=$(uuidgen) && export UUID="${UUID}"
+  FIG=$(uuidgen | tail -c 8) && export FIG="${FIG}"
 fi
 
 function gitShowTail() {
