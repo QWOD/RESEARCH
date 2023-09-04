@@ -807,11 +807,15 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+![:CASE-ID-0x0ff4fc0e-ae335c2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-ae335c2a.png)
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-252f061ddb161495135c0380cdf9d8835091d366> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Kaaba in ruins! Storm in Makkah! The wind blows people off their feet! Saudi Arabia is closing down!: ]]:
 >
 :is-with: { ^ https://youtu.be/Bpv6vZWLM7E ^ }:
+>
+:is-with: [[ BLΔCK: RΩCK: CUBE: ]]:
 >
 ###
 >
