@@ -681,9 +681,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Another Earthquake in Turkey! M5.6 Earthquake destroyed buildings in Malatya, Turkey: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Nw4OOvaIh94 ^ }:
 >
 ###
 >
