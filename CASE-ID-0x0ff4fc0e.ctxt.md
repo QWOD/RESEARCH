@@ -753,9 +753,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Crazy scenes of chaos in Caracas! A devastating storm has hit the capital of Venezuela!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/2SzPMyYpzEU ^ }:
 >
 ###
 >
