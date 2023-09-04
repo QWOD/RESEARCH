@@ -815,7 +815,9 @@
 >
 :is-with: { ^ https://youtu.be/Bpv6vZWLM7E ^ }:
 >
-:is-with: [[ BLΔCK: RΩCK: CUBE: ]]:
+:is-with: [[ BLΔCK: RΩCK: CUBE: ]]:= [[ :TΩΩ-LATE: is-by: pray: is-with: right: GΩD: is-by: NΩW: ]]:
+>
+![:CASE-ID-0x0ff4fc0e-d30c0e5f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-d30c0e5f.png)
 >
 ###
 >
