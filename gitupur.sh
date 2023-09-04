@@ -8,7 +8,7 @@ gitTreePath=${HOME}/QWOD
 
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; git init"
+    "mkdir ${gitTreePath}; cd ${gitTreePath}; git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${gitTreePath}; git clone git@github.com:QWOD/HYPERMEDIUS.git"
