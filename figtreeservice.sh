@@ -42,3 +42,31 @@ if [[ "start" == "$*" ]]; then
     sleep $repoUpdateInterval
   done
 fi
+
+[[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
+
+if [[ $* == "stop" ]]; then
+  if /usr/bin/env bash -c gitupur push; then
+      echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+  fi
+  exit 0
+fi
+
+if [[ "start" == "$*" ]]; then
+  sleep $networkWaitInterval
+  ssh -o "StrictHostKeyChecking no" -i ~/hyperstor/.ssh/id_ed25519 -T git@github.com &> /dev/null
+  git config --global user.email "${USER}@mj12.agency"
+  git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
+  while true; do
+    if cd "${repoPath}"/RESEARCH; then
+      newfig -p &> /dev/null
+    fi
+    if cd "${repoPath}"/HYPERMEDIUS; then
+      newfig -p &> /dev/null
+    fi
+    if cd "${repoPath}"/DISCLOSURE; then
+      newfig -p &> /dev/null
+    fi
+    sleep $repoUpdateInterval
+  done
+fi
