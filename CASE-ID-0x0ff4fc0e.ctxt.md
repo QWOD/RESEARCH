@@ -761,17 +761,17 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Taiwan Battered! Super Typhoon Haikui And Storm Surge Bombard Taitung Without Mercy: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/nZYCC8Q3WcU ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Brazil Battered! Explosive Storm and Large Floods Wash Away, Cars, Hospitals in Brumado: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/JRecAGdA3CQ ^ }:
 >
 ###
 >
