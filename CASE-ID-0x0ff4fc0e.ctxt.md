@@ -919,23 +919,23 @@
 >
 [[ :What Happened after the Beijing Flood? - Why The Chinese Government is Terrified: ]]:
 >
-:is-with: { ^ https://youtu.be/S_0IDX7aLKY ^ }:
+:is-with: { ^ <https://youtu.be/S_0IDX7aLKY> ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :2 minutes ago! Flood in Spain! All over the country, the roads became rivers! Houses are sinking!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/rWm12XkrPLo> ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :america - Kensington Ave Philadelphia - 19 Minutes Tour: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/LT8DcsnfJ_o> ^ }:
 >
 ###
 >
