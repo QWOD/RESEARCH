@@ -607,11 +607,13 @@
 >
 ###
 >
+![:CASE-ID-0x0ff4fc0e-62a637dd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-62a637dd.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Controversial Shapeshifter Tornado is Most Unique in History Yuma: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/BdWjDEAkKDQ ^ }:
 >
 ###
 >
