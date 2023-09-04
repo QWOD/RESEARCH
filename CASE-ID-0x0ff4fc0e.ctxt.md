@@ -893,17 +893,17 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Scientists Terrifying New Discovery In Africa That Changes Everything!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/P5ZXk_7oJKQ> ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :CIA Classified Book about the Pole Shift, Mass Extinctions and The True Adam & Eve Story: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtu.be/4n3fkTq_p0o> ^ }:
 >
 ###
 >
