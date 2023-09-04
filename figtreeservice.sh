@@ -9,8 +9,8 @@ repoUpdateInterval=222
 # [[ :DEVELOPED: for-the: systemd: is-with: UNFORTUNATELY: STILL: github: is-with: retard: is-by: ssh: NOT: is-with: X11: forwarding: for-the: REMOTE: AUTOMATED: FIRES: SUPPORT: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
-fastForwardOnly=true
-pushRepo=false
+fastForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
+pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
