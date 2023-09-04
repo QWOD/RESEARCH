@@ -737,17 +737,17 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Hong Kong is under brutal attack! Super Typhoon Saola hit China, people are evacuated: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/Q1lAsgOClgg ^ }:
 >
 ###
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :River overflows submerged half of apartment buildings in Heilongjiang and Hebei, China: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/o1gjkSV8ktg ^ }:
 >
 ###
 >
