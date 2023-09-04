@@ -777,9 +777,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Crazy scenes of chaos in Mexico! A monstrous storm flooded Guadalajara!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/QvrS4mEqr1c ^ }:
 >
 ###
 >
