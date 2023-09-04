@@ -599,7 +599,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-17e3dcfd7c79d162c9814c1003ed1330a083e44d> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Malls and houses are destroyed in Sao Paulo, Brazil! Wind storm in Caraguatatuba: ]]:
 >
