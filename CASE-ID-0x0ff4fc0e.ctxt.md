@@ -687,7 +687,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-36de028b4394049dee6353e747649cb05a20d7d5> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Gas station clerk fatally shoots thief during armed robbery, authorities say: ]]:
 >
@@ -697,9 +697,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :Car with giant bull as passenger pulled over by Nebraska police: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/yIR3NU3P_bU ^ }:
 >
 ###
 >
