@@ -609,7 +609,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-62a637dd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-62a637dd.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-e3084aad16d8f225d710adb1232302384e7d0c71> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :Controversial Shapeshifter Tornado is Most Unique in History Yuma: ]]:
 >
@@ -619,7 +619,7 @@
 >
 ![:CASE-ID-0x0ff4fc0e-6ee4fe8c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x0ff4fc0e-6ee4fe8c.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-65851a927989fff17ff526b550f3912cb0a57827> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-65851a927989fff17ff526b550f3912cb0a57827> ^ }: ]]:= [[ TRUE: && NIBIRU: ]]: ]]:
 >
 [[ :Frankfurt Airport Completely Flooded! Scary Flooding in Frankfurt, Germany: ]]:
 >
@@ -635,7 +635,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5de79df114c2465787a7356ad51d29f49b3e7893> ^ }: ]]:= [[ TRUE: && NIBIRU: ]]: ]]:
 >
 [[ :Incredible Destruction in China! Flash Flooding destroys everything in its path in Beijing: ]]:
 >
@@ -645,9 +645,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ TRUE: && NIBIRU: ]]: ]]:
 >
-[[ :Ω: ]]:
+[[ :WAKE UP: Most People Don't Realize What's Happening WORLDWIDE | Christian Motivation: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ https://youtu.be/zMsctBV7Ddw ^ }:
 >
 ###
 >
