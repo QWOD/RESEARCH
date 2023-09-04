@@ -21,21 +21,18 @@ if [[ $* == "stop" ]]; then
 fi
 
 if [[ "start" == "$*" ]]; then
+  ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
+  git config --global user.email "${USER}@mj12.agency"
+  git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   while true; do
-    if cd "${storagePath}"/RESEARCH/; then
-      git config --global user.email "${USER}@mj12.agency"
-      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
-      git pull --ff-only &> /dev/null
+    if cd "${repoPath}"/RESEARCH/; then
+      ~/bin/newfig -p &> /dev/null
     fi
-    if cd "${storagePath}"/HYPERMEDIUS/; then
-      git config --global user.email "${USER}@mj12.agency"
-      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
-      git pull --ff-only &> /dev/null
+    if cd "${repoPath}"/HYPERMEDIUS/; then
+      ~/bin/newfig -p &> /dev/null
     fi
-    if cd "${storagePath}"/DISCLOSURE/; then
-      git config --global user.email "${USER}@mj12.agency"
-      git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
-      git pull --ff-only &> /dev/null
+    if cd "${repoPath}"/DISCLOSURE/; then
+      ~/bin/newfig -p &> /dev/null
     fi
     sleep 222
   done
