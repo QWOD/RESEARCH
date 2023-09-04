@@ -1,3 +1,4 @@
+# sudo cp figtree.service /etc/systemd/system; sudo systemctl enable --now figtree.service
 [Unit]
 Description=figtree.service
 Wants=remote-fs.target
