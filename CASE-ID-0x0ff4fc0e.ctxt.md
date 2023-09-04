@@ -965,7 +965,7 @@
 >
 ###
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5cdc8382f2a994a7df32dddded4eae44d435ce5d> ^ }: ]]:= [[ _ ]]: ]]:
 >
 [[ :LOS ANGELES CALIFORNIA’S SKID ROW VS. PHILADELPHIA PENNSYLVANIA’S SKID ROW: ]]:
 >
@@ -1077,7 +1077,7 @@
 >
 :is-with: { ^ Δ ^ }:
 >
-### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :WΔRN∅: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]
+### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 ###
 >
