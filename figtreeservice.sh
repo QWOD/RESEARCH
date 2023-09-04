@@ -11,6 +11,7 @@ repoUpdateInterval=222
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 fastForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
 pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
+sshKey=~/hyperstor/.ssh/id_ed25519
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
@@ -56,7 +57,7 @@ fi
 
 if [[ "start" == "$*" ]]; then
   sleep $networkWaitInterval
-  ssh -o "StrictHostKeyChecking no" -i ~/hyperstor/.ssh/id_ed25519 -T git@github.com &> /dev/null
+  ssh -o "StrictHostKeyChecking no" -i "${sshKey}" -T git@github.com &> /dev/null
   git config --global user.email "${USER}@mj12.agency"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   while true; do
