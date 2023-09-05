@@ -11,7 +11,7 @@ repoUpdateInterval=222
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 fastForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
 pushRepo=false # :[[ :LOCAL-GIT-TREE: ]]:
-gitHubKey=~/hyperstor/.ssh/id_ed25519
+gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
