@@ -19,6 +19,7 @@ gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
+  [[ "${sshSystemDHook}" == true ]] && exit 0
   if [[ $pushRepo == true ]]; then
     if /usr/bin/env bash -c gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'

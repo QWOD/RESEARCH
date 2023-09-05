@@ -10,7 +10,7 @@ Group=hyperuser
 Type=exec
 TimeoutStartSec=86400
 TimeoutStopSec=122
-ExecStart=/usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
-ExecStop=/usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice stop'"
+ExecStart=/home/hyperuser/bin/figtreeservice start
+ExecStop=/home/hyperuser/bin/figtreeservice stop
 [Install]
 WantedBy=remote-fs.target
