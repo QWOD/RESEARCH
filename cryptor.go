@@ -90,6 +90,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
 		fmt.Println(strings.ReplaceAll(crypTexTranslated, secretCodeSeed[rand.Intn(len(secretCodeSeed))], secretCodeSeed[rand.Intn(len(secretCodeSeed))]))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
