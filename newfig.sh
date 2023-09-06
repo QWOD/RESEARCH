@@ -30,9 +30,9 @@ function remoteForward() {
 }
 
 function localForward() {
-  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; git pull --ff-only
-  cd "${localRepoPath}/RESEARCH" || exit 1; git pull --ff-only
-  cd "${localRepoPath}/DISCLOSURE" || exit 1; git pull --ff-only
+  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; git  pull --no-rebase --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit 1; git pull --no-rebase --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit 1; git pull --no-rebase --ff-only
 }
 
 if [[ $* == "-f" ]]; then
