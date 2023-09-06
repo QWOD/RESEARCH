@@ -4,13 +4,13 @@
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 # :[[ :qommrydur: ]]:
-[[ $* != "" ]] && $(curl "https://github.com/QWOD/RESEARCH/commit/" $(echo "$*" | tr -d 'qomm-')) && exit 0
+[[ $* != "" ]] && echo -E $(curl -i "https://github.com/QWOD/RESEARCH/commit/" $(echo "$*" | tr -d 'qomm-')) && exit 0
 
 function globalOperations {
   echo $(git show --oneline)
 }
 
-while globalOperations; do
+[[ $* == "" ]] && while globalOperations; do
   sleep 222
   globalOperations
 done
