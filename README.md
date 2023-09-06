@@ -14,9 +14,9 @@
 >>>
 ## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRC](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
->:is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRET: <=> vrilSECRET™: is-by: FΔLSE: is-with: MJ12-JESUS: ATSUΩMΩP: SECRET: is-by: TRUE: ]]:
+>:is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSUΩMΩP: SECRΔT: is-by: TRUE: ]]:
 ###
-## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12 ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uSㅐعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]:
+## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]:
 ###
 ![CrΔp☥Δx™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
