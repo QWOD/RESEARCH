@@ -3,8 +3,9 @@ package main
 // :[[ :{ ^ <https://go.dev/> ^ }: ]]:
 // go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // [ mercuri:RESEARCH ] ⥈ go install cryptor.go
-// [ mercuri:RESEARCH ] ⥈ cryptor ":[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:"
+// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
+// :[[ :fΩr-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE is-with: CHΔRLΔ-M☥KE: fΩr-the: return ]]:= TRUE: ]]:
 
 import (
 	"fmt"
@@ -69,7 +70,8 @@ func main() {
 		}
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
-
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
 		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(3), SecretCode(3)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
