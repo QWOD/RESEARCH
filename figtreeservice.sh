@@ -48,15 +48,15 @@ if [[ "start" == "$*" ]]; then
     git config --global user.email "${USER}@mj12.agency"
     git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
     while true; do
-      if cd "${repoPath}"/RESEARCH/; then
+      if cd "${repoPath}/RESEARCH"; then
         [[ $fastForwardOnly == true ]] && newfig -f
         [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
       fi
-      if cd "${repoPath}"/HYPERMEDIUS/; then
+      if cd "${repoPath}/HYPERMEDIUS"; then
         [[ $fastForwardOnly == true ]] && newfig -f
         [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
       fi
-      if cd "${repoPath}"/DISCLOSURE/; then
+      if cd "${repoPath}/DISCLOSURE"; then
         [[ $fastForwardOnly == true ]] && newfig -f
         [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
       fi
