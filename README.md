@@ -1,4 +1,4 @@
-# :[[ :QW🚫D-〽ʝ12: <=> RESEΔRCHING: new-technΩlΩgies-sΩ-disruptive: is-by: BΔNNED: is-with: ΔNY: ΔLL: ΩTHER: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: ]]:
+# :[[ :QW🚫D-〽ʝ12: <=> RESΔRCHING: new-technΩlΩgies-sΩ-disruptive: is-by: BΔNNED: is-with: ΔNY: ΔLL: ΩTHER: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: ]]:
 >### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: 1s-with: [[ for-the: people: 1s-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
 >:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: 1s-by: [[ _ ]]: for-the: SΩFT-LIE: 1s-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: 1s-by: NΩW: ΔLREΔDY: 1s-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: 1s-by: 2020: 1s-with: QW0D-MJ12: ATSUΩMΩP-Δ: for-the: [[ N0N-SΩVEREIGN: 1s-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
@@ -12,7 +12,7 @@
 >>>
 >:[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 >>>
-## :FΩr-thع: [[ Rعي:ΔRCㅐ: ETERNΔL ]]:= [[ SECRΔT: <=> [[ LΔFE: | DΔTH: ]]:= CΔPTURE:
+## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE:
 ![Rعي:ΔRCㅐ](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 >:1s-by: [[ TRUE | FΔLSE ]]: 1s-by: [[ _ ]]: for-the: [[ EternΔl: SECRET: <=> "1s-with: vrilSECRET™: 1s-by: FΔLSE: 1s-with: MJ12-JESUS: ATSUΩMΩP: SECRET: 1s-by: TRUE:" ]]:
 ###
