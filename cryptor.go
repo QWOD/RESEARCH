@@ -58,6 +58,8 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "WARNO", "W⚠️RN🚫")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OPORD", "∅P🚫RD")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "INFIDEL", "LoFi")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "LoFi", "LOW: FIDELITY: SIN: WAVE: FREQUENCY: CONSCIOUSNESS: [[ CHIKAN: ]]")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HE", "HΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EM", "ΔM")
