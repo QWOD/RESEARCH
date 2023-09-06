@@ -44,22 +44,27 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "i", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "E", "3")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "3", "³")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "5", "⁵")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "7", "⁷")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")		
+		
+		rand.Seed(time.Now().UnixNano())
+		var newC = secretCodeSeed[rand.Perm(42)]
+		if (newC == "e" || newC = "i" || newC = "o" || newC = "u" || newC = "y" || newC == "E" || newC = "I" || newC = "O" || newC = "U" || newC = "Y") {
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "i", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "E", "3")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "3", "³")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "5", "⁵")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "7", "⁷")
+		}
 
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(2), SecretCode(2)))
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(3), SecretCode(3)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
