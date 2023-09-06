@@ -56,7 +56,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "5", "⁵")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "7", "⁷")
 
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretCode(1)))
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(2), SecretCode(2)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
