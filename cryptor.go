@@ -77,7 +77,6 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "Ω")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
@@ -85,32 +84,24 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
 
 		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		if newC == "U" || newC == "u" || newC == "Y" {
+		if newC == "U" || newC == "Y" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
 		}
-		if newC == "t" || newC == "T" || newC == "I" {
+		if newC == "t" || newC == "T" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "Δ")
 		}
-		if newC == "3" || newC == "5" || newC == "7" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "3", "³")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "5", "⁵")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "7", "⁷")
-		}
-		if newC == "E" || newC == "e" || newC == "S" {
+		if newC == "E" || newC == "e" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "E", "3")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "ع")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
 		}
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
 		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSUOMOP-A-COOPERATIVE-AGENCY.txt)"
