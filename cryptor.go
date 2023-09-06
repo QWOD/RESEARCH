@@ -44,11 +44,10 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")		
-		
-		rand.Seed(time.Now().UnixNano())
-		var newC = secretCodeSeed[rand.Perm(42)]
-		if (newC == "e" || newC = "i" || newC = "o" || newC = "u" || newC = "y" || newC == "E" || newC = "I" || newC = "O" || newC = "U" || newC = "Y") {
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
+
+		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
+		if newC == "e" || newC == "i" || newC == "o" || newC == "u" || newC == "y" || newC == "E" || newC == "I" || newC == "O" || newC == "U" || newC == "Y" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
