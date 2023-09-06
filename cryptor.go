@@ -1,11 +1,26 @@
 package main
 
 // :[[ :{ ^ <https://go.dev/> ^ }: ]]:
+
+// :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: [[ Coven:
+// is-with: Ant: ]]:= TRUE: for-the: [[ DARPA: QWOD-MJ12:
+// ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE:
+// OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: CIVILIAN:
+// INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI:
+// CLOUD: BLOCKCHAIN: ATSUOMOP-DARPA: DARKNET: PLATFORM:
+// is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM:
+// for-the: [[ HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]:=
+// TRUE: for-the: [[ people: is-by: WE: is-with: people: ]]:=
+// TRUE: for-the: [[ QWOD-MJ12: ATSUOMOP-A: SPG:
+// LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY:
+// algorithm: DETECTED: ]]:
+
 // go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // [ mercuri:RESEARCH ] ⥈ go install cryptor.go
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
-// :[[ :fΩr-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE is-with: CHΔRLΔ-M☥KE: fΩr-the: return ]]:= TRUE: ]]:
+// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
+// :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 
 import (
 	"fmt"
