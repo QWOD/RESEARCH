@@ -1,5 +1,6 @@
 package main
 
+// :[[ :{ ^ <https://go.dev/> ^ }: ]]:
 // go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // [ mercuri:RESEARCH ] ⥈ go install cryptor.go
 // [ mercuri:RESEARCH ] ⥈ cryptor ":[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:"
