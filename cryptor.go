@@ -46,15 +46,15 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
 
 		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		if newC == "e" || newC == "i" || newC == "o" || newC == "u" || newC == "y" || newC == "E" || newC == "I" || newC == "O" || newC == "U" || newC == "Y" {
+		if newC == "U" || newC == "u" || newC == "Y" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
 		}
 		if newC == "t" || newC == "T" || newC == "I" || newC == "i" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "7")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "i", "☥")
 		}
 		if newC == "3" || newC == "5" || newC == "7" {
