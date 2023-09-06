@@ -33,16 +33,21 @@ import (
 
 var codeSize int
 var secretCodeSeed [42]string = [42]string{
-	"w", "l", "f", "j", "k", "p", "g",
-	"h", "m", "d", "q", "v", "s", "r",
-	"c", "x", "z", "Z", "W", "V", "X",
-	"T", "O", "R", "Q", "P", "L", "N",
-	"M", "S", "D", "J", "F", "H", "G",
-	"K", "I", "B", "C", "t", "b", "n"}
+	"l", "f", "j", "k",
+	"p", "g", "m", "d",
+	"q", "v", "c", "x",
+	"z", "Z", "W", "V",
+	"X", "T", "O", "R",
+	"Q", "P", "L", "N",
+	"M", "S", "D", "J",
+	"F", "H", "G", "K",
+	"I", "B", "C", "n"}
 
 var secretRandomSeed [12]string = [12]string{
-	"Δ", "+", ";", "!", "*", "%",
-	"=", "@", "$", "?", "~", "Ω"}
+	"Δ", "+", ";",
+	"!", "*", "%",
+	"=", "@", "$",
+	"?", "~", "Ω"}
 
 func main() {
 	codeSize, _ = strconv.Atoi(os.Args[1])
