@@ -31,6 +31,9 @@ func main() {
 	if codeSize < 9999 {
 		crypTexTranslated = strings.ReplaceAll(os.Args[1], "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HE", "HΔ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EM", "ΔM")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
