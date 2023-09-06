@@ -93,11 +93,10 @@ func main() {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
 		}
-		if newC == "t" || newC == "T" || newC == "I" || newC == "i" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "7")
+		if newC == "t" || newC == "T" || newC == "I" {
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "Δ")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "i", "☥")
 		}
 		if newC == "3" || newC == "5" || newC == "7" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "3", "³")
@@ -112,8 +111,6 @@ func main() {
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
-
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
 		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSUOMOP-A-COOPERATIVE-AGENCY.txt)"
@@ -122,7 +119,11 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1)))
+		strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
+
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-w☥th:", "is-with:")
+		fmt.Println(crypTexTranslated)
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
