@@ -1,6 +1,6 @@
 #!/usr/bin/env bash
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
-# export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
+# PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
 # /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/gitupur init'"
 # /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/gitupur clone'"
 # /usr/bin/env ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/gitupur pull'"
