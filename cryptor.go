@@ -40,6 +40,10 @@ var secretCodeSeed [42]string = [42]string{
 	"M", "S", "D", "J", "F", "H", "G",
 	"K", "I", "B", "C", "t", "b", "n"}
 
+var secretRandomSeed [12]string = [12]string{
+	"Δ", "+", ";", "!", "*", "%",
+	"=", "@", "$", "?", "~", "Ω"}
+
 func main() {
 	codeSize, _ = strconv.Atoi(os.Args[1])
 	var crypTexTranslated string
@@ -97,10 +101,29 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, secretCodeSeed[rand.Intn(len(secretCodeSeed))], secretCodeSeed[rand.Intn(len(secretCodeSeed))]))
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
+}
+
+func SecretRandomC(rotations int) string {
+	var s string
+	v := make([]int, rotations)
+	// Populate array "v" with "n" number of random
+	// characters selected from []string "secretRandomSeed".
+	for n := 0; n < rotations; n++ {
+		rand.Seed(time.Now().UnixNano())
+		for _, value := range rand.Perm(len(secretRandomSeed)) {
+			v[n] = value
+		}
+	}
+	// Generate "x" amount of random characters
+	// according to int specified with "rotations".
+	for x := 0; x < rotations; x++ {
+		s = s + secretRandomSeed[v[x]]
+	}
+	return s
 }
 
 func SecretCode(rotations int) string {
