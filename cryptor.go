@@ -1,6 +1,10 @@
 package main
 
 // go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
+// [ mercuri:RESEARCH ] ⥈ go install cryptor.go
+// [ mercuri:RESEARCH ] ⥈ cryptor ":[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:"
+// :[[ :QW🚫D-〽ʝ12: Δ☥SUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHEPPΔRD: ]]:
+// [ mercuri:RESEARCH ] ⥈
 
 import (
 	"fmt"
