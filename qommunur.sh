@@ -4,7 +4,7 @@
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 # :[[ :qommrydur: ]]:
-[[ $* != "" ]] && git show --oneline $(echo "$*" | tr -d 'qom-') && exit 0
+[[ $* != "" ]] && git show --oneline $(echo "$*" | tr -d 'mqo-') && exit 0
 
 function globalOperations {
   echo $(git show --oneline)
