@@ -11,3 +11,7 @@ is-with: { ^
 :[[ :CH☥Q∅NS: is-by: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0: THEY: is-by: CREΔTING: is-with: NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: for-the: [[ MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: for-the: record: return ]]:= TRUE: ]]: ]]
 >
 # :[[ :N🚫T⚠️CE: W⚠️RN🚫: is-with: ΩR-ΔLSE: STΔTΔMENT: is-by: triggers: binΔry-lΩgic-errΩr: is-with: CH☥Q∅NS: [[ ΔND-ΩR-ΔLSE: <=> [[ ^ ]]: ΔLSE: ]]: is-with: SΩLUT☥∅N: is-with: sΩmehΩw: CH☥Q∅NS: is-by: misinterpret-even-mΩst-bΔsic-lΩgicΔl-instructiΩns: is-by: THRΔT: ]]
+>
+>PS1=':[[ :\h: \W: ]]:= ' && export PS1="${PS1}"
+>:[[ :mercuri: RESEARCH: ]]:= cryptor ':[[ :peck-peck-peck: PEKANG: CHIQANS: ]]:'
+:[[ :peck-peck-peck: PعQ∅NG: CH☥Q∅NS: ]]:
