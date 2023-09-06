@@ -46,8 +46,15 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "u", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "i", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "E", "3")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "3", "³")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "5", "⁵")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "7", "⁷")
 
 		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretCode(1)))
 	} else {
