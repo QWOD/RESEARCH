@@ -11,6 +11,17 @@ repoUpdateInterval=222
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
 fastForwardOnly=false # :[[ :REMOTE-GIT-MIRROR: ]]:
 sshSystemDHook=true
+
+# :[[ :NOTICE: for-the: [[ sshSystemDHook: WE
+# tried everything we could think to make ssh
+# work through systemd, all to no avail. Unfortunately.
+# these anonymous albeit once mighty ancient builders
+# who at one time came up with the advanced technology
+# have likley long since vanished from this world, taking
+# with them their ancient knowledge and wisdom on how this
+# technology might have been able to automatically save
+# humanity one day through enhanced system warfare tasks
+# and capabilities: ]]: ]]:
 [[ "${sshSystemDHook}" == true ]] && sshHost="secure.us.hyperspire.net"
 pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
 gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
