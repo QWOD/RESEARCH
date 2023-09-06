@@ -91,7 +91,12 @@ func main() {
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
-		// cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSUOMOP-A-COOPERATIVE-AGENCY.txt)"
+		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSUOMOP-A-COOPERATIVE-AGENCY.txt)"
+		// cryptor "$(systemctl status -l figtree.service)"
+		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: git@github.cΩm: PermissiΩn SenieS (publickey).
+		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
+		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
+		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 		fmt.Println(strings.ReplaceAll(crypTexTranslated, secretCodeSeed[rand.Intn(len(secretCodeSeed))], secretCodeSeed[rand.Intn(len(secretCodeSeed))]))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
