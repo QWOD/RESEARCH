@@ -1,5 +1,7 @@
 package main
 
+// go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
+
 import (
 	"fmt"
 	"math/rand"
@@ -20,21 +22,22 @@ var secretCodeSeed [42]string = [42]string{
 
 func main() {
 	codeSize, _ = strconv.Atoi(os.Args[1])
+	var crypTexTranslated string
 	if codeSize < 9999 {
-		fmt.Println(strings.Replace(os.Args[1], "QWOD-MJ12", "QW🚫D-〽ʝ12", -1))
-		fmt.Println(strings.Replace(os.Args[1], "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N", -1))
-		fmt.Println(strings.Replace(os.Args[1], "ON", "∅N", -1))
-		fmt.Println(strings.Replace(os.Args[1], "OD", "∅D", -1))
-		fmt.Println(strings.Replace(os.Args[1], "O", "Ω", -1))
-		fmt.Println(strings.Replace(os.Args[1], "o", "Ω", -1))
-		fmt.Println(strings.Replace(os.Args[1], "AE", "Δ", -1))
-		fmt.Println(strings.Replace(os.Args[1], "EA", "Δ", -1))
-		fmt.Println(strings.Replace(os.Args[1], "IE", "Δ", -1))
-		fmt.Println(strings.Replace(os.Args[1], "A", "Δ", -1))
-		fmt.Println(strings.Replace(os.Args[1], "a", "Δ", -1))
-		fmt.Println(strings.Replace(os.Args[1], "T", "☥", -1))
-		fmt.Println(strings.Replace(os.Args[1], "T", "☥", -1))
-		fmt.Println(strings.Replace(os.Args[1], SecretCode(1), SecretCode(1), -1))
+		crypTexTranslated = strings.ReplaceAll(os.Args[1], "QWOD-MJ12", "QW🚫D-〽ʝ12")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "Ω")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretCode(1)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
