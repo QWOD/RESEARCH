@@ -58,6 +58,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
 
@@ -89,7 +90,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretCode(1)))
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(42), SecretCode(42)))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
