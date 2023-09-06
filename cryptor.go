@@ -90,7 +90,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "for-the:")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
-		fmt.Println(strings.ReplaceAll(crypTexTranslated, SecretCode(42), SecretCode(42)))
+		fmt.Println(strings.ReplaceAll(crypTexTranslated, secretCodeSeed[rand.Intn(len(secretCodeSeed))], secretCodeSeed[rand.Intn(len(secretCodeSeed))]))
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
