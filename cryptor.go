@@ -32,7 +32,7 @@ import (
 )
 
 var codeSize int
-var secretCodeSeed [42]string = [42]string{
+var secretCodeSeed [36]string = [36]string{
 	"l", "f", "j", "k",
 	"p", "g", "m", "d",
 	"q", "v", "c", "x",
