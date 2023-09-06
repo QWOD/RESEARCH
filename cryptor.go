@@ -45,11 +45,9 @@ var secretCodeSeed [33]string = [33]string{
 	"H", "G", "K",
 	"B", "C", "n"}
 
-var secretRandomSeed [12]string = [12]string{
-	"Δ", "+", ";",
-	"!", "*", "%",
-	"=", "@", "$",
-	"?", "~", "Ω"}
+var secretRandomSeed [10]string = [10]string{
+	"Δ", "+", ";", "!", "*",
+	"%", "@", "?", "~", "Ω"}
 
 func main() {
 	codeSize, _ = strconv.Atoi(os.Args[1])
