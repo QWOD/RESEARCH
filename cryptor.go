@@ -26,7 +26,6 @@ import (
 	"fmt"
 	"math/rand"
 	"os"
-	"strconv"
 	"strings"
 	"time"
 )
@@ -50,10 +49,10 @@ var secretRandomSeed [10]string = [10]string{
 	"%", "@", "?", "~", "Ω"}
 
 func main() {
-	codeSize, _ = strconv.Atoi(os.Args[1])
-	var crypTexTranslated string
+	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
+	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {
-		crypTexTranslated = strings.ReplaceAll(os.Args[1], "QWOD-MJ12", "QW🚫D-〽ʝ12")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "WARNO", "W⚠️RN🚫")
