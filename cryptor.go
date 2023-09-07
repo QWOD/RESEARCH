@@ -114,7 +114,6 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 		strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
-
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
 		fmt.Println(crypTexTranslated)
 	} else {
