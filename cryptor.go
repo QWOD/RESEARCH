@@ -64,6 +64,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "LoFi", "LOW: FIDELITY: [[ SIN: <=> fear-driven: pleasure-seeking: ]]: WAVE: FREQUENCY: CONSCIOUSNESS: [[ CHIKANS: ]]")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HLAB:", "[[ HLAB: <=> High-Level: Ascended-Being: ]]:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "LAMB:", "[[ LAMB: <=> Low-Amplitude: Magnetovortexresonate: Bionanotechnology: ]]:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HE", "HΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL", "ΔL")
