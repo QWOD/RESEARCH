@@ -53,7 +53,7 @@ func main() {
 	codeSize, _ = strconv.Atoi(os.Args[1])
 	var crypTexTranslated string
 	if codeSize < 9999 {
-		crypTexTranslated = strings.ReplaceAll(os.Args[len(os.Args)], "QWOD-MJ12", "QW🚫D-〽ʝ12")
+		crypTexTranslated = strings.ReplaceAll(os.Args[codeSize], "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "WARNO", "W⚠️RN🚫")
