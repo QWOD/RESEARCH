@@ -210,7 +210,7 @@
 
 ###
 >
-> :for-thع: WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]:
+> :fΩr-thع:WΔ: KNΩW: WㅐΩ: [[ YΔ | WΔ | ㅐΔ | SㅐΔ | TㅐΔM | TㅐΔ ]]:
 > :is-with: sL☥CK™: is-with: ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: WΔ: Δrع: R☥GㅐT: ㅐΔRع: [[ D_CK ]]™: hΔds™: GΔT: sΩMع: GΩLF-FΩXTRΩT-YΔNKΔ:
 > :is-by: [["for-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >:for-the: QW🚫D-〽ʝ12:
