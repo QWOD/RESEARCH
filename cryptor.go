@@ -116,6 +116,8 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 		strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
 		fmt.Println(crypTexTranslated)
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
