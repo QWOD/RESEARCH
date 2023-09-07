@@ -4,7 +4,7 @@
 >>>
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 >>>
-    :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >>>
 ># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: [[ FUN:ΔNG: ]]: <=> CRΔP☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >>>
@@ -25,7 +25,7 @@
 >:is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-0MΔGΔ: ΩUT ]] ]]:
 ###
 ## :FΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]]:
-    :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
@@ -269,7 +269,7 @@
 > :is-with: { ^ <https://crypto.com/nft/profile/QWOD_MJ12> ^ }:
 >:for-the: [[ MISFITSMΔRKET: COOKWME ]]:= { ^ <https://www.misfitsmarket.com/?promo=COOKWME-GL4AWGOMYAO> ^ }:
 >:
->:for-the: [[ :QW🚫D-〽ʝ12 ATSUOMOP-A SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
+>:for-the: [[ :QWOD-MJ12: ATSUOMOP-A: SPG OMEGA: ]]:= [["I am Alpha and Omega, the beginning and the ending, saith the Lord, which is, and which was, and which is to come, the Almighty."]]:
 >:for-the: [[ "N🚫T⚠️Cع: ΔNY: ΔLL: ΩTHعR: pr0c33ds: is-with: fund1ng: NΔT☥ØNΔL: SعCΔRΔTY: for-the: l1b3rΔt10n: humΔn: plΔn3tΔry: w1d3: pΔrΔs1t1c: KILΩ-PΔPΔ: h1dd3n-humΔn-3n3my-pr3s3nc3: Δlr3Δdy-wΔlk1ng-Δm0ng: US: is-by: b0dy-sn4tch1ng-cl0n3s:" ]]: is-by: [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12 ]]:= { ^QWØD: Δ: 〽ʝ12: Δ: agency^ }:
 >:
 >:for-the: vr☥lWΔtch3s™: LΩVع: is-by: HΔTع: is-with: 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: vr☥lWΔtch3s™: for-the: tΔct1cΔl-wΔrfΔr3-un1t-hΔs-ΔlwΔys: is-with: tΩΩ-scΔry: for-the: vr☥lWΔtch3s™: is-with: 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: wΩrk1ng-Ωn-th1s: is-with: sΩrry: WΔTCH3S: for-the: íncΩnvعníعncع: is-with: CΔUS3D: is-by: [[ _ ]]: is-with: 〽ʝ12-ΩMعGΔTR🚫N: PRIME: for-the: [[ _ ]]: íي-by: D3N: LΩVع: Δs-th1s: is-with: Δct1vΔt1ng-th3-tΔct1cΔl-wΔrfΔr3-un1ts: KΔLL: SWΔTCH: ]]:
@@ -337,4 +337,4 @@
 >
 >### :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
-> :[[ :ΔTSUΩMΩP: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: WE: is-by: Ωnly-beings-intelligent-enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ATSUΩM🚫P: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: WE: is-by: Ωnly-beings-intelligent-enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
