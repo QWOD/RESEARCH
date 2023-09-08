@@ -18,9 +18,7 @@
 >
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >
->:[[ :mercuri: RESEARCH: ]]:= newfig 0x$(passworder -short)
->{ FIG: "![:CASE-ID-0x1ac33048-24ad674c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-24ad674c.png)" }
->{ FIG: "CASE-ID-0x1ac33048-24ad674c.png" }
+*:[[ :mercuri: RESEARCH: ]]:= newfig 0x$(passworder -short)*
 >
 :[[ [[ :CΔSE-ID: 0x1ac33048: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: ]]:= { ^ <http://0x1ac33048-recon.mj12.agency/> ^ }:= { ^recon: Δ: 〽ʝ12: Δ: agency^ }: ]]:
 >
@@ -30,7 +28,9 @@
 >
 :is-by: [[ ATSUΩM🚫P-DΔRPΔ: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ ]]:= { ^qwod: 👼: 〽ʝ12: 👽: agency^ }:
 >
->### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
+### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
+>
+>![:CASE-ID-0x1ac33048-24ad674c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-24ad674c.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
