@@ -98,7 +98,7 @@
 >
 >![:CASE-ID-0x1ac33048-f792a6b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-f792a6b3.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RΔLΔVΔNT: "ΔLLEGΔL: PR∅G𓂀M: MK ULT𓂀:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :YOUR KARMIC FAMILY HAD YOU IN ILLEGAL PROGRAM ( MK ULTRA) SENSE YOU WERE A CHILD.........: ]]:= { ^ <https://youtube-nocookie.com/embed/V8PQog_ftCU> ^ }:
 >
