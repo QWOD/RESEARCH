@@ -84,7 +84,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :GROUP CHAT EVIDENCE! CROOKED HIGH OFFICIAL! FIELD OPERATIONS GROUP! EVERYONE’S EXPOSED! 🕵️📸🚨🚔⚖️: ]]:= { ^ <https://youtube-nocookie.com/embed/pRMDM28R8tQ> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
