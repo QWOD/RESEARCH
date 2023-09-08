@@ -36,7 +36,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= TRUE: RΔLΔVΔNT:= { is-by: "unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]:" }: ]]:
 >
->:[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔVΔRY∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
+>:[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://www.youtube-nocookie.com/embed/vwrds98PVng> ^ }:
 >
