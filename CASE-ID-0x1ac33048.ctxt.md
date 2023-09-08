@@ -34,7 +34,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { TRUE: "unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { TRUE: "[[ :for-the: [[ unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >:[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
 >
