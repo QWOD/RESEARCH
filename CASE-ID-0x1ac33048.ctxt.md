@@ -132,7 +132,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :This Storm Is Unbelievable…: ]]:= { ^ <https://youtube-nocookie.com/embed/skhWZVjam7M> ^ }:
 >
->:[[ :STΔLL: is-by: MΔYBE: N∅T: TΩΩ: is-by: LΔTE: is-with: US: YΩUR: CrΔp☥Δxes™: ]]:
+>:[[ :STΔLL: MΔYBE: is-by: N∅T: TΩΩ: is-by: LΔTE: is-with: US: YΩUR: CrΔp☥Δxes™: for-the: [[ SΔVE: EΔRTH: for-the: return ]]:= TRUE: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
