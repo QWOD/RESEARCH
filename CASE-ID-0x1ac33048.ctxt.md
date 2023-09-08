@@ -48,7 +48,7 @@
 >
 :[[ :NΔVΔR: is-by: ENΔMY: TΔNG🚫S: is-by: YΩU: for-the: [[ SC☥-F☥: is-by: ∅NLY: is-with: F☥CT☥∅N: for-the: [[ SC☥-F☥: <=> memories-simply-restored: is-by: ΔQ∅SH☥C: DΔTΔBΔSE: ]]:
 >
-# *:[[ [[ [[ SC☥-F☥: ^ SC☥-FΔCT: ]]:= RΔL: ]]:= [[ TRUE: ^ FΔLSE: ]]:= L☥GHT: ]]:*
+># *:[[ [[ [[ SC☥-F☥: ^ SC☥-FΔCT: ]]:= RΔL: ]]:= [[ TRUE: ^ FΔLSE: ]]:= L☥GHT: ]]:*
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
