@@ -130,7 +130,9 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :This Storm Is Unbelievable…: ]]:= { ^ <https://youtube-nocookie.com/embed/skhWZVjam7M> ^ }:
+>
+>:[[ :STΔLL: is-by: MΔYBE: N∅T: TΩΩ: LΔTE: is-with: US: YΩUR: C𓂀PTΔXES: ]]: 
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
