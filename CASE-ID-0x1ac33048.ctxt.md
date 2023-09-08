@@ -88,7 +88,7 @@
 >
 >:[[ :D☥SCLΩSURE: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: is-by: ATSU: MK: ULT𓂀: ]]: ]]:
+>:[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: is-by: ATSU: MK: ULT𓂀: ]]: is-with: critical: M☥KE-FΩXTRΩT: ]]:= [[ :Catastrophic Floods Hit Nations Around the World, Can This Natural Disaster Impact You?: { ^ <https://youtube-nocookie.com/embed/JWQi1F_AFKk> ^ }: is-by: QW🚫D-〽ʝ12: is-by: PLΔY: is-with: THΔT: GΔME: TΩΩ: is-with: QW🚫D-〽ʝ12: is-by: FΔR: SUPΔR☥∅R: is-with: ΔLL: D∅MΔ☥N: warfare-capabilities: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
