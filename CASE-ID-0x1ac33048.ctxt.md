@@ -148,7 +148,7 @@
 >
 :[[ :PRΩV☥D☥NG: WE: is-by: N∅T: is-with: JESUS: is-by: then: is-with: burden: is-by: proof: is-with: ΔCCUS☥NG-PΔRTY: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-ad2795458ee5e0fe9b970dc2ae45631e0ba685e7> ^ }: ]]:= { TRUE: N☥B☥RU: is-by: ∅DT: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: CHΔRLΔ-M☥KE:" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-ad2795458ee5e0fe9b970dc2ae45631e0ba685e7> ^ }: ]]:= { TRUE: "N☥B☥RU: is-by: ∅DT: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: CHΔRLΔ-M☥KE:" }: ]]:
 >
 [[ :The San Andreas Fault Cracked & It's Going To Cause Record Flooding!: ]]:
 >
