@@ -54,13 +54,13 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-5ea892680d378e0b85fccbad58487079c1c4f8cd> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= FΔLSE:= { is-by: "N☥GHTLY: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Nightly News Full Broadcast - Sept. 7: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrSEWjruOY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
