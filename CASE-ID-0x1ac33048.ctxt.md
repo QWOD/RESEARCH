@@ -106,9 +106,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :YOUR’E LIVING IN THE DIVINE PLAN ✝️! U R Becoming AWARE OF THE 2 PLANS for humanity. : [[ _: god: _: truth ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/TxNALxueI8M> ^ }:
 >
+>![:CASE-ID-0x1ac33048-070610b9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-070610b9.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Black Rainstorm Hits Hong Kong : Worst Flood in 149 Years! 2 Lives Lost!: ]]:= { ^ <https://youtube-nocookie.com/embed/9E_Q3C3ePZw> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
