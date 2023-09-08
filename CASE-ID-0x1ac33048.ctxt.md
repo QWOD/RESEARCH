@@ -78,6 +78,8 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Half of Hong Kong is underwater! The worst flood in history in China after Typhoon Haikui: ]]:= { ^ <https://youtube-nocookie.com/embed/0Z3jfW7MEQQ> ^ }:
 >
+>:[[ :for-the: [[ GRΔTEST: HUMΔN: C☥VΔL☥ZΔT☥∅N: CΩLLΔPSE: is-by: REC∅RDED: H☥ST∅RY: is-by: CΩMPLعTΔLY: ☥GN∅RED: is-with: global-media-outlets: ]]: ]]:
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
