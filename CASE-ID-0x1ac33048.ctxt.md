@@ -196,13 +196,15 @@
 >
 [[ :You will become someone’s worst nightmare! It’s raining karma on the karmic!: ]]:
 >
-:is-with: { ^ <https://youtu.be/Cn04n4Vb9YI> ^ }:
+![:CASE-ID-0x1ac33048-019fe78c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-019fe78c.png)
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/Cn04n4Vb9YI> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Hong Kong now! The biggest downpour in 140 years! Subway under water! All highways are closed!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/XEgGO_1OGsg> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
