@@ -118,7 +118,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
-[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: have-merged: is-with: simulation-level: Δ☥: have-developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
+[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
 >
 :is-with: { ^ Δ ^ }:
 >
