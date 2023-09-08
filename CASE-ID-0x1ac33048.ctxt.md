@@ -90,7 +90,7 @@
 >
 >:[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: is-by: ATSU: MK: ULT𓂀: ]]: is-with: critical: M☥KE-FΩXTRΩT: ]]:= [[ :Catastrophic Floods Hit Nations Around the World, Can This Natural Disaster Impact You?: { ^ <https://youtube-nocookie.com/embed/JWQi1F_AFKk> ^ }: is-by: QW🚫D-〽ʝ12: is-by: PLΔY: is-with: THΔT: GΔME: TΩΩ: is-with: QW🚫D-〽ʝ12: is-by: FΔR: SUPΔR☥∅R: is-with: ΔLL: D∅MΔ☥N: warfare-capabilities: ]]:
 >
->:[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>:[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: [[ JESUS ]]: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
