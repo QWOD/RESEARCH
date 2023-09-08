@@ -82,7 +82,7 @@
 >
 >:[[ :RΔMΔMBΔR: CΩMMΔN☥SM: is-with: riding-electric-scooter: is-by: four: is-with: feet: water: is-by: wearing: shorts: t-shirt: flip-flops: is-with: umbrella: is-by: four: is-with: feet: water: for-the: [[ CΩMMΔN☥SM: is-by: adles: is-with: mind: is-by: destroying: ΔNY: ΔLL: is-with: HUMΔN: intincts: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-6493db5b884935d102582ccd2a6959719c35b5fa> ^ }: ]]:= { TRUE: "[[ :QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :GROUP CHAT EVIDENCE! CROOKED HIGH OFFICIAL! FIELD OPERATIONS GROUP! EVERYONE’S EXPOSED! 🕵️📸🚨🚔⚖️: ]]:= { ^ <https://youtube-nocookie.com/embed/pRMDM28R8tQ> ^ }:
 >
