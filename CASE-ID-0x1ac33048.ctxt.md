@@ -46,13 +46,13 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://www.youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://www.youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
