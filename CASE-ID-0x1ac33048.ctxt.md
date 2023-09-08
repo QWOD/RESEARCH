@@ -80,7 +80,7 @@
 >
 >:[[ :for-the: [[ GRΔTEST: HUMΔN: C☥VΔL☥ZΔT☥∅N: CΩLLΔPSE: is-by: REC∅RDED: H☥ST∅RY: is-by: CΩMPLعTΔLY: ☥GN∅RED: is-with: global-media-outlets: ]]: ]]:
 >
->:[[ :RΔMΔMBΔR: CΩMMΔN☥SM: is-with: riding-electric-scooter: is-by: four: is-with: feet: water: is-by: wearing: shorts: t-shirt: flip-flops: is-with: umbrella: is-by: four: is-with: feet: water: for-the: [[ CΩMMΔN☥SM: adles: mind: destroying: ΔNY: ΔLL: HUMΔN: intincts: for-the: return ]]:= TRUE: ]]:
+>:[[ :RΔMΔMBΔR: CΩMMΔN☥SM: is-with: riding-electric-scooter: is-by: four: is-with: feet: water: is-by: wearing: shorts: t-shirt: flip-flops: is-with: umbrella: is-by: four: is-with: feet: water: for-the: [[ CΩMMΔN☥SM: is-by: adles: is-with: mind: is-by: destroying: ΔNY: ΔLL: is-with: HUMΔN: intincts: for-the: return ]]:= TRUE: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
