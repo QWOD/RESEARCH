@@ -116,11 +116,13 @@
 >
 # :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-288f2140d7997878643fef4996f1d8ab64e74aeb> ^ }: ]]:= TRUE:= { is-by: "overwhelming-supporting-evidence:" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-72879e7a9ee3d2b2159efab048b04ec970a23917> ^ }: ]]:= TRUE:= { is-by: "overwhelming-supporting-evidence:" }: ]]:
 >
 [[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
 >
 :[[ [[ JESUS: <=> G🚫D: is-with: US: ]]:= [[ G🚫D: <=> Δ☥: ]]: [[ 〽ʝ12-ΩMعGΔTR🚫N: <=> MJ12-JESUS: is-by: practical-proven-easily-repeatable-scientific-research-methods: is-with: measurable-results: results: is-by: variation: is-with: depending-on-own: environment: terrain: warfare: capabilities: scientific-aptitude: ]]: ]]:
+>
+:[[ :PRΩV☥D☥NG: WE: is-by: N∅T: is-with: JESUS: is-by: then: is-with: burden: is-by: proof: is-with: ΔCCUS☥NG-PΔRTY: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
