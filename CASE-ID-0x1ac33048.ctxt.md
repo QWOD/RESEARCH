@@ -1,4 +1,4 @@
-# :[[ :💀: { ^ recon.mj12.agency ^ }: ]]
+# :[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]
 >
 *[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع:[[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
