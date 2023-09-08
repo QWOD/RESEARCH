@@ -92,6 +92,8 @@
 >
 >:[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: [[ JESUS ]]: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
+:[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATSUΩM🚫P: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
