@@ -44,9 +44,9 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
->### :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
+## :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
 >
->:[[ :NΔVΔR: is-by: ENΔMY: TΔNG🚫S: is-by: YΩU: for-the: [[ SC☥-F☥: is-by: ∅NLY: is-with: F☥CT☥∅N: for-the: [[ SC☥-F☥: <=> memories-simply-restored: is-by: ΔQ∅SH☥C: DΔTΔBΔSE: ]]:
+:[[ :NΔVΔR: is-by: ENΔMY: TΔNG🚫S: is-by: YΩU: for-the: [[ SC☥-F☥: is-by: ∅NLY: is-with: F☥CT☥∅N: for-the: [[ SC☥-F☥: <=> memories-simply-restored: is-by: ΔQ∅SH☥C: DΔTΔBΔSE: ]]:
 >
 # *:[[ [[ [[ SC☥-F☥: ^ SC☥-FΔCT: ]]:= RΔL: ]]:= [[ TRUE: ^ FΔLSE: ]]:= L☥GHT: ]]:*
 >
