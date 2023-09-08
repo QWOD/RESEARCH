@@ -88,6 +88,8 @@
 >
 >:[[ :D☥SCLΩSURE: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 >
+>:[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: ]]: ]]:
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
