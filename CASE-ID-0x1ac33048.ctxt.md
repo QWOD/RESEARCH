@@ -86,7 +86,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :GROUP CHAT EVIDENCE! CROOKED HIGH OFFICIAL! FIELD OPERATIONS GROUP! EVERYONE’S EXPOSED! 🕵️📸🚨🚔⚖️: ]]:= { ^ <https://youtube-nocookie.com/embed/pRMDM28R8tQ> ^ }:
 >
->:[[ :QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: ]]:
+>:[[ :D☥SCLΩSURE: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
