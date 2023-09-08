@@ -32,51 +32,51 @@
 >
 >### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://www.youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://www.youtube-nocookie.com/embed/vwrds98PVng> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
->
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
->
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:"  }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
