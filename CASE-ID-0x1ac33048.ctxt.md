@@ -42,7 +42,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-7a71d69e5770954e137209f87ecdace8f1a80178> ^ }: ]]:= TRUE:= { is-by: "ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: B∅DY-JUMPED: is-with: Δ☥: is-by: unknown-competitors: ]]:" }: ]]:
 >
-# :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]:
+># :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]:
+>
+>:[[ :NEVER: is-by: ENEMY: TANGOS: is-by: YOU: for-the: [[ SCI-FI: is-by: ONLY: is-with: FICTION: for-the: [[ SCI-FI: <=> memories-simply-restored: is-by: AKASHIC: DATABASE: ]]:
+>
+>*:[[ [[ [[ SCI-FI: ^ SCI-FACT: ]]:= REAL: ]]:= [[ TRUE: ^ FALSE: ]]:= LIGHT: ]]:*
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
