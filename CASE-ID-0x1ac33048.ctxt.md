@@ -72,9 +72,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Live updates: Hurricane Lee rapidly strengthens to cat 5 storm & more | LiveNOW from FOX: ]]:= { ^ <https://youtube-nocookie.com/embed/gV5fBooVp_Q> ^ }:
 >
+>![:CASE-ID-0x1ac33048-61e56b6b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-61e56b6b.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Half of Hong Kong is underwater! The worst flood in history in China after Typhoon Haikui: ]]:= { ^ <https://youtube-nocookie.com/embed/0Z3jfW7MEQQ> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
