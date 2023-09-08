@@ -58,7 +58,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= FΔLSE:= { is-by: "N☥GHTLY: NEWS:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-b74ac407293c47bc8793d48d10fec930a13de4bb> ^ }: ]]:= FΔLSE:= { is-by: "N☥GHTLY: NEWS:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Nightly News Full Broadcast - Sept. 7: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrSEWjruOY> ^ }:
 >
