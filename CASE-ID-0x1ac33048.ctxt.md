@@ -182,11 +182,13 @@
 >
 :[[ :for-the: [[ MYSTΔR☥ΩUS: LΔCK: is-by: C∅GN☥T☥VE: ΔBΔL☥TΔS: is-with: [[ _ ]]: is-by: [[ _ ]]: for-the: [[ RΔL: L☥FE: NPC: ☥NVΔS☥∅N: is-by: ΔLRΔDY: is-with: ΔPPΔRENTLY: BEEN-HΔRE: is-by: quite-some-time: ]]: ]]: ]]:
 >
+![:CASE-ID-0x1ac33048-be3e00f3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-be3e00f3.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :CHOSEN ONE YOU HAVE BECOME A THREAT‼️ : [[ _: chose: nones: _: awakening: _: spirituality: _: consciousness: _: chosen ]]: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/K4FU31DyyV8> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
