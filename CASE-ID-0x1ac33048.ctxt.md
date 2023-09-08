@@ -160,6 +160,10 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/xg6QeF4_JLc> ^ }:
 >
+:[[ Cataclysm: is-by: @: is-with: Karl-Casey: { ^ <https://youtube-nocookie.com/embed/5xW_aEukNfc> ^ }:
+>
+![:CATACLYSM.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CATACLYSM.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
