@@ -104,7 +104,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOUR’E LIVING IN THE DIVINE PLAN ✝️! U R Becoming AWARE OF THE 2 PLANS for humanity. : [[ _: god: _: truth ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/TxNALxueI8M> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
