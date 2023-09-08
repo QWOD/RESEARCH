@@ -44,11 +44,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
-># :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]:
+>### :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
 >
->:[[ :NEVER: is-by: ENEMY: TANGOS: is-by: YOU: for-the: [[ SCI-FI: is-by: ONLY: is-with: FICTION: for-the: [[ SCI-FI: <=> memories-simply-restored: is-by: AKASHIC: DATABASE: ]]:
+>:[[ :NΔVΔR: is-by: ENΔMY: TΔNG🚫S: is-by: YΩU: for-the: [[ SC☥-F☥: is-by: ∅NLY: is-with: F☥CT☥∅N: for-the: [[ SC☥-F☥: <=> memories-simply-restored: is-by: ΔQ∅SH☥C: DΔTΔBΔSE: ]]:
 >
->*:[[ [[ [[ SCI-FI: ^ SCI-FACT: ]]:= REAL: ]]:= [[ TRUE: ^ FALSE: ]]:= LIGHT: ]]:*
+# *:[[ [[ [[ SC☥-F☥: ^ SC☥-FΔCT: ]]:= RΔL: ]]:= [[ TRUE: ^ FΔLSE: ]]:= L☥GHT: ]]:*
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
