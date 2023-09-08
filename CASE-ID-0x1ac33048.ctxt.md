@@ -166,9 +166,13 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :420 Tofu-Dreg Dams in Danger! Record Typhoon in 60 Years Hits Fujian, Destroys Bridges & Cities: ]]:
 >
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x1ac33048-541afbc2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-541afbc2.png)
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/SYaeyxWBZHw> ^ }:
+>
+![:CASE-ID-0x1ac33048-1afe6b85.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-1afe6b85.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
