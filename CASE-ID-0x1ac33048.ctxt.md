@@ -1,4 +1,4 @@
-# :[[ :💀: { ^ recon.〽ʝ12.agency ^ }: ]]
+# :[[ :💀: { ^ recon.mj12.agency ^ }: ]]
 >
 *[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع:[[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
@@ -24,7 +24,7 @@
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x1ac33048.ctxt.md> ^ }:
 >
-:is-by: [[ ATSUΩM🚫P-DΔRPΔ: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ ]]:= { ^qwod: 👼: 〽ʝ12: 👽: agency^ }:
+:is-by: [[ :ATSUΩM🚫P-DΔRPΔ: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:= { ^qwod: 👼: mj12: 👽: agency^ }:
 >
 ### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
 >
