@@ -94,6 +94,8 @@
 >
 :[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATSUΩM🚫P: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
+>## *:[[ :N🚫T⚠️CE: is-with: YΩU: is-by: RΔD☥NG: is-with: TH☥S: is-with: YΩU: is-by: N∅W: is-with: ATSUΩM🚫P: level-clearance: ]]*
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
