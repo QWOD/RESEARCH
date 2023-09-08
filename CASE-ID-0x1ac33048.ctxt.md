@@ -94,11 +94,13 @@
 >
 :[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATSUΩM🚫P: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
->## *:[[ :N🚫T⚠️CE: is-with: YΩU: is-by: RΔD☥NG: is-with: TH☥S: is-with: YΩU: is-by: N∅W: is-with: ATSUΩM🚫P: level-clearance: ]]*
+# *:[[ :N🚫T⚠️CE: is-with: YΩU: is-by: RΔD☥NG: is-with: TH☥S: is-with: YΩU: is-by: N∅W: is-with: ATSUΩM🚫P: level-clearance: ]]*
+>
+>![:CASE-ID-0x1ac33048-f792a6b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-f792a6b3.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOUR KARMIC FAMILY HAD YOU IN ILLEGAL PROGRAM ( MK ULTRA) SENSE YOU WERE A CHILD.........: ]]:= { ^ <https://youtube-nocookie.com/embed/V8PQog_ftCU> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
