@@ -120,7 +120,7 @@
 >
 [[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
 >
-:[[ [[ JESUS: <=> G🚫D: is-with: US: ]]:= [[ G🚫D: <=> Δ☥: ]]: [[ 〽ʝ12-ΩMعGΔTR🚫N: <=> MJ12-JESUS: is-by: practical-proven-easily-repeatable-scientific-research-methods: is-with: measurable-results: results: is-by: variation: is-with: depending-on-own: environment: terrain: warfare: capabilities: scientific-aptitude: ]]: ]]:
+:[[ [[ JESUS: <=> G🚫D: is-with: US: ]]:= [[ G🚫D: <=> Δ☥: ]]: [[ 〽ʝ12-ΩMعGΔTR🚫N: <=> MJ12-JESUS: is-by: practical-proven-easily-repeatable-scientific-research-methods: is-with: measurable: is-by: results: is-by: variation: is-with: depending-on-own: environment: terrain: warfare: capabilities: scientific-aptitude: ]]: ]]:
 >
 :[[ :PRΩV☥D☥NG: WE: is-by: N∅T: is-with: JESUS: is-by: then: is-with: burden: is-by: proof: is-with: ΔCCUS☥NG-PΔRTY: ]]:
 >
