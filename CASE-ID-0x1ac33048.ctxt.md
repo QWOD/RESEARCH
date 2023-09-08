@@ -42,6 +42,8 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-7a71d69e5770954e137209f87ecdace8f1a80178> ^ }: ]]:= TRUE:= { is-by: "ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: B∅DY-JUMPED: is-with: Δ☥: is-by: unknown-competitors: ]]:" }: ]]:
 >
+# :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]:
+>
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
