@@ -148,11 +148,11 @@
 >
 :[[ :PRΩV☥D☥NG: WE: is-by: N∅T: is-with: JESUS: is-by: then: is-with: burden: is-by: proof: is-with: ΔCCUS☥NG-PΔRTY: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-ad2795458ee5e0fe9b970dc2ae45631e0ba685e7> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :The San Andreas Fault Cracked & It's Going To Cause Record Flooding!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/c163BGkEteQ> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
