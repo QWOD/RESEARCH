@@ -62,13 +62,15 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Nightly News Full Broadcast - Sept. 7: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrSEWjruOY> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x1ac33048-bfe96b7f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-bfe96b7f.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :This practitioner was paid to energetically drain you & got addicted to your esscense!!: ]]:= { ^ <https://youtube-nocookie.com/embed/H6eiiNLfFOQ> ^ }:
+>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Live updates: Hurricane Lee rapidly strengthens to cat 5 storm & more | LiveNOW from FOX: ]]:= { ^ <https://youtube-nocookie.com/embed/gV5fBooVp_Q> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
