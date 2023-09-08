@@ -32,17 +32,17 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://www.youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= TRUE: RΔLΔVΔNT:= { is-by: "unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]:" }: ]]:
 >
 >:[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://www.youtube-nocookie.com/embed/vwrds98PVng> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/vwrds98PVng> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-a241e637e0c9dfbdc5af68dbcfda00bf7067f2bc> ^ }: ]]:= TRUE:= { is-by: "ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: B∅DY-JUMPED: is-with: Δ☥: is-by: unknown-competitors: ]]:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
 >### :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
 >
@@ -52,11 +52,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://www.youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= TRUE:= { is-by: "W∅RLD: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://www.youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= [[ _ ]]:= { is-by: "[[ _ ]]:" }: ]]:
 >
