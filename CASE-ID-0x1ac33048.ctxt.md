@@ -538,7 +538,7 @@
 >
 ### [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _ : C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]
 >
-# [[ :OPERATI∅NAL-EDUCATI∅N: ]]
+# :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
 >
 ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]]
 >
