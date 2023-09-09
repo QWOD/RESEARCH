@@ -264,6 +264,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/q9k7OWRktvI> ^ }:
 >
+:[[ :Non-Environmental: Extra-Terrestrial-Δnomoly-Based: [[ NEعTΔB: ]]:  CLΩMΔTE-CHΔNGE: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
