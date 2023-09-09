@@ -61,6 +61,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OR", "∅R")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OG", "∅G")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "GO", "G🚫")
+		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex:", "CrΔp☥Δx™:", -1)
 		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex™:", "CrΔp☥Δx™:", -1)
 		crypTexTranslated = strings.Replace(crypTexTranslated, "OMEGA:", "∅MΔGΔ:", -1)
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
