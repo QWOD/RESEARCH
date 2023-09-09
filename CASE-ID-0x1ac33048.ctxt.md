@@ -284,6 +284,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/VtNaoqRRxHE> ^ }:
 >
+:[[ :W⚠️RN🚫: incoming: PΔ☥N: ΔLG∅R☥THM: DعTECTED: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
