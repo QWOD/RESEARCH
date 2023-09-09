@@ -30,7 +30,7 @@ cryptor.x86_64: OK
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-4bd79a98d2878458c53823afc676bbd51cedfce9> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]:
 >
