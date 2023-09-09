@@ -104,7 +104,7 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		for i := 0; i < len(secretRandomSeed)/3+2; i++ {
+		for i := 0; i < 3; i++ {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed))), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		}
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
