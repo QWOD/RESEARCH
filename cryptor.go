@@ -54,7 +54,6 @@ func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {
-		strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
@@ -106,7 +105,9 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		fmt.Println(crypTexTranslated)
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
