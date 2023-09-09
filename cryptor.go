@@ -80,6 +80,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
@@ -93,13 +94,9 @@ func main() {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
 		}
-		if newC == "t" || newC == "T" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "t", "☥")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "7")
-		}
-		if newC == "E" || newC == "e" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "E", "3")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "ع")
+		if newC == "U" || newC == "Y" {
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
 		}
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
