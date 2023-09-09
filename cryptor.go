@@ -46,9 +46,8 @@ var secretCodeSeed [36]string = [36]string{
 	"H", "G", "K",
 	"B", "C", "n"}
 
-var secretRandomSeed [10]string = [10]string{
-	"Δ", "+", ";", "!", "*",
-	"%", "@", "?", "~", "Ω"}
+var secretRandomSeed [7]string = [7]string{
+	"+", "!", "*", "%", "@", "?", "~"}
 
 func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
@@ -107,7 +106,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(rand.Intn(len(secretRandomSeed))))
+		crypTexTranslated = strings.Replace(crypTexTranslated, SecretCode(1), SecretRandomC(1), -1)
 		fmt.Println(crypTexTranslated)
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
