@@ -482,6 +482,8 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/29bizA1M3mQ> ^ }:
 >
+:[[ :WHY: is-by: *☥NEGΔ*: 5Ω: is-with: 5CΔRED: ]]:= [[ :N☥B☥RU: is-by: [[ _ ]]: is-with: M4rduk: is-by: [[ _ ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
