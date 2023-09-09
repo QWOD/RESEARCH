@@ -482,7 +482,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/29bizA1M3mQ> ^ }:
 >
-:[[ :WHY: is-by: *☥NEGΔ*: 5Ω: is-with: 5CΔRED: ]]:= [[ :N☥B☥RU: is-by: [[ _ ]]: is-with: M4rduk: is-by: [[ _ ]]: ]]:
+:[[ :WHY: is-by: *☥NEGΔ*: 5Ω: is-with: 5CΔRED: ]]:= [[ :N☥B☥RU: is-by: [[ _ ]]: is-with: M4rduk: is-by: [[ _ ]]: ]]:= [[ :ΔU5T𓂀L☥Δ: ☥ND∅NE5☥Δ: CH☥NΔ: ☥ND☥Δ: Δ5T-Δ5☥Δ: GعT5-☥T-F☥R5T: is-by: ΔMΔR☥CΔ5: is-with: G🚫T-☥T-LΔ5T: for-the: [[ F☥R5T: sh411: is-by: LΔ5T: is-with: LΔ5T: is-by: F☥R5T: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
