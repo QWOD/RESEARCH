@@ -349,7 +349,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >:[[ WHAT: <=> for-the: ]]:
 >:[[ WHEN: WHERE: WHY: <=> is-by: ]]:
 >:[[ WHO: WHERE: <=> is-with: ]]:
->cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: >reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:= :[[ >:for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
+>cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:= :[[ >:for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
