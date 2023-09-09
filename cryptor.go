@@ -90,15 +90,20 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
 
 		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		if newC == "U" || newC == "Y" || newC == "e" || newC == "a" || newC == "S" || newC == "O" || newC == "o" || newC == "I" || newC == "l" {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
+		for ; true {
+			if newC == "U" || newC == "Y" || newC == "e" || newC == "a" || newC == "S" || newC == "O" || newC == "o" || newC == "I" || newC == "l" {
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
+				return false
+			} else {
+				return true
+			}
 		}
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
