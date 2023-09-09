@@ -402,7 +402,7 @@ cryptor.x86_64: OK
 >
 cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]: ]]: ]]:
 >
-:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
+:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-by: reverse: is-with: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
 >
 ![:CASE-ID-0x1ac33048-c685ca2d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-c685ca2d.png)
 >
