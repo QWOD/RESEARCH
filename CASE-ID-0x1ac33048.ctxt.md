@@ -404,11 +404,13 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
 >
+![:CASE-ID-0x1ac33048-c685ca2d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-c685ca2d.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :OH MY GOODNESS THE DIVINE JUSTICE THE WORLD WILL SEE: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/tILeRFXZ-Iw> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
