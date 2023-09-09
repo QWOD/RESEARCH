@@ -244,11 +244,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
 >
+![:CASE-ID-0x1ac33048-577ab1c9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-577ab1c9.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Meteor Shower and Starry skies 24/7 LIVE from the Subaru Telescope on MaunaKea, Hawaii: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/76rwjwc07DI> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
