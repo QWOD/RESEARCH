@@ -21,8 +21,8 @@ package main
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
-// cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.x86_64; sha256sum cryptor.x86_64 >cryptor.x86_64.asc; sha256sum -c cryptor.x86_64.asc
-// cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.x86_64; sha256sum passworder.x86_64 >passworder.x86_64.asc; sha256sum -c passworder.x86_64.asc
+// cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc
+// cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.$(uname -i); sha256sum passworder.$(uname -i) >passworder.$(uname -i).asc; sha256sum -c passworder.$(uname -i).asc; newfig 0X$(passworder.$(uname -i)) 
 
 import (
 	"fmt"
