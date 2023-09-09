@@ -21,6 +21,7 @@ package main
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
+// cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.x86_64; sha256sum cryptor.x86_64 >cryptor.x86_64.asc; sha256sum -c cryptor.x86_64.asc
 
 import (
 	"fmt"
@@ -61,9 +62,9 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OG", "∅G")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "GO", "G🚫")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "INFIDEL:", "LoFi")
-		crypTexTranslated = strings.Replace(crypTexTranslated, "LoFi:", "LOW: FIDELITY: [[ SIN: <=> fear-driven: pleasure-seeking: ]]: WAVE: FREQUENCY: CONSCIOUSNESS: [[ CHIKANS: ]]", 1, -1)
-		crypTexTranslated = strings.Replace(crypTexTranslated, "HLAB:", "[[ HLAB: <=> High-Level: Ascended-Being: ]]:", 1, -1)
-		crypTexTranslated = strings.Replace(crypTexTranslated, "LAMB:", "[[ LAMB: <=> Low-Amplitude: Magnetovortexresonate: Bionanotechnology: ]]:", 1, -1)
+		crypTexTranslated = strings.Replace(crypTexTranslated, "LoFi:", "LOW: FIDELITY: [[ SIN: <=> fear-driven: pleasure-seeking: ]]: WAVE: FREQUENCY: CONSCIOUSNESS: [[ CHIKANS: ]]", -1)
+		crypTexTranslated = strings.Replace(crypTexTranslated, "HLAB:", "[[ HLAB: <=> High-Level: Ascended-Being: ]]:", -1)
+		crypTexTranslated = strings.Replace(crypTexTranslated, "LAMB:", "[[ LAMB: <=> Low-Amplitude: Magnetovortexresonate: Bionanotechnology: ]]:", -1)
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HE", "HΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
