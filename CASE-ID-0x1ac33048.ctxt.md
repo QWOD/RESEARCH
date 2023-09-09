@@ -390,11 +390,11 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 ## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
->:[[ :mercuri: ~: ]]:= PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
 >
 cryptor.x86_64: OK
 >
-:[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
+:[[ *rΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
