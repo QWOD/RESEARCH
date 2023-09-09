@@ -385,7 +385,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Z4K4Onil3iI> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
 >
 # ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
