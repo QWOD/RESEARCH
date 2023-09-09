@@ -54,7 +54,7 @@ func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {
-		strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed))), SecretRandomC(rand.Intn(len(secretRandomSeed))))
+		strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
