@@ -344,12 +344,19 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Kq2Qku8PbQY> ^ }:
 >
-# cryptor [[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]:= [[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+># cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]:
 >
->:[[ WHAT: <=> for-the: ]]:
->:[[ WHEN: WHERE: WHY: <=> is-by: ]]:
->:[[ WHO: WHERE: <=> is-with: ]]:
->cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:= :[[ >:for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
+:[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+>
+:[[ WHAT: <=> for-the: [[ _ ]] ]]:
+>
+:[[ WHEN: WHERE: WHY: <=> is-by: [[ _ ]] ]]:
+>
+:[[ WHO: WHERE: <=> is-with: [[ _ ]] ]]:
+>
+>cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
+>
+:[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
@@ -393,9 +400,9 @@ cryptor.x86_64: OK
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-cryptor :[[ :BORN: is-by: neccessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]:
+cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]:
 >
-:[[ :B∅RN: is-by: neccessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]:
+:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
