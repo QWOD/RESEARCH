@@ -340,9 +340,15 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Marrakech: ]]
+cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Marrakech: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Kq2Qku8PbQY> ^ }:
+>
+$(cryptor [[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]):= [[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+>
+![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
+>
+![:CASE-ID-0x1ac33048-556be9d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-556be9d3.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
