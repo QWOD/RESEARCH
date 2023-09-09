@@ -32,9 +32,9 @@ cryptor.x86_64: OK
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-4bd79a98d2878458c53823afc676bbd51cedfce9> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]:
+cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]: ]]: ]]:
 >
-:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]:
+:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
 >
     [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
     [[ :W⚠️RN🚫: CrΔp☥Δx™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:

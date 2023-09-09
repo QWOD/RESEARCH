@@ -400,9 +400,9 @@ cryptor.x86_64: OK
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-4bd79a98d2878458c53823afc676bbd51cedfce9> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]:
+cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must: is-with: reverse: MK: ULTRA: PROGRAMMING: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: AI: take-over: is-by: unknown-competitors: is-with: EARTH: HOLOGRAPHIC: SIMULATION: A: 55: ]]: ]]: ]]:
 >
-:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]:
+:[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
