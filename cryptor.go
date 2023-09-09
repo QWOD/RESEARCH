@@ -54,6 +54,7 @@ func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {
+		strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed))), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
@@ -94,7 +95,6 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
@@ -104,9 +104,6 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		for i := 0; i < 3; i++ {
-			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed))), SecretRandomC(rand.Intn(len(secretRandomSeed))))
-		}
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
