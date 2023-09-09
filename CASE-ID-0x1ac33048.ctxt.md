@@ -363,21 +363,21 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Massive Wave of GARBAGE - World's largest garbage dumps: ]]:
 >
-:is-with: { ^ Δ ^ }:
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/TJ9I3d0JX5c> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :50 Pictures That Will Change Your View Of The Past: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/SoqMMz69q6o> ^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+[[ :50 Pictures That Will Change Your View Of The Past: ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/SoqMMz69q6o> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
