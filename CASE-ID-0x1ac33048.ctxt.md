@@ -344,7 +344,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Kq2Qku8PbQY> ^ }:
 >
-># cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]:
+># cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
 >
@@ -388,7 +388,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
 >
-# ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
+## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
 >:[[ :mercuri: ~: ]]:= PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
 >
