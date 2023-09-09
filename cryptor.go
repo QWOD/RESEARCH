@@ -79,8 +79,6 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NO", "N∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
@@ -88,18 +86,18 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
 
 		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		if newC == "U" || newC == "Y" {
+		if newC == "U" || newC == "Y" || newC == "e" || newC == "S" || newC == "O" || newC == "o" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
-		}
-		if newC == "U" || newC == "Y" {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
 		}
 
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
