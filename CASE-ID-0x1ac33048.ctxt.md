@@ -436,7 +436,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Vd6YhDy_ZSI> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-79870fd9e7fd3a9ed7a0f73f58e9bd760a37c77e> ^ }: ]]:= { RΔLΔVΔNT: "ΔNLΔWFUL: HUMΔN: ∅RGΔN: T𓂀FF☥CK☥NG: R☥NG: is-by: CΩVΔRT: VΩ∅D∅Ω: W☥TCH: C𓂀FT: KΔLL: TΔMS: is-with: CL∅N☥NG: T∅RTURE: EXPΔRΩMENTΔT☥∅N: SURVEΔLLΔNCE: for-the: [[ SΔTΔN☥C: FREΔMΔS∅N: SCΔNTΩL∅GY: W☥TCH: CΩVEN: is-by: MΩ∅RHΔD: MN: is-with: P𓂀☥RΔ-PR🚫PΔRTY-MENΔGΔMENT: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9c86a04df1df263fad60465577ef93b7e7db0a0d> ^ }: ]]:= { RΔLΔVΔNT: "ΔNLΔWFUL: HUMΔN: ∅RGΔN: T𓂀FF☥CK☥NG: R☥NG: is-by: CΩVΔRT: VΩ∅D∅Ω: W☥TCH: C𓂀FT: KΔLL: TΔMS: is-with: CL∅N☥NG: T∅RTURE: EXPΔRΩMENTΔT☥∅N: SURVEΔLLΔNCE: GΔNGSTΔLK☥NG: EXTRΔME: HUMΔN-R☥GHTS-ΔBUSE: for-the: [[ SΔTΔN☥C: FREΔMΔS∅N: SCΔNTΩL∅GY: W☥TCH: CΩVEN: is-by: MΩ∅RHΔD: MN: is-with: P𓂀☥RΔ-PR🚫PΔRTY-MENΔGΔMENT: ]]" }: ]]:
 >
 [[ :These people all messed up Real Estate Company-Stolen Business Assets Seized: ]]:
 >
