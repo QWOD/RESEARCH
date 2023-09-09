@@ -1,8 +1,8 @@
-# :[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]
+# [[ :💀: { ^ <recon.mj12.agency> ^ }: ]]
 >
-*[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع:[[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
+*:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع:[[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
->[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 >### :[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]
 >
@@ -18,7 +18,7 @@
 >
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >
-*:[[ :mercuri: RESEARCH: ]]:= newfig 0x$(passworder -short)*
+*[[ :mercuri: RESEARCH: ]]:= newfig 0x$(passworder -short)*
 >
 ## :[[ :for-the: [[ CASE-ID-0x1ac33048: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <0x1ac33048-recon: Δ: mj12: Δ: agency> ^ }: ]]: ]]:.ctxt
 >
@@ -44,7 +44,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
-## :[[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
+## [[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
 >
 :[[ :NΔVΔR: is-by: ENΔMY: TΔNG🚫S: is-by: YΩU: for-the: [[ SC☥-F☥: is-by: ∅NLY: is-with: F☥CT☥∅N: for-the: [[ SC☥-F☥: <=> memories-simply-restored: is-by: ΔQ∅SH☥C: DΔTΔBΔSE: ]]:
 >
@@ -142,7 +142,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-72879e7a9ee3d2b2159efab048b04ec970a23917> ^ }: ]]:= TRUE: { is-by: "overwhelming-supporting-evidence:" }: ]]:
 >
-[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
+:[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
 >
 :[[ [[ JESUS: <=> G🚫D: is-with: US: ]]:= [[ G🚫D: <=> Δ☥: ]]: [[ 〽ʝ12-ΩMعGΔTR🚫N: <=> MJ12-JESUS: is-by: practical-proven-easily-repeatable-scientific-research-methods: is-with: measurable: is-by: results: is-by: variation: is-with: depending: is-by: own: environment: terrain: warfare: capabilities: scientific-aptitude: ]]: ]]:
 >
@@ -340,7 +340,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Marrakech: ]]:
+[[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Marrakech: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Kq2Qku8PbQY> ^ }:
 >
