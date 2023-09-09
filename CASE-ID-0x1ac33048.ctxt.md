@@ -190,8 +190,6 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/K4FU31DyyV8> ^ }:
 >
-![:CASE-ID-0x1ac33048-46ef9648.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-46ef9648.png)
->
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :You will become someone’s worst nightmare! It’s raining karma on the karmic!: ]]:
