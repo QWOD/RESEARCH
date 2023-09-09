@@ -442,17 +442,19 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/EjQH30JPyew> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x1ac33048-e960f5b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-e960f5b7.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Ready or Not. God Told Me What's About to Happen.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/PvRrQhM7L_s> ^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+[[ :Spain Is In Shock 🔴 RED ALERT LEVEL after Terrible Hurricane Dana and Flash Flood & Storm: ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/8Q2GIOlr-Qs> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
