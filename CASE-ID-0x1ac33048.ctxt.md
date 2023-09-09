@@ -300,11 +300,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/608lvhzfYBA> ^ }:
 >
+![:CASE-ID-0x1ac33048-3d9e4219.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-3d9e4219.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :WELL DAMN! 👀 THIS WAS SUPPOSE TO BE A ZODIAC READING & SPIRIT WAS LIKE "LISTEN HERE REAL QUICK" 🤌🏽👀🔮: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/vHuexI2IPsY> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
