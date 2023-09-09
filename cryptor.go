@@ -90,7 +90,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
 
 		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		for ; true {
+		for true; false {
 			if newC == "U" || newC == "Y" || newC == "e" || newC == "a" || newC == "S" || newC == "O" || newC == "o" || newC == "I" || newC == "l" {
 				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
