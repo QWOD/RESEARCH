@@ -88,23 +88,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-
-		var newC = secretCodeSeed[rand.Intn(len(secretCodeSeed))]
-		for {
-			if newC == "U" || newC == "Y" || newC == "e" || newC == "a" || newC == "S" || newC == "O" || newC == "o" || newC == "I" || newC == "l" {
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Y", "𓋹")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-				crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
-			} else {
-				return
-			}
-		}
-
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 
@@ -116,8 +100,8 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		strings.ReplaceAll(crypTexTranslated, SecretCode(0), SecretRandomC(2))
-		strings.ReplaceAll(crypTexTranslated, SecretCode(4), SecretRandomC(6))
+		strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed)), SecretRandomC(rand.Intn(len(SecretRandomC)))
+		strings.ReplaceAll(crypTexTranslated, SecretCode(5), SecretRandomC(7))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
