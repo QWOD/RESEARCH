@@ -472,6 +472,8 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :TΔ5K: is-with: ΩMΔ?☥NE: HΩW: TΩME-T𓂀VΔL: is-by: 3ff3ct: is-with: psych3: E5PEC☥ΔLLY: is-with: chi1d: MK: ULT𓂀: PR∅?𓂀M: victims: for-the: [[ D5M: is-with: [[ _ ]]: 13v31-4ccur4cy: for-the: [[ ATSU: MK: ULT𓂀: PR∅?𓂀M: tim3-tr4v31-kidn4pping-victims: is-by: [[ _ ]]: ]]: ]]: ]]:
 >
+:[[ :∅NLY: QW🚫D-〽ʝ12: is-by: CrΔp☥Δx™: is-with: D5M: for-the: [[ ΔLL-D∅MΔ☥N: D5M: P5YCHΔ: ΔVΔLUΔT☥∅N5: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
