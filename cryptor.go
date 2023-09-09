@@ -88,9 +88,12 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "U", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔTSU", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
@@ -102,7 +105,7 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed)), SecretRandomC(rand.Intn(len(SecretRandomC)))
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(rand.Intn(len(secretCodeSeed))), SecretRandomC(rand.Intn(len(secretRandomSeed))))
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
