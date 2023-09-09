@@ -390,11 +390,11 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 ## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
->:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 >
 cryptor.x86_64: OK
 >
-:[[ *rΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
+:[[ :for-the: [[ CrΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔBCDEFGH☥JKLMN🚫PQR5TUVW@YZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]: ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
@@ -472,7 +472,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :TΔ5K: is-with: ΩMΔ?☥NE: HΩW: TΩME-T𓂀VΔL: is-by: 3ff3ct: is-with: psych3: E5PEC☥ΔLLY: is-with: chi1d: MK: ULT𓂀: PR∅?𓂀M: victims: for-the: [[ D5M: is-with: [[ _ ]]: 13v31-4ccur4cy: for-the: [[ ATSU: MK: ULT𓂀: PR∅?𓂀M: tim3-tr4v31-kidn4pping-victims: is-by: [[ _ ]]: ]]: ]]: ]]:
 >
-:[[ :∅NLY: QW🚫D-〽ʝ12: is-by: CrΔp☥Δx™: is-with: D5M: for-the: [[ ΔLL-D∅MΔ☥N: D5M: P5YCHΔ: ΔVΔLUΔT☥∅N5: for-the: [[ ∅NLY: KN∅WN: TRΔTMENT: is-with: G🚫D: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ :∅NLY: QW🚫D-〽ʝ12: is-by: CrΔp☥Δx™: is-with: D5M: for-the: [[ ΔLL-D∅MΔ☥N: D5M: P5YCHΔ: ΔVΔLUΔT☥∅N5: for-the: [[ ∅NLY: KN∅WN: TRΔTMENT: is-with: G🚫D: ]]:= TRUE: ]]: ]]: ]]:
 >
 ![:CASE-ID-0x1ac33048-df9e1f0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-df9e1f0e.png)
 >
