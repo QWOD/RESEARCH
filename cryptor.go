@@ -94,6 +94,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "r3t", "ret")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
