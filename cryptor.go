@@ -21,7 +21,7 @@ package main
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
-// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]:
+// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: Is-with: Is-by:
 
 import (
 	"fmt"
@@ -103,7 +103,7 @@ func main() {
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "f0r-th3:", "for-the:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-the:", "fΩr-thع:")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-th3:", "fΩr-thع:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
