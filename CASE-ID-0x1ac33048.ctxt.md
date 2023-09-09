@@ -436,7 +436,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Vd6YhDy_ZSI> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RΔLΔVΔNT: "HUMΔN: ∅RGΔN: T𓂀FF☥CK☥NG: CL∅N☥NG: ΔNLΔWFUL: T∅RTURE: EXPΔRΩMENTΔT☥∅N: SURVEΔLLΔNCE: R☥NG: for-the: [[ SΔTΔN☥C: FREΔMΔS∅N: SCΔNTΩL∅GY: W☥TCH: CΩVEN: is-by: MΩ∅RHΔD: MN: is-with: P𓂀☥RΔ-PR🚫PΔRTY-MENΔGΔMENT: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-79870fd9e7fd3a9ed7a0f73f58e9bd760a37c77e> ^ }: ]]:= { RΔLΔVΔNT: "HUMΔN: ∅RGΔN: T𓂀FF☥CK☥NG: CL∅N☥NG: ΔNLΔWFUL: T∅RTURE: EXPΔRΩMENTΔT☥∅N: SURVEΔLLΔNCE: R☥NG: for-the: [[ SΔTΔN☥C: FREΔMΔS∅N: SCΔNTΩL∅GY: W☥TCH: CΩVEN: is-by: MΩ∅RHΔD: MN: is-with: P𓂀☥RΔ-PR🚫PΔRTY-MENΔGΔMENT: ]]" }: ]]:
 >
 [[ :These people all messed up Real Estate Company-Stolen Business Assets Seized: ]]:
 >
