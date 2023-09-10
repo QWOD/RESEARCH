@@ -32,7 +32,9 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FAILURE: "[[ :for-the: [[ FΔΔ?URE: is-with: CΩMP?Y: is-by: ?ΔMB: G🚫D: CΩ5M☥C: W☥DE: TRΔTY: is-with: 4nci3nt-r341-14nd-pr0p3rty-c0v3ns: for-the: [[ :QW🚫D-〽ʝ12: is-by: N∅: ΔNY: ΩTHΔR: 🚫PT☥∅N5: is-by: N∅: is-with: TΩME: is-by: ?EFT: for-the: [[ ΔNY: Δ??: ΩTHΔR: G🚫VΔRNMENT5: wi11-n0w-b3-dism4nt13d: is-with: PΔCE: is-by: PΔCE: for-the: [[ TΔKE: BΔCK: Δ??: THΔ: 5TΩ?E: is-with: 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔR?Δ-M☥KE: is-with: BE-5TΔ??-ΔND-KN∅W-THΔT-☥-ΔM-G🚫D: is-by: for-the: [[ HΔ: 5HΔ: HΩM: HΔR: THΔ: THΔM: YΔ??: is-by: 🚫PΔ𓂀T☥∅N: G🚫∅D: 5HΔPPΔRD: is-with: Ω5CΔR-M☥KE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x1ca7279c-9cdc8a42.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-9cdc8a42.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Just Now! Libya disasters after Morocco ! Storm Daniel in Benghazi | عاصفة دانيال بنغازي ليبيا اليوم: ]]:= { ^ <https://youtube-nocookie.com/embed/O6fYqlCtdE4> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -84,7 +86,7 @@
 > 
 [[ :Lifeguard HQ: ]]:
 >
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/qY5-HXT4WSg> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/qY5-HXT4WSg> ^ }:
 >
 :is-with: { ^
 >
