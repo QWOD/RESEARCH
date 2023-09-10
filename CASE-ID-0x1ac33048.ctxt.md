@@ -344,11 +344,16 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
 >
-:[[ WHAT: <=> for-the: [[ _ ]] ]]:
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
-:[[ WHEN: WHERE: WHY: <=> is-by: [[ _ ]] ]]:
+:[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
-:[[ WHO: WHERE: <=> is-with: [[ _ ]] ]]:
+:[[ DENOTES: OWNER: for-the: [[ [[ SHIP: <=> is-with: [[ _ ]]: ]]: ]]:'
+:[[ WHΔT: is-with: PER5∅N: PLΔCE: TH☥NG: <=> for-the: [[ _ ]] ]]:
+>
+:[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
+>
+:[[ DEN∅TE5: ΩWNER: for-the: [[ [[ 5H☥P: <=> is-with: [[ _ ]]: ]]: ]]:
 >
 >cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
 >
