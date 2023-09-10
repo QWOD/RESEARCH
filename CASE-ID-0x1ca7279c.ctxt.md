@@ -82,6 +82,8 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :LIBYA STORM DISASTERS | تسبب إعصار دانيال في حدوث فيضانات في ليبيا الآن: ]]:= { ^ <https://youtube-nocookie.com/embed/hWcB_RE5634> ^ }:
 >
+>![:CASE-ID-0x1ca7279c-739c6570.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-739c6570.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
