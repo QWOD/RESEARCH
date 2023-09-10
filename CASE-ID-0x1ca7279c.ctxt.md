@@ -96,7 +96,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :ABOUT TO GET ARRESTED IN PUBLIC! FINANCIAL OPERATIONS GROUP! LLC & SOCIAL SECURITY FRAUD!🕵️📸🚨🚔: ]]:= { ^ <https://youtube-nocookie.com/embed/VDzJOtzTYEU> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
