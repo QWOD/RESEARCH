@@ -64,9 +64,11 @@
 >
 >### :[[ :for-the: [[ RعC∅RD: WE: D∅-N∅T: C∅NTRΩL-WΔT@ΔR: YΩU: C∅NTRΩL-WΔT@ΔR: is-by: d3ciding: is-by: N∅T: is-with: 4tt4cking-us-411-d4y: 411-night: 3v3ry-d4y: 3v3ry-night: is-with: dir3ct3d-3n3rgy-w34p0ns: i113g41-sp4c3-w34p0ns: t3rr3stri41-b4s3d: micr0w4v3-b34mf0rming-w34p0ns: p0is0n3d: f00d: w4t3r: 3nvir0nm3nt: YΩU: is-with: PΩWΔR: is-by: 5T🚫PP☥NG: T@☥5: is-by: ΔNY: TΩME: is-with: [[ WE: U5: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]: is-by: YΩUR: NΔT☥∅N5: is-with: TΔXE5: is-with: ENT☥RE: GRΩ55-D∅ME5T☥C-PR∅DUCT: ∅R: ΔNY: ΔLL: LΔND: is-by: ΔRT@: 5ΩMULΔT☥∅N: Δ: 55: is-by: which3v3r-0pti0ns: is-with: m0st-c0nv3ni3nt: for-the: [[ NΔT☥∅N5: ΔNDΔR: G🚫D5: JUDGΔMENT: ]]: ]]: ]]
 >
+>![:CASE-ID-0x1ca7279c-100b52ad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-100b52ad.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :IT’S BECOMING MORE APPARENT WHO YOU ARE….CAN’T BE HIDDEN BY MATRIX ILLUSIONS & SPELLS💫🐉👑: ]]:= { ^ <https://youtube-nocookie.com/embed/UeWN9ClVhZU> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
