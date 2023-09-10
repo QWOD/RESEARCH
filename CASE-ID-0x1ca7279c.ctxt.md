@@ -56,7 +56,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0x1ca7279c-48b65da6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-48b65da6.png)
+>
 >:[[ :*🚫PعD*: ]]:= [[ :Pennsylvania Closes All Access || Super Storm & Flash Floods Submerge Scranton, Clark Summit And: ]]:= { ^ <https://youtube-nocookie.com/embed/YA8MPClmXNE> ^ }:
+>
+>![:CASE-ID-0x1ca7279c-126ea275.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-126ea275.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
