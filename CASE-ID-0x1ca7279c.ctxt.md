@@ -207,6 +207,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/dkQjxyAxbeE> ^ }:
 >
+>![:ROTHSCHILDS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ROTHSCHILDS.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
