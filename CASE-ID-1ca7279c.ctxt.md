@@ -133,7 +133,7 @@
 >
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/KrQIlwWLB1k> ^ }:
 >
->## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: RΔM☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: 13ss-y3-b3: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]:
+>## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: RΔM☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: LE55: YΔ: is-by: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
