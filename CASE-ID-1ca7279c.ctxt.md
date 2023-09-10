@@ -42,7 +42,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :The Yellowstone Officials FINAL WARNING Terrifies The Whole World!: ]]:= { ^ <https://youtube-nocookie.com/embed/9KDiJFI8wJo> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
