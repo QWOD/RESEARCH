@@ -642,6 +642,8 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/dkW0XfbgiQ8> ^ }:
 >
+:[[ :D☥5CLΩ5URE: for-the: [[ MΔNY: FΔΔLED: Δ55Δ55☥NΔT☥∅N: ΔTTΔMPT5: is-with: n34r1y-3v3ry-d4y-s0m30n3: TRΔ5: ☥T: for-the: [[ QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔTR🚫N: Qu4ntum-Δdv4nc3d-T4ctic41-Tim3-Unit: usu411y: is-by: 0th3r-sid3: is-with: w0r1d: is-with: 3xp14ining-m4ny-n4tur41-dis4st3rs-curr3nt1y: is-by: 3xp3ri3nc3d: is-by: 4r0und-w0r1d: is-with: d3p10ying-c0unt3r-d3f3nsiv3-w4rf4r3-0p3r4ti0ns: for-the: [[ F∅RCEPRΩTECT-RعQUE5T: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
