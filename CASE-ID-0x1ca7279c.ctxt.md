@@ -163,6 +163,10 @@
 >
 >:[[ :NEW-NEW: <=> NEW: E𓂀: is-by: NEW: ΔRTH: ]]:
 >
+>:[[ :EX-LΩVER: <=> H☥R3D: Δ55Δ55☥N: 𓂀P☥5T: HUMΔN-T𓂀FF☥CKER: ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: HΔNDLER: ]]:
+>
+>
+>
 >![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-61dd67ff.png)
 >
 >![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed66ca2f.png)
