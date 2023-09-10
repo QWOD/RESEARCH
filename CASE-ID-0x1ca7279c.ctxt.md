@@ -76,9 +76,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :IT’S BECOMING MORE APPARENT WHO YOU ARE….CAN’T BE HIDDEN BY MATRIX ILLUSIONS & SPELLS💫🐉👑: ]]:= { ^ <https://youtube-nocookie.com/embed/UeWN9ClVhZU> ^ }:
 >
+>![:CASE-ID-0x1ca7279c-7179fa83.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-7179fa83.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :LIBYA STORM DISASTERS | تسبب إعصار دانيال في حدوث فيضانات في ليبيا الآن: ]]:= { ^ <https://youtube-nocookie.com/embed/hWcB_RE5634> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
