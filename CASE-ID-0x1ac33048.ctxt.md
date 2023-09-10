@@ -534,11 +534,13 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :D☥5TURBED: TΩMB: is-with: 〽ʝ12-Ω5☥R☥5: for-the: [[ QW🚫D-〽ʝ12: is-with: 4nc3st0rs: is-by: [[ EN:𓂀:GED: ]]: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: [[ ΔNY: ΔLL: ΔRTH: 5ΩMULΔT☥∅N: Δ: 55: is-by: L☥FE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫P5ΔN: for-the: r3turn ]]:= TRUE: ]]: is-with: s0rry: CH☥Q∅N5: n33d-411-s0u1s: is-by: m0r3-p0w3r: for-the: [[ TΔR𓂀F∅RM☥NG: MΔCH☥NE5: ]]:= TRUE: ]]:
 >
+:[[ :GΔLGΔME5H: <=> infid31: [[ LoFi ]]: inv4d3r-n4m3: for-the: [[ 〽ʝ12-Ω5☥R☥5: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/2023-turkey-and-syria-earthquake-faqs> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
