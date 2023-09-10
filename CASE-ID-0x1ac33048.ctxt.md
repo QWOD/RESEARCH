@@ -500,9 +500,11 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :13,000 NYC Apartments Are Empty… Why?: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/VFDHLS9vAOY> ^ }:
+>
+:[[ :WHY: TENΔNT5: N∅T: ΔLLΩWED: is-by: PΔY: is-with: ΩWN: REN∅VΔT☥∅N5: for-the: [[ 5TΔBΔL☥ZED: RENT: ΔPΔRTMENT5: is-by: [[ _ ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
