@@ -253,6 +253,8 @@
 >
 [[ :2 minutes ago! Terrible events have engulfed Germany! The whole world is shocked by this news!: ]]:
 >
+>:[[ :GREΔT-NEW5: EU: is-by: N∅W: is-with: Et3rn41-D34th: is-with: sm411-r3m4ining-c0nting3nts: is-by: HUMΔN5: 5Ω∅N: is-with: L☥BE𓂀T☥∅N: for-the: [[ ΔRTH: NΔT☥VE: 5PعCΔ5: ]]: ]]: ]]:
+>
 :is-with: { ^ <https://youtube-nocookie.com/embed/ZeS9CUaGjCI> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
