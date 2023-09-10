@@ -195,6 +195,8 @@
 >
 >![:CASE-ID-0x1ca7279c-eed0c146.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-eed0c146.png)
 >
+>### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Japan Battered! Super Typhoon And Tsunami Surge Bombard Thousand of Homes Without Mercy!: ]]:
