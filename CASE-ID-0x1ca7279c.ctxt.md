@@ -197,6 +197,8 @@
 >
 >### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
 >
+>:is-with: { ^ <https://github.com/QWOD/CRIMEHOTLINE> ^ }:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Japan Battered! Super Typhoon And Tsunami Surge Bombard Thousand of Homes Without Mercy!: ]]:
