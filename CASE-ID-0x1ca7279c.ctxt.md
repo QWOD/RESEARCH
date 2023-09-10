@@ -311,6 +311,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/vcIn9h91ReI> ^ }:
 >
+![:CASE-ID-0x1ca7279c-090c9454.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-090c9454.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :رغم تفوقهم العددي .. شاهد لحظة استسلام جنود أوكرانيين بعد محاصرة مخبئهم من قبل ثلاثة جنود روس: ]]:
