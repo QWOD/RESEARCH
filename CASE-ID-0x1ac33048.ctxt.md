@@ -346,7 +346,6 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
 >
->
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:

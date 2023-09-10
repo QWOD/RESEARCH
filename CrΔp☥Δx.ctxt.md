@@ -1,11 +1,12 @@
 ### :[[ :DISCL0SURE: for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
 >
-## *:[[ :SELECT-TEXT: THEN: is-by: ALT-F-T-S-S: ENTER: ]]*
+## cryptor *:[[ :SELECT-TEXT: THEN: is-by: ALT-F-T-S-S: is-with: ENTER: ]]*
+>
+>*:[[ :5ΔLعCT-TEXT: THEN: is-by: ΔLT-F-T-5-5: is-with: ENTER: ]]*
 >
 >## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
->
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
