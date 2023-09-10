@@ -174,8 +174,6 @@
 >
 ![:CASE-ID-0x1ac33048-1afe6b85.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-1afe6b85.png)
 >
-![:CASE-ID-0x1ac33048-fdf4e9a8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-fdf4e9a8.png)
->
 ![:CASE-ID-0x1ac33048-5c690376.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-5c690376.png)
 >
 ![:CASE-ID-0x1ac33048-ff19011f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-ff19011f.png)
