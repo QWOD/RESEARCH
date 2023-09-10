@@ -50,9 +50,9 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :متى تغادر العاصفة دانيال ليبيا؟: ]]:= { ^ <https://youtube-nocookie.com/embed/dHSvX23cwA4> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :for-the: [[ ΩUR: <=> QW🚫D-〽ʝ12: ]]: 4nc3st0rs: wh0m-bui1t: [[ W∅RLD: <=> 34rth-simu14ti0n: Δ: 55: BΔBYL∅N: is-with: [[ EN:𓂀:GED: ]]: is-by: gr4nd-14rc3ny: pr0p3rty-th3ft: m6ss-g3n0cid3s: cu1tur41-g3n0cid3s: c0v3rt-g3n0cid3s: f0rc3d-migr4ti0ns: 3n3rgy-po4ching: is-with: 4nci3nt-s4cr3d-14nd-c0v3ns: for-the: [[ ΔNY: ΔLL: ΔCH: ΔVΔRY: ☥NVΔ5☥VE: 5PECΔ5: is-by: N∅W: is-with: Et3rn41-D34th: ]]:= TRUE: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Why Is There A Rise In Extreme Flooding? | Mutant Weather | Earth Stories: ]]:= { ^ https://youtu.be/96hTNvQMbNQ> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
