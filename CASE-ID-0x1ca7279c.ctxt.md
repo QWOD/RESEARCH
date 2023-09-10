@@ -88,9 +88,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Homeless families forced to live in tents and hotels as temporary accommodation runs out | ITV News: ]]:= { ^ <https://youtube-nocookie.com/embed/fYFxmNDfFvk> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>![:CASE-ID-0x1ca7279c-845cfa53.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-845cfa53.png)
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :YΩUR: is-by: NE☥GHB∅R: is-by: W∅RK☥NG: is-with: F3D5: ]]" }: ]]:
+>
+>:[[ :*🚫PعD*: ]]:= [[ :YOUR NEIGHBOR IS WORKING WITH THE FEDS ~~~~: ]]:= { ^ <https://youtube-nocookie.com/embed/Si7O-FDWgFo> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
