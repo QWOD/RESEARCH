@@ -127,7 +127,7 @@
 >
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/qS_hQbZgKMQ> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-c9cdf33bb140372ae28970551d9a5e7f8e162a43> ^ }: ]]:= { TRUE: "[[ :GLΩBΔL-DE5TRUCT☥∅N: ]]" }: ]]:
 >
 [[ :Morocco earthquake: drone footage shows scale of destruction in village of Moulay Brahim: ]]:
 >
