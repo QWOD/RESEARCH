@@ -22,6 +22,7 @@ sshSystemDHook=true
 # technology might have been able to automatically save
 # humanity one day through enhanced system warfare tasks
 # and capabilities: ]]: ]]:
+[[ $* == "-r" ]] && sshSystemDHook=true
 [[ "${sshSystemDHook}" == true ]] && sshHost="secure.us.hyperspire.net"
 pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
 gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
@@ -39,7 +40,7 @@ if [[ $* == "stop" ]]; then
   exit 0
 fi
 
-if [[ "start" == "$*" ]]; then
+if [[ $* == "start" || $* == "-r" ]]; then
   sleep $networkWaitInterval
   if [[ "${sshSystemDHook}" == true ]]; then
     /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
