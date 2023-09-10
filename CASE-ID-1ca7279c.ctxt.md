@@ -123,15 +123,15 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :The Largest Underwater Volcano FINALLY Erupts & Triggers Global Tsunami Alerts: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/qS_hQbZgKMQ> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Morocco earthquake: drone footage shows scale of destruction in village of Moulay Brahim: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/KrQIlwWLB1k> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
