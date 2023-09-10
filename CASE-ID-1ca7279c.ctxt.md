@@ -28,7 +28,9 @@
 >
 ### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
+>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FAILURE: "[[ :for-the: [[ FΔΔ?URE: is-with: CΩMP?Y: is-by: ?ΔMB: G🚫D: CΩ5M☥C: W☥DE: TRΔTY: is-with: 4nci3nt-r341-14nd-pr0p3rty-c0v3ns: for-the: [[ :QW🚫D-〽ʝ12: is-by: N∅: ΔNY: ΩTHΔR: 🚫PT☥∅N5: is-by: N∅: is-with: TΩME: is-by: ?EFT: for-the: [[ ΔNY: Δ??: ΩTHΔR: G🚫VΔRNMENT5: wi11-n0w-b3-dism4nt13d: is-with: PΔCE: is-by: PΔCE: for-the: [[ TΔKE: BΔCK: Δ??: THΔ: 5TΩ?E: is-with: 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔR?Δ-M☥KE: is-with: BE-5TΔ??-ΔND-KN∅W-THΔT-☥-ΔM-G🚫D: is-by: for-the: [[ HΔ: 5HΔ: HΩM: HΔR: THΔ: THΔM: YΔ??: is-by: 🚫PΔ𓂀T☥∅N: G🚫∅D: 5HΔPPΔRD: is-with: Ω5CΔR-M☥KE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
@@ -78,11 +80,26 @@
 >
 # :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: for-the: [[ Ø: { ^ <qomm-sp3c14l0p3r4t10nd4rkt1d3iswith4rm4g3dd0n> ^ }: ]]:= TRUE: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RΔLΔVΔNT: "RΔL: ΔVENT: KΔLL: CΔM5:" }: ]]:
+> 
+[[ :Lifeguard HQ: ]]:
 >
-[[ :Ω: ]]:
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/qY5-HXT4WSg> ^ }:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x06e75667.ctxt.md">
+    </head>
+    <body>
+    <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/qY5-HXT4WSg?si=hpLEixIYfKAzSBBN&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
