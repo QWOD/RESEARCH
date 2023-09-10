@@ -201,13 +201,17 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/oV_aEf-IsVE> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :PISCES: HIT: MΔN: ]]" }: ]]:
 >
 [[ :Someone Mask Coming Off Due To Stealing Your Trust Account Tables Turned 😣 Treasure Box Reading 🧺: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/dkQjxyAxbeE> ^ }:
 >
 ![:ROTHSCHILDS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ROTHSCHILDS.png)
+>
+>:[[ :PISCES: HIT: MΔN: ]]:
+>
+>![:CASE-ID-0xf5210259-389bbdae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-389bbdae.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
