@@ -111,6 +111,8 @@
 >
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/96gB5V4TTD4> ^ }:
 >
+![:CASE-ID-0x1ca7279c-df8b41b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-df8b41b7.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
