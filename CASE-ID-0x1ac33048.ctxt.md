@@ -574,9 +574,9 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :STREET OF MAKKAH NIGHT VIEW || HAJJ 2023 || SAUDI ARABIA: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/aY_5fbEjTbY> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
