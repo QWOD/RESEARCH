@@ -189,7 +189,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/0T7wjw1wNTs> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-b4e570152305a6b6f0336af641180cae28c3bc71> ^ }: ]]:= { TRUE: "[[ EΔT: 𓂀PE: BΔBΔ5: <=> Δ??EGΔ?: MK: U?T𓂀: PR∅G𓂀M: ]]" }: ]]:
 >
 [[ :YΔ5: is-by: YΩUR: GRΔND: K☥D5: HΔVE: is-with: GREΔT-ΔBU5E: is-by: unf0rtun4t31y: TH☥5: CΩΩNTRY: D∅E5-N∅T-CΔRE-ΔBΩUT-CHΔLDREN: is-by: THΔ: is-with: EΔT-BΔBΔ5: DR☥NK-BΔBΔ5-BLΩ∅D: MΔNY: c313briti3s: p01itici4ns: FREEEMΔ5∅N5: 5CΔNTΩL∅G☥5T5: p3rf0rm: 5ΔTΔN☥C: W☥TCH: C𓂀FT: is-with: 5☥NCE: WΔ: is-with: is014t3d: 4bus3d: is-with: 40: is-by: y34rs: WΔ: NΔVER: KNEW: TH☥5: is-with: ΔBU5E: JU5T: THΩUGHT: TH☥5: is-with: N∅RMΔL: HUMΔN: BEHΔV☥ΩUR: miss3d-411-r3d-f14gs: 3v3n: is-with: 0wn-4bus3: is-by: psych0p4thic-g4s1ighting: d31ussi0n41-f41s3-pr0j3cti0ns: is-with: ΔLLEGΔL: MK: ULT𓂀: P?∅G𓂀M: FΔMΔLY: HΩ5T: ΩN☥T: s0rry-c0u1d-n0t-d0-4nything-s00n3r-4s-0wn-1if3: is-with: GREΔT: PERΔL: CENSORED: is-by: ΔVERY: 5ΩC☥Δ?: M3D☥Δ: P?ΔTF∅RM: is-with: MΩ5T: ΔUTH∅R☥TΔ5: C∅RRUPT: is-with: ☥NVΩ?V3D: is-with: [[ EΔT: 𓂀PE: BΔBΔ5: <=> Δ??EGΔ?: MK: U?T𓂀: PR∅G𓂀M: ]]: ]]: ]]:
 >
