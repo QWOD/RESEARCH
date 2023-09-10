@@ -74,6 +74,8 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA", "Q∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ", "عQ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EK", "عQ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EC", "عC")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ED", "3D")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AN", "ΔN")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN", "ΔN")
