@@ -155,11 +155,13 @@
 >
 >## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: RΔM☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: LE55: YΔ: is-by: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-cbcd0cc9ec5e7cd3d8c3f4a4aaf9ed6d54d0a9a2> ^ }: ]]:= { [[ TRUE: "[[ 〽ʝ12-ΩMعGΔTR🚫N: 5EX-T𓂀FF☥CK3D: is-with: ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M-HΔNDLER: FΔMΔLY: ΩN☥T: is-by: 4-6: is-with: y34rs: 4g3: ]]" }: ]]:
 >
 [[ :THE GOOD OFFICIALS IS WATCHING YOU🔎🔍 THEY ON YOUR SIDE.....: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/MqRAqSzUbDQ> ^ }:
+>
+>:[[ :NEW-NEW: <=> NEW: E𓂀: is-by: NEW: ΔRTH: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
