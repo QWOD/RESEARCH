@@ -642,6 +642,8 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :5Ω∅N: is-with: ΔNY: ΔLL: NΔT☥∅N5: wi11: is-by: 3t3rn411y-d3str0y3d: is-by: f4i1ing: is-with: U5: THΔ☥R: TΔXE5: CΩURT: FEE5: Q∅RM☥C-DEBT5: for-the: [[ ΔNCΔNT: 5ΔCRED: LΔND: CΩVEN5: is-by: 5TΩLEN: is-with: PR🚫PΔRTY: is-with: QW🚫D-〽ʝ12: MΔ5TΔR-JE5U5: C0unci1: is-by: 12: is-with: Ru1ing-5t4r-N4ti0ns: is-with: K☥NG: is-by: K☥NG5: is-with: L∅RD: is-by: L∅RD5: ]]: ]]:
 >
+:[[ :N🚫T⚠️CE: WE: is-by: N∅T: is-with: ΔNY: is-by: ΔRTH: is-with: G🚫VΔRNMENT5: is-with: ΔNY: ΔLL: ΔRTH: G🚫VΔRNMENT5: is-by: 3t3rn411y: is-with: d3str0y3d: for-the: r3turn ]]:= TRUE: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Dallas apartment evicts tenant, throws belongings in dumpster. But it was the wrong unit.: ]]:
