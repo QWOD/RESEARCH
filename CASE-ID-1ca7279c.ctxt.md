@@ -117,6 +117,8 @@
 >
 [[ :RAPTURE DREAM! I was LEFT BEHIND!: ]]:
 >
+>:[[ :☥T: is-by: NΔVΔR: ΔBΩUT: is-with: RE-LEG☥∅N: is-by: ΔLWΔY5: is-with: 4nci3nt-f4mi1y-b100d1in3s: 14nd-c0v3ns: pr0p3rty-4gr33m3nts: is-with: ΩUR: f4mi1y: is-with: +RΔT∅R5: is-by: ENT☥RE-+Ω5MΩ5-5ΩMULΔT☥∅N: is-by: ΔNY: ΔLL: ΩTHΔR: RΔL: PR🚫PΔRTΔ5: +ΩVEN5: +∅NT𓂀+T5: is-with: [[ U5: WE: G🚫D5: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: p3rs0nn31: p30p13: ]]: ]]:
+>
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/FDmn9gdpkqU> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
