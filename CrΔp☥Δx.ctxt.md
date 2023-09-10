@@ -1,8 +1,17 @@
 ### :[[ :DISCL0SURE: for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
 >
-># cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]:
+## *:[[ :SELECT-TEXT: THEN: is-by: ALT-F-T-S-S: ENTER: ]]*
+>
+>## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+>
+>
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
+>
+:[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
+>
+:[[ DENOTES: OWNER: for-the: [[ [[ SHIP: <=> is-with: [[ _ ]]: ]]: ]]:'
 >
 :[[ WHΔT: is-with: PER5∅N: PLΔCE: TH☥NG: <=> for-the: [[ _ ]] ]]:
 >

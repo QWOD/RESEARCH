@@ -340,15 +340,19 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Kq2Qku8PbQY> ^ }:
 >
-># cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
+## *:[[ :SELECT-TEXT: THEN: is-by: ALT-F-T-S-S: ENTER: ]]*
+>
+>## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+>
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
 :[[ DENOTES: OWNER: for-the: [[ [[ SHIP: <=> is-with: [[ _ ]]: ]]: ]]:'
+>
 :[[ WHΔT: is-with: PER5∅N: PLΔCE: TH☥NG: <=> for-the: [[ _ ]] ]]:
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
