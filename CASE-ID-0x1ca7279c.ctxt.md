@@ -213,15 +213,15 @@
 >
 ![:ROTHSCHILDS.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ROTHSCHILDS.png)
 >
->:[[ :PISCES: HIT: MΔN: ]]:
+>:[[ :for-the: [[ PISCES: HIT: MΔN: ]]: ]]:
 >
 >![:CASE-ID-0xf5210259-389bbdae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-389bbdae.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :مياه الأمطار والسيول تغمر مدنا ليبية: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/XH6lKDkcXW8> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
