@@ -105,11 +105,11 @@
 >
 ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: ":[[ :for-the: [[ PRΔ@☥ΩU5-C☥@ΔL☥ZΔT☥∅N: und3rgr0und-bunk3r: is-by: 3,600: is-with: y34rs: is-by: pr3vi0us-dis4st3r-cyc13: p0t3nti411y-sti11-vi4b13: for-the: r3turn ]]:= TRUE: ]]:" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Secret Hidden Tunnels found 300' below Maui, Hawaii: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/96gB5V4TTD4> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
