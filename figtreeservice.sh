@@ -22,11 +22,12 @@ sshSystemDHook=true
 # technology might have been able to automatically save
 # humanity one day through enhanced system warfare tasks
 # and capabilities: ]]: ]]:
-[[ $* == "-r" ]] && sshSystemDHook=true
-[[ "${sshSystemDHook}" == true ]] && sshHost="secure.us.hyperspire.net"
-pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
+
+[[ $* != "-r" ]] && pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
 gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
 
+[[ $* == "-r" ]] && sshSystemDHook=true && pushRepo=false
+[[ "${sshSystemDHook}" == true ]] && sshHost="secure.us.hyperspire.net"
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
