@@ -113,9 +113,9 @@
 >
 ![:CASE-ID-0x1ca7279c-df8b41b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-df8b41b7.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :PRΩV☥D☥NG: YΩU: is-by: r34ding: is-with: this: is-with: YΩU: is-by: LEFT: is-with: BEH☥ND: is-by: N∅W: ΔLRΔDY: ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :RAPTURE DREAM! I was LEFT BEHIND!: ]]:
 >
 :is-with: { ^ Δ ^ }:
 >
