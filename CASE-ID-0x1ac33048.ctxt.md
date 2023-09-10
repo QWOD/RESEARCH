@@ -492,9 +492,11 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :No More Foreign Orders, as the Global Supply Chain Exits: The End of ‘Made in China’ Has Come: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/Mlw6iCs3uD4> ^ }:
+>
+![:CASE-ID-0x1ac33048-d4f5a3a1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-d4f5a3a1.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
