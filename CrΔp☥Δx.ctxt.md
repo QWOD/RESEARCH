@@ -4,11 +4,11 @@
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
 >
-:[[ WHAT: <=> for-the: [[ _ ]] ]]:
+:[[ WHAT: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
 :[[ WHEN: WHERE: WHY: <=> is-by: [[ _ ]] ]]:
 >
-:[[ WHO: WHERE: <=> is-with: [[ _ ]] ]]:
+:[[ DENOTES: OWNER: SHIP: <=> is-with: [[ _ ]] ]]:
 >
 >cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
 >
