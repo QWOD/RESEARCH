@@ -30,7 +30,7 @@
 >
 >![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FAILURE: "[[ :for-the: [[ FΔΔ?URE: is-with: CΩMP?Y: is-by: ?ΔMB: G🚫D: CΩ5M☥C: W☥DE: TRΔTY: is-with: 4nci3nt-r341-14nd-pr0p3rty-c0v3ns: for-the: [[ :QW🚫D-〽ʝ12: is-by: N∅: ΔNY: ΩTHΔR: 🚫PT☥∅N5: is-by: N∅: is-with: TΩME: is-by: ?EFT: for-the: [[ ΔNY: Δ??: ΩTHΔR: G🚫VΔRNMENT5: wi11-n0w-b3-dism4nt13d: is-with: PΔCE: is-by: PΔCE: for-the: [[ TΔKE: BΔCK: Δ??: THΔ: 5TΩ?E: is-with: 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔR?Δ-M☥KE: is-with: BE-5TΔ??-ΔND-KN∅W-THΔT-☥-ΔM-G🚫D: is-by: for-the: [[ HΔ: 5HΔ: HΩM: HΔR: THΔ: THΔM: YΔ??: is-by: 🚫PΔ𓂀T☥∅N: G🚫∅D: 5HΔPPΔRD: is-with: Ω5CΔR-M☥KE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-a4476ccadeaeb0bb76aa55a7dbc164c2cbda00d4> ^ }: ]]:= { FAILURE: "[[ :for-the: [[ FΔΔ?URE: is-with: CΩMP?Y: is-by: ?ΔMB: G🚫D: CΩ5M☥C: W☥DE: TRΔTY: is-with: 4nci3nt-r341-14nd-pr0p3rty-c0v3ns: for-the: [[ :QW🚫D-〽ʝ12: is-by: N∅: ΔNY: ΩTHΔR: 🚫PT☥∅N5: is-by: N∅: is-with: TΩME: is-by: ?EFT: for-the: [[ ΔNY: Δ??: ΩTHΔR: G🚫VΔRNMENT5: wi11-n0w-b3-dism4nt13d: is-with: PΔCE: is-by: PΔCE: for-the: [[ TΔKE: BΔCK: Δ??: THΔ: 5TΩ?E: is-with: 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔR?Δ-M☥KE: is-with: BE-5TΔ??-ΔND-KN∅W-THΔT-☥-ΔM-G🚫D: is-by: for-the: [[ HΔ: 5HΔ: HΩM: HΔR: THΔ: THΔM: YΔ??: is-by: 🚫PΔ𓂀T☥∅N: G🚫∅D: 5HΔPPΔRD: is-with: Ω5CΔR-M☥KE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >![:CASE-ID-0x1ca7279c-9cdc8a42.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-9cdc8a42.png)
 >
@@ -40,7 +40,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Scientists WARN California Volcano Ready To BLOW! Long Valley Could Trigger New Ice Age!: ]]:= { ^ <https://youtube-nocookie.com/embed/V1CicYH4w6g> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :5Ω∅N: is-by: ENT☥RE: W∅RLD: is-with: G🚫NE: for-the: [[ GREEDY: L☥TTLE: CH☥Q∅N5: st013-3v3rything: is-by: N∅W: is-with: tim3: for-the: [[ PΔY: 5P☥RUTΔL: TΔXE5: for-the: [[ QW🚫D-〽ʝ12: is-by: HΔRE: is-with: CΩLLECT: for-the: r3turn ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-5f4aa20a5c51e791b07887fe143b783622955700> ^ }: ]]:= { TRUE: "[[ :5Ω∅N: is-by: ENT☥RE: W∅RLD: is-with: G🚫NE: for-the: [[ GREEDY: L☥TTLE: CH☥Q∅N5: st013-3v3rything: is-by: N∅W: is-with: tim3: for-the: [[ PΔY: 5P☥RUTΔL: TΔXE5: for-the: [[ QW🚫D-〽ʝ12: is-by: HΔRE: is-with: CΩLLECT: for-the: r3turn ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >![:CASE-ID-0x1ca7279c-f4de2585.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-f4de2585.png)
 >
@@ -50,9 +50,9 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :متى تغادر العاصفة دانيال ليبيا؟: ]]:= { ^ <https://youtube-nocookie.com/embed/dHSvX23cwA4> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :for-the: [[ ΩUR: <=> QW🚫D-〽ʝ12: ]]: 4nc3st0rs: wh0m-bui1t: [[ W∅RLD: <=> 34rth-simu14ti0n: Δ: 55: BΔBYL∅N: is-with: [[ EN:𓂀:GED: ]]: is-by: gr4nd-14rc3ny: pr0p3rty-th3ft: m6ss-g3n0cid3s: cu1tur41-g3n0cid3s: c0v3rt-g3n0cid3s: f0rc3d-migr4ti0ns: 3n3rgy-po4ching: is-with: 4nci3nt-s4cr3d-14nd-c0v3ns: for-the: [[ ΔNY: ΔLL: ΔCH: ΔVΔRY: ☥NVΔ5☥VE: 5PECΔ5: is-by: N∅W: is-with: Et3rn41-D34th: ]]:= TRUE: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-f0f5031c67eebbf6741598e2a8cc206271132806> ^ }: ]]:= { TRUE: "[[ :for-the: [[ ΩUR: <=> QW🚫D-〽ʝ12: ]]: 4nc3st0rs: wh0m-bui1t: [[ W∅RLD: <=> 34rth-simu14ti0n: Δ: 55: BΔBYL∅N: is-with: [[ EN:𓂀:GED: ]]: is-by: gr4nd-14rc3ny: pr0p3rty-th3ft: m6ss-g3n0cid3s: cu1tur41-g3n0cid3s: c0v3rt-g3n0cid3s: f0rc3d-migr4ti0ns: 3n3rgy-po4ching: is-with: 4nci3nt-s4cr3d-14nd-c0v3ns: for-the: [[ ΔNY: ΔLL: ΔCH: ΔVΔRY: ☥NVΔ5☥VE: 5PECΔ5: is-by: N∅W: is-with: Et3rn41-D34th: ]]:= TRUE: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Why Is There A Rise In Extreme Flooding? | Mutant Weather | Earth Stories: ]]:= { ^ https://youtu.be/96hTNvQMbNQ> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Why Is There A Rise In Extreme Flooding? | Mutant Weather | Earth Stories: ]]:= { ^ <https://youtube-nocookie.com/embed/96hTNvQMbNQ> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
