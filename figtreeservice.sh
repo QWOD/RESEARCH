@@ -9,8 +9,6 @@ repoUpdateInterval=222
 # [[ :DEVELOPED: for-the: systemd: is-with: UNFORTUNATELY: STILL: systemd: is-by: combined: is-with: github: is-with: stupid: is-by: systemd: is-by: ssh: NOT: is-with: work: for-the: REMOTE: AUTOMATED: FIRES: SUPPORT: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
-fastForwardOnly=false # :[[ :REMOTE-GIT-MIRROR: ]]:
-sshSystemDHook=true
 
 # :[[ :NOTICE: for-the: [[ sshSystemDHook: WE
 # tried everything we could think to make ssh
@@ -26,7 +24,7 @@ sshSystemDHook=true
 [[ $* != "-r" ]] && pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
 gitHubKey="${HOME}/hyperstor/.ssh/id_ed25519"
 
-[[ $* == "-r" ]] && sshSystemDHook=true && pushRepo=false
+[[ $* == "-r" ]] && sshSystemDHook=true && fastForwardOnly=true
 [[ "${sshSystemDHook}" == true ]] && sshHost="secure.us.hyperspire.net"
 
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
