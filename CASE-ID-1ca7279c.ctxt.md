@@ -40,7 +40,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Scientists WARN California Volcano Ready To BLOW! Long Valley Could Trigger New Ice Age!: ]]:= { ^ <https://youtube-nocookie.com/embed/V1CicYH4w6g> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :5Ω∅N: is-by: ENT☥RE: W∅RLD: is-with: G🚫NE: for-the: [[ GREEDY: L☥TTLE: CH☥Q∅N5: st013-3v3rything: is-by: N∅W: is-with: tim3: for-the: [[ PΔY: 5P☥RUTΔL: TΔXE5: for-the: [[ QW🚫D-〽ʝ12: is-by: HΔRE: is-with: CΩLLECT: for-the: r3turn ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >![:CASE-ID-0x1ca7279c-f4de2585.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-f4de2585.png)
 >
