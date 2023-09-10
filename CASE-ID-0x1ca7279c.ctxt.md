@@ -129,7 +129,7 @@
 >
 [[ :Secret Hidden Tunnels found 300' below Maui, Hawaii: ]]:
 >
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/96gB5V4TTD4> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/96gB5V4TTD4> ^ }:
 >
 ![:CASE-ID-0x1ca7279c-df8b41b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-df8b41b7.png)
 >
@@ -137,7 +137,7 @@
 >
 [[ :RAPTURE DREAM! I was LEFT BEHIND!: ]]:
 >
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/FDmn9gdpkqU> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/FDmn9gdpkqU> ^ }:
 >
 >:[[ :☥T: is-by: NΔVΔR: ΔBΩUT: is-with: RE-LEG☥∅N: si11y-1itt13-t0dd13r-mind3d-primitiv3-chick3ns: is-by: ΔLWΔY5: is-with: 4nci3nt-f4mi1y-b100!1in3s: 14n!-c0v3ns: pr0p3rty-4gr33m3nts: is-with: ΩUR: f4mi1y: is-with: +RΔT∅R5: is-by: ENT☥RE-+Ω5MΩ5-5ΩMULΔT☥∅N: is-by: ΔNY: ΔLL: ΩTHΔR: RΔL: PR🚫PΔRTΔ5: +ΩVEN5: +∅NT𓂀+T5: is-with: [[ U5: WE: G🚫D5: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: p3rs0nn31: p30p13: ]]: for-the: [[ ΔVΩLUT☥∅N-THΔ∅R☥5T5: <=> ΔLLEGΔL: ☥NTΔRDΩMEN5☥∅NΔL: EXT𓂀-TΔRRE5TR☥ΔL: ΔRTH: CΩMPعT☥T∅R: BΔL☥GΔRENT: ☥NVΔDΔR5: ]]: for-the: [[ W☥TCHΔ5: is-with: THΔFT: is-by: DECEPT☥∅N: ]]: WE: KN∅W: is-by: WHΔRE: is-with: WE: CΔME: is-by: FRΩM: for-the: [[ QUE5T☥∅N: is-with: WHY: D∅: YΩU: is-by: N∅T: KN∅W: WHΔRE: YΩU: is-with: CΔME: is-by: FRΩM: for-the: [[ WE: NΔVΔR: F∅RG🚫T: HΩW: is-with: c0mmunic4t3: is-with: TRUE: [[ 4nci3nt-b100d1in3: Ru1ing-Δnun4ki: 5u!r3m3-C313sti41-Cr34t0r-B3ing: St4r-N4ti0n: <=> FΔMΔLY: ]]: is-by: CΩMMΔ+☥CΔT☥∅+: is-with: DNΔ: ]]: ]]:
 >
@@ -145,21 +145,21 @@
 >
 [[ :The Largest Underwater Volcano FINALLY Erupts & Triggers Global Tsunami Alerts: ]]:
 >
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/qS_hQbZgKMQ> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/qS_hQbZgKMQ> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-c9cdf33bb140372ae28970551d9a5e7f8e162a43> ^ }: ]]:= { TRUE: "[[ :GLΩBΔL-DE5TRU%T☥∅N: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: %HΔRLΔ-M☥KE: ]]: ]]" }: ]]:
 >
 [[ :Morocco earthquake: drone footage shows scale of destruction in village of Moulay Brahim: ]]:
 >
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/KrQIlwWLB1k> ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/KrQIlwWLB1k> ^ }:
 >
 >## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: RΔM☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: LE55: YΔ: is-by: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :THE GOOD OFFICIALS IS WATCHING YOU🔎🔍 THEY ON YOUR SIDE.....: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/MqRAqSzUbDQ> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
