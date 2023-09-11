@@ -550,11 +550,15 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/mE8Scq7HtZo> ^ }:
 >
+![:CASE-ID-0x1ca7279c-d1ede5ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-d1ede5ee.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :The truth about your family, friends, & ex scheming behind your back to steal from you comes out✨️: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/TL4yzL1rEBg> ^ }:
+>
+*:[[ :FΔMΔLY: FRΔND5: L☥TE𓂀LLY: ΔVERY∅NE: <=> MK: ULT𓂀: PR∅G𓂀M: c0v3rt-int3rr0+4ti0ns-unit: c0v3rt-ki11-t34m: ]]:*
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
