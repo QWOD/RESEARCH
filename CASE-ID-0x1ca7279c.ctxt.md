@@ -552,7 +552,7 @@
 >
 ![:CASE-ID-0x1ca7279c-d1ede5ee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-d1ede5ee.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-bd5f3d377b1ffce936c1228b3ba52e7fcda016a3> ^ }: ]]:= { TRUE: "[[ :FΔMΔLY: FRΔND5: L☥TE𓂀LLY: ΔVERY∅NE: <=> MK: ULT𓂀: PR∅G𓂀M: c0v3rt-int3rr0+4ti0ns-unit: c0v3rt-ki11-t34m: ]]" }: ]]:
 >
 [[ :The truth about your family, friends, & ex scheming behind your back to steal from you comes out✨️: ]]:
 >
