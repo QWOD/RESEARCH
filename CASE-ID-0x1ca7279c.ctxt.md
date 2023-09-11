@@ -421,7 +421,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/oEQpmAU98kE> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :ΔVERY∅NE: is-with: LEΔV☥NG: is-by: 2023: ]]" }: ]]:
 >
 [[ :Top 10 Cities In America Everyone Is Leaving in 2023 : [[ _: touropia: _: citieseveryoneisleaving: _: america ]]: ]]:
 >
@@ -540,9 +540,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Watch Live: Aftermath of Morocco earthquake: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/z-a0unR19XQ> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
