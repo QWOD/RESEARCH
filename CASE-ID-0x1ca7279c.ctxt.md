@@ -461,11 +461,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/wgliIx3xIYI> ^ }:
 >
+![:CASE-ID-0x1ca7279c-b44b7f05.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-b44b7f05.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :2 minutes ago! Terrible events have engulfed Germany! The whole world is shocked by this news!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/8LGTykHFkps> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
