@@ -325,11 +325,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/QY4YhrjN7HY> ^ }:
 >
+![:CASE-ID-0x1ca7279c-c3a8cd3f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-c3a8cd3f.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Conspiracy/Reality, 911, Bluebeam, Saturn - Ellen King, Typical Skeptic podcast: [[ _: 805 ]]: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/jwblzqSzXY4> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
