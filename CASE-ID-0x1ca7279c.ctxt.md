@@ -116,7 +116,7 @@
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x06e75667.ctxt.md">
+        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x1ca7279c.ctxt.md">
     </head>
     <body>
     <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/qY5-HXT4WSg?si=hpLEixIYfKAzSBBN&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
@@ -505,9 +505,24 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Popocatepetl might erupt. Live cams.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/ydXTB33qE9E> ^ }:
+>
+:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" href="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" href="https://github.com/QWOD/RESEARCH/blob/main/CASE-ID-0x1ca7279c.ctxt.md">
+    </head>
+    <body>
+    <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/ydXTB33qE9E?si=5EIAhx1MT64EPcXX&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
