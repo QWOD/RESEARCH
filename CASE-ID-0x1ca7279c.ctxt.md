@@ -481,7 +481,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/hQSR8dzx0gs> ^ }:
 >
->:[[ :🚫P5ΔN: is-by: ΩLD-RΩUT☥NE: is-with: EXPΩ5URE: for-the: [[ ΩS: ΔRMY: tri3d-s4m3-c0v3rt-ki11-m3th0d: is-with: 🚫P5ΔN: 〽ʝ12-ΩMعGΔTR🚫N: unf0rtun4t31y: is-with: N∅: EFFعCT: ]]: ]]:
+>:[[ :🚫P5ΔN: is-by: ΩLD-RΩUT☥NE: is-with: EXPΩ5URE: for-the: [[ ΩS: ΔRMY: tri3d-s4m3-c0v3rt-ki11-m3th0d: is-with: 🚫P5ΔN: QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔTR🚫N: unf0rtun4t31y: is-with: N∅: EFFعCT: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
