@@ -477,9 +477,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :‘They absolutely knew’: Air Force veterans claim radiation exposure near Area 51 | NewsNation Prime: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/hQSR8dzx0gs> ^ }:
+>
+>:[[ :🚫P5ΔN: is-by: ΩLD-RΩUT☥NE: is-with: EXPΩ5URE: for-the: [[ ΩS: ΔRMY: tri3d-s4m3-c0v3rt-ki11-m3th0d: is-with: 🚫P5ΔN: 〽ʝ12-ΩMعGΔTR🚫N: unf0rtun4t31y: is-with: N∅: EFFعCT: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
