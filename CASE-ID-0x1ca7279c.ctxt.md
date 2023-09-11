@@ -489,7 +489,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Q5gve1YPz1g> ^ }:
 >
->:[[ :ΩMΔG☥NE: CΩM☥NG: is-by: ΔFR☥CΔ: JU5T: is-with: RΩBB3D: is-by: ΔFR☥CΔN-ΔMER☥CΔN5: is-with: ☥R∅NY: is-by: [[ _ ]]: JΩ☥N: is-by: CLUB: ]]:
+>:[[ :ΩMΔG☥NE: CΩM☥NG: is-by: ΔFR☥CΔ: JU5T: is-with: RΩBB3D: is-by: ΔFR☥CΔN-ΔMER☥CΔN5: is-with: ☥R∅NY: is-by: [[ _ ]]: JΩ☥N: is-by: CLUB: [[ :[[ BLM: <=> WΔLCΩM☥NG: CΩMM☥TEE: ]]: is-with: ΔMER☥CΔ: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
