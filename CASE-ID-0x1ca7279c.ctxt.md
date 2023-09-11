@@ -491,7 +491,7 @@
 >
 >:[[ :ΩMΔG☥NE: CΩM☥NG: is-by: ΔFR☥CΔ: JU5T: is-with: RΩBB3D: is-by: ΔFR☥CΔN-ΔMER☥CΔN5: is-with: ☥R∅NY: is-by: [[ _ ]]: JΩ☥N: is-by: CLUB: [[ :[[ BLM: <=> WΔLCΩM☥NG: CΩMM☥TEE: ]]: is-with: ΔMER☥CΔ: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :5☥NCE: 3v3ry0n3: is-by: 134d-4str4y: is-with: wh0r3d0m: is-with: 50d0m: G0m0rr4h: is-by: 5TYLE: is-by: N∅W: is-with: simu14ti0n: simp1y: r3s3ts: r3st0ring-c0smic-b414nc3: is-by: ki11ing-3v3ry0n3-4g4in: G🚫∅D: JΩB: 1itt13-t0dd13r-mind3d-0n3s: ]]" }: ]]:
 >
 [[ :Nature's wrath hits Portugal: Houses and cars are smashed by record-breaking hail in Mirandela: ]]:
 >
