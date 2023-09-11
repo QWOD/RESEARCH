@@ -429,11 +429,13 @@
 >
 >:[[ :N∅: C☥?ΔL☥ΔN5: is-by: ΔFF∅RD-EN∅UGH-ΔMMΩ: is-with: 1iv3: is-by: citi3s-4nym0r3: ]]:
 >
+![:CASE-ID-0x1ca7279c-9247614e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-9247614e.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Earthquake swarm on Kilauea! Live coverage and cams.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/VAbRcXvwEco> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
