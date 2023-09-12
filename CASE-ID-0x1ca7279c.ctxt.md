@@ -665,7 +665,8 @@
 >
 >:[[ :is-by: N∅: is-with: M☥ND-C∅NTRΩL: is-by: m0r3-3ff3ctiv3: is-with: f33d-c3rt4in-3thnic-gr0ups: H☥5T∅RY: misinf0rm4ti0n: is-by: pr0gr4mming: is-with: f41s3-b31i3fs: THΔ: d3s3rv3: ΔVERYTH☥NG: @REE: is-by: th3n: is-with: f33d: misinf0rm4ti0n: ΔVERY∅NE: is-by: WHΩΔVER: is-with: W∅RK3D: for-the: [[ L☥V☥NG: is-with: THE☥R: ENEMY: for-the: [[ HΩMEGRΩWN: ΔMER☥CΔN: J☥HΔD: MΩVEMENT: is-with: ☥1h4n-Ωm4r: is-with: K4m414-H4rris: is-with: B4rr4ck-Ωb4m4: for-the: [[ Δ1-Q43d4: is-by: T3rr0r: is-with: unkn0wn-c0mp3tit0r: 5p3ci41-Ωp3r4ti0ns-Gr0up: ]]: ]]: ]]: ]]:
 >
-## :[[ :W⚠️RN🚫: c3rt4in-f4cti0ns: is-with: ΩS: ~i1it4ry-industri41-c0~p13x: is-by: N∅T: ΔLLΩW: ΩS: is-with: f411: is-by: 3n3~y: is-with: HΔND5: for-the: [[ ΩBV☥ΩU5: REΔ5∅N5: is-with: NΔT☥∅NΔL: 5عCUR☥TY: ]]: ]]:
+## :[[ :W⚠️RN🚫: c3rt4in-f4cti0ns: is-with: ΩS: ~i1it4ry-industri41-c0~p13x: is-by: N∅T: ΔLLΩW: ΩS: is-with: f411: is-by: 3n3~y: is-with: HΔND5: for-the: [[ ΩBV☥ΩU5: REΔ5∅N5: is-with: NΔT☥∅NΔL: 5عCUR☥TY: ]]: ]]
+>:[[ :W⚠️RN🚫: is-with: simp1y-kn0win+-4b0ut: MK: PR∅G𓂀M: is-by: FLΔG5: is-with: ∅NE: for-the: [[ PR∅G𓂀M: ENTRY: is-with: n0w-y0ur-3ntir3-1if3: is-with: LΔ: is-by: 5CREEN3D: is-with: MEM∅RΔ5: is-with: ΔVERY∅NE: YΩU: think-y0u-kn0w: is-with: c0v3rt-int0rr0+4ti0ns-unit: c0v3rt-ki11-t34ms: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
