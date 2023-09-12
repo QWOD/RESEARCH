@@ -623,9 +623,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Processing: The Greatest Threat to US Economic Security || Peter Zeihan: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/SHOWMnUU02s> ^ }:
+>
+:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/74cc6b95915ed6b842339e1d572d4ae56925dfd6> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
