@@ -635,7 +635,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/cChKKUKIXy8> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-ad0e4f1ed997035f0c101897b33fb4f430d6d070> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Dying for Answers: A Pattern: ]]:
 >
