@@ -421,7 +421,7 @@
 >
 ![:CASE-ID-0x1ca7279c-cea5e199.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-cea5e199.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-5ed8da642f5d71c1dc5deb68589a3d1119fc9920> ^ }: ]]:= { TRUE: "READY" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5ed8da642f5d71c1dc5deb68589a3d1119fc9920> ^ }: ]]:= { TRUE: "[[ :C🚫PY-LΩMΔ-CHΔRLΔ: QW🚫D-〽ʝ12: ☥ND☥Δ-PΔPΔ: TΔR@عT5: LΩCK3D: PREPΔR3D-TΩ-5TR☥KE: for-the: QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: ]]" }: ]]:
 >
 [[ :It's About to Begin, Get Ready.: ]]:
 >
