@@ -419,11 +419,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Zk3TF-FFs-s> ^ }:
 >
+![:CASE-ID-0x1ca7279c-cea5e199.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-cea5e199.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :It's About to Begin, Get Ready.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/6ta0vwXn_q0> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
