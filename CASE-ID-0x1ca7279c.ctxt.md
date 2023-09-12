@@ -643,6 +643,8 @@
 >
 >:[[ :0n3-+ust-41w4ys-3xc3rcis3-c4uti0n: is-with: c0++unic4ting: is-by: th0s3-pr0gr4++3d: is-with: g4ngst41king-41g0rith+s: si+p1y-c0nv3ying-wr0ng-b0dy-14ngu4g3: is-by: 3n0ugh: for-the: [[ trigg3r: bin4ry-10gic-3rr0r: 4ggr3ssi0n-100p: ]]: ]]:
 >
+>:[[ :wh3@3v3r-0@3-w34rs: BLUE: is-by: subc0@sci0us1y-t4rg3t3d: is-with: civi1i4@s: wh3@3v3r: 0@3-w34rs: b14ck: is-by: subc0@sci0us1y-t4rg3t3d: is-with: LEΩ: wh3@3v3r-0@3-w34rs: R3D: is-by: t4rg3t3d: is-with: 3@3rgy-p04ch3rs: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
