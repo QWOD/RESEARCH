@@ -678,6 +678,8 @@
 >
 [[ :مشاهد مرعبة لتكدس العشرات من جثث ضحايا فيضانات ليبيا أمام أحد مستشفيات مدينة درنة: ]]:= [[ :Terrifying scenes of dozens of bodies of victims of Libya's floods piling up in front of a hospital in Derna: ]]:
 >
+![:CASE-ID-0x1ca7279c-41491183.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-41491183.png)
+>
 :is-with: { ^ <https://youtube-nocookie.com/embed/F5A3ZNw7K7k> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
