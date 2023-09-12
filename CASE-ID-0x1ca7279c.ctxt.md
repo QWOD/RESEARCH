@@ -381,6 +381,10 @@
 >
 >:[[ :is-by: 0n3: is-with: h311fir3-miss13-t00k-0ut-411-th0s3-p3nt4g0n-p3rs0nn31: is-by: [[ _ ]]: ]]:= [[ :WHΔT: CH☥Q∅N5: D∅-N∅T: is-by: und3rst4nd: is-with: diff3r3nt-f4cti0ns-within-mi1it4ry-industri41-c0mp13x-d0-s0m3tim3s-g0-t0-w4r: is-with: 34ch-0th3r: 0v3r-c0mp3ting-tim3-1in3s: ]]:
 >
+:is-with: { ^ <https://youtube-nocookie.com/embed/jvwmZX9pMZE> ^ }:
+>
+:[[ for-the: [[ END-G🚫ΔL: is-with: M☥55☥∅N-ΩBJعCT☥VE: for-the: [[ 🚫PE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
