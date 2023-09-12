@@ -315,7 +315,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :رغم تفوقهم العددي .. شاهد لحظة استسلام جنود أوكرانيين بعد محاصرة مخبئهم من قبل ثلاثة جنود روس: ]]:
+[[ :Despite their numerical superiority... Watch the moment Ukrainian soldiers surrender after their hideout was besieged by three Russian soldiers: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/QhmaVlQO734> ^ }:
 >
@@ -653,7 +653,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :كارثة ليبيا😨 البحر يلفظ الاف الجثث' اعصار دانيال يمزق درنة كأنها مدينة اشباح- مصر تعلن الطوارئ!: ]]:= [[ :Libya disaster 😨 The sea spews thousands of bodies' Hurricane Daniel tears apart Derna like a ghost town - Egypt declares emergency!: ]]:
 >
 :is-with: { ^ Δ ^ }:
 >
