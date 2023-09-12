@@ -48,7 +48,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOU ARE A DIVINE TREE OF KNOWLEDGE! THAT’S WHY THEY TRIED TO KNOCK OUT YOUR DIVINE ENERGY 🔮🧞‍♀️: ]]:= { ^ <https://youtube-nocookie.com/2ybtclGlLEo> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
