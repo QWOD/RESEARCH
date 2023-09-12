@@ -661,9 +661,11 @@
 >
 ![:CASE-ID-0x1ca7279c-2b929d15.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-2b929d15.png)
 >
->:[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]:
+>## :[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]:
 >
 >:[[ :is-by: N∅: is-with: M☥ND-C∅NTRΩL: is-by: m0r3-3ff3ctiv3: is-with: f33d-c3rt4in-3thnic-gr0ups: H☥5T∅RY: misinf0rm4ti0n: is-by: pr0gr4mming: is-with: f41s3-b31i3fs: THΔ: d3s3rv3: ΔVERYTH☥NG: @REE: is-by: th3n: is-with: f33d: misinf0rm4ti0n: ΔVERY∅NE: is-by: WHΩΔVER: is-with: W∅RK3D: for-the: [[ L☥V☥NG: is-with: THE☥R: ENEMY: for-the: [[ HΩMEGRΩWN: ΔMER☥CΔN: J☥HΔD: MΩVEMENT: is-with: ☥1h4n-Ωm4r: is-with: K4m414-H4rris: is-with: B4rr4ck-Ωb4m4: for-the: [[ Δ1-Q43d4: is-by: T3rr0r: is-with: unkn0wn-c0mp3tit0r: 5p3ci41-Ωp3r4ti0ns-Gr0up: ]]: ]]: ]]: ]]:
+>
+## :[[ :W⚠️RN🚫: c3rt4in-f4cti0ns: is-with: ΩS: ~i1it4ry-industri41-c0~p13x: is-by: N∅T: ΔLLΩW: ΩS: is-with: f411: is-by: 3n3~y: is-with: HΔND5: for-the: [[ ΩBV☥ΩU5: REΔ5∅N5: is-with: NΔT☥∅NΔL: 5عCUR☥TY: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
