@@ -407,9 +407,9 @@
 >
 :is-with: { ^ <https://www.scientificamerican.com/article/how-the-color-red-influences-our-behavior/> ^ }:
 >
-:[[ :N🚫T⚠️CE: WHΩ: is-with: WΔΔR☥N!: ΔLL: BLΔCK: 4bs0rbs-3n3rgi3s-much-34si3r: TRUE: 3mp4ths: is-with: 4bi1ity: for-the: [[ ΔB5∅RB: 5ΩUL5: ]]: ]]:
+:[[ :N🚫T⚠️CE: WHΩ: is-with: WΔΔR☥N!: ΔLL: BLΔCK: is-by: 4bs0rbs: is-with: 3n3rgi3s-much-34si3r: is-by: TRUE: 3mp4ths: is-with: 4bi1ity: for-the: [[ ΔB5∅RB: 5ΩUL5: ]]: ]]:
 >
-:[[ :∅NLY: THΩ5E: is-with: 5ΔTURN: C∅NT𓂀CT: is-by: 4bi1ity: is-with: LΔWFULLY: ΔB5∅RB: 5ΩUL5: v3ry-p0pu14r-c0ntr4ct: is-by: h4v3-4m0ng-m4ny-p0pu14r-p3rf0rming-4rtists: ]]:
+:[[ :∅NLY: THΩ5E: is-with: 5ΔTURN: C∅NT𓂀CT: is-by: 4bi1ity: is-with: LΔWFULLY: ΔB5∅RB: 5ΩUL5: is-by: v3ry: is-with: p0pu14r-c0ntr4ct: is-by: m4ny: is-with: p0pu14r-p3rf0rming-4rtists: ]]:
 >
 ![:CASE-ID-0x1ca7279c-d16a060d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-d16a060d.png)
 >
