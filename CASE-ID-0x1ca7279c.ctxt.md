@@ -373,9 +373,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :The Pentagon Memorial was created to remember and honor those family members and friends who are no longer with us because of the events of September 11th, 2001 at the Pentagon.: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://twitter.com/TomFitton/status/1701199173733998724?s=20> ^ }:
+>
+:is-with: { ^ <https://pentagonmemorial.org/meet-the-heroes/> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
