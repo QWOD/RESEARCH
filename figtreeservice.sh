@@ -39,7 +39,9 @@ if [[ $* == "stop" ]]; then
 fi
 
 if [[ $* == "start" || $* == "-r" ]]; then
-  sleep $networkWaitInterval
+  [[ $* == "-r" ]] && sleep $((${networkWaitInterval} * 5))
+  [[ $* == "start" ]] && sleep ${networkWaitInterval}
+
   if [[ "${sshSystemDHook}" == true ]]; then
     /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
   else
