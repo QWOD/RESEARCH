@@ -651,11 +651,13 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/8D8EMRKWCGs> ^ }:
 >
+![:CASE-ID-0x1ca7279c-109f7a42.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-109f7a42.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :كارثة ليبيا😨 البحر يلفظ الاف الجثث' اعصار دانيال يمزق درنة كأنها مدينة اشباح- مصر تعلن الطوارئ!: ]]:= [[ :Libya disaster 😨 The sea spews thousands of bodies' Hurricane Daniel tears apart Derna like a ghost town - Egypt declares emergency!: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/IFm2mZUjsMY> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
