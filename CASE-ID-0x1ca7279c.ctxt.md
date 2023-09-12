@@ -669,6 +669,8 @@
 >:[[ :W⚠️RN🚫: is-with: simp1y-kn0win+-4b0ut: MK: PR∅G𓂀M: is-by: FLΔG5: is-with: ∅NE: for-the: [[ PR∅G𓂀M: ENTRY: is-with: n0w-y0ur-3ntir3-1if3: is-with: LΔ: is-by: 5CREEN3D: is-with: MEM∅RΔ5: is-with: ΔVERY∅NE: YΩU: think-y0u-kn0w: is-with: c0v3rt-int0rr0+4ti0ns-unit: c0v3rt-ki11-t34ms: ]]:
 >
 >## *:[[ :5UBC∅N5C☥ΩU5LY: is-by: THΔ: is-with: kn0w-th3y: is-by: n0t: is-with: YΩUR: TRUE: FΔMΔLY: is-by: WHY: THΔ: ΔLWΔY5: is-with: tr34t: YΩU: is-by: L☥KE: is-with: 5TRΔNGER: unkn0wn-c0mp3tit0r: FΔCT☥∅N: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: is-with: 5CREEN3D: chi1dh00d-m3m0ri3s: is-by: ΔVEN: is-with: PΔRENT5: is-by: 5Ω-CΔLL3D: is-with: V☥ΔL: is-with: MK: ULT𓂀: ]]: ]]*
+>
+:[[ :MK: ULT𓂀: is-with: EXΔCT: is-with: 5CΔNCE: is-by: LΔW5: is-with: M☥ND: D☥5CΩVER3D: is-by: Rh0nd311-Gibs0n: +hD: MK: ULT𓂀: +R∅G𓂀M: LEΔD: ΔRCH☥TعCT: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/>^ }: is-with: LΩCKHE3D-MΔRT☥N: is-by: ΩTHER: is-with: unkn0wn-34rth-simu14ti0n-c0mp3tit0rs: ]]:
 > 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
