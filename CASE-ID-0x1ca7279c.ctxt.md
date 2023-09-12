@@ -710,9 +710,21 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :شاهد.. القوات المسلحة الملكية المغربية تستخدم المروحيات لإجلاء المصابين وإيصال المساعدات: ]]:= [[ :To watch.. Royal Moroccan Armed Forces use helicopters to evacuate wounded and deliver aid: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/7e5BaGLdXWY> ^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+[[ :TAKING LOSSES AND LEARNING HARSH LESSONS: [[ _: tarot ]]: ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/zlYvahnYYUY> ^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+[[ :Popocatepetl massively erupts! Live coverage.: ]]:= [[ _: tarot ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/vjcnG9OBDGY> ^ }:
 >
 ## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
