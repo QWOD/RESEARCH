@@ -698,6 +698,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/R1Pu5rw40KM> ^ }:
 >
+>## :[[ :Q∅NCLU5☥∅N5: is-with: ∅NLY: is-by: ∅NE: is-with: TH☥NG: is-with: c4us3-this-much-g10b41-d3structi0n: 3vid3nc3d: is-by: th3-f4ct-0wn: G🚫VERNMENT: is-by: N∅T: is-with: m3nti0ning-4nything: is-by: ∅NLY: is-with: C∅NF☥RM5: ΔVERYTH☥NG: WΔ: NE3*: is-by: KN∅W: ]]:= [[ :N☥B☥RU: W∅RMWΩ∅*: ΔRMΔG3**∅N: ]]
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
