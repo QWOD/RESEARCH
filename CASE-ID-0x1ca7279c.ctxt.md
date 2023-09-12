@@ -682,17 +682,21 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/F5A3ZNw7K7k> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x1ca7279c-b97a0a02.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-b97a0a02.png)
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Listen to this 15 Seconds And All the Blessing Will Come To You - Love, Health & Money: [[ _: 1 ]]: ]]:
 >
-:is-with: { ^ Δ ^ }:
+![:CASE-ID-0x1ca7279c-fa4452ae.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-fa4452ae.png)
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/zD3Mp-K3cKA> ^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+[[ :Buildings sink and roads collapse in Massachusetts, USA! Flash flooding in Leominster: ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/R1Pu5rw40KM> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
