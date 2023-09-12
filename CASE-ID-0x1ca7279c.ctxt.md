@@ -641,6 +641,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/9IXat7tiVHQ> ^ }:
 >
+>:[[ :0n3-+ust-41w4ys-3xc3rcis3-c4uti0n: is-with: c0++unic4ting: is-by: th0s3-pr0gr4++3d: is-with: g4ngst41king-41g0rith+s: si+p1y-c0nv3ying-wr0ng-b0dy-14ngu4g3: is-by: 3n0ugh: for-the: [[ trigg3r: bin4ry-10gic-3rr0r: 4ggr3ssi0n-100p: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
