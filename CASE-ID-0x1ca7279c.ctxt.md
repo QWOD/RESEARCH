@@ -421,7 +421,7 @@
 >
 ![:CASE-ID-0x1ca7279c-cea5e199.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-cea5e199.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-5ed8da642f5d71c1dc5deb68589a3d1119fc9920> ^ }: ]]:= { TRUE: "READY" }: ]]:
 >
 [[ :It's About to Begin, Get Ready.: ]]:
 >
