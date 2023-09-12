@@ -399,9 +399,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :JAUZ B2B SVDDEN DEATH @ ULTRA MIAMI 2023 (FULL SET): ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/LM_9cYZ8RQw> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
