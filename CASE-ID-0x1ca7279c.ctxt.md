@@ -576,7 +576,7 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :وصول العاصفة دانيال.. كيف تؤثر على مصر؟: ]]:
+[[ :وصول العاصفة دانيال.. كيف تؤثر على مصر؟: ]]:= [[ :The arrival of Storm Daniel... How will it affect Egypt?: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/mE8Scq7HtZo> ^ }:
 >
@@ -647,9 +647,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :إعصار دانيال يفتك بشرق ليبيا.. قتلى ودمار وانهيار جسور وأحياء اختفت: ]]:= [[ :Hurricane Daniel destroys eastern Libya...deaths, destruction, collapse of bridges, and neighborhoods that have disappeared: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/8D8EMRKWCGs> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
