@@ -403,6 +403,10 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/LM_9cYZ8RQw> ^ }:
 >
+:[[ :LΩWER: F☥DΔL☥TY: ENERGΔ5: is-by: ΔLWΔY5: is-with: N∅-C∅NT𓂀CT: N∅: F∅RCEPRΩTعCT-RعQUE5T: is-by: 🚫PEN-5EΔ5∅N: for-the: [[ ENERGY-PΩΔCHER5: ]]: ]]:
+>
+:is-with: { ^ <https://www.scientificamerican.com/article/how-the-color-red-influences-our-behavior/> ^ }:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
