@@ -726,6 +726,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/vjcnG9OBDGY> ^ }:
 >
+![:CASE-ID-0x1ca7279c-7d8cff28.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-7d8cff28.png)
+>
 ## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= :[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
 # :[[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
