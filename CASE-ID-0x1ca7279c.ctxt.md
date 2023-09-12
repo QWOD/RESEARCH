@@ -670,7 +670,7 @@
 >
 >## *:[[ :5UBC∅N5C☥ΩU5LY: is-by: THΔ: is-with: kn0w-th3y: is-by: n0t: is-with: YΩUR: TRUE: FΔMΔLY: is-by: WHY: THΔ: ΔLWΔY5: is-with: tr34t: YΩU: is-by: L☥KE: is-with: 5T𓂀NGER: unkn0wn-c0mp3tit0r: FΔCT☥∅N: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: is-with: 5CREEN3D: chi1dh00d-m3m0ri3s: is-by: ΔVEN: is-with: PΔRENT5: is-by: 5Ω-CΔLL3D: is-with: V☥ΔL: is-with: MK: ULT𓂀: ]]: ]]*
 >
-:[[ :D☥5CLΩ5URE: for-the: [[ MK: ULT𓂀: is-by: EXΔCT: is-with: 5CΔNCE: is-by: LΔW5: is-with: M☥ND: is-with: D☥5CΩVER3D: is-by: Rh0nd311: [[ :𓂀:N:D:ΔL: ]]: Gibs0n: PhD: is-with: ΔRTH: HΔ-MAN: MK: ULT𓂀: +R∅G𓂀M: LEΔD: ΔRCH☥TعCT: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/>^ }: is-with: LΩCKHE3D-MΔRT☥N: is-by: ΩTHER: is-with: unkn0wn-34rth-simu14ti0n-c0mp3tit0rs: is-by: L☥KELY: is-with: [[ :𓂀:THΔ:∅N: ]]: is-by: [[ :𓂀:THΔ:∅N: <=> 𓂀: THE: CREΔT∅R: ]]: is-by: [[ :𓂀:N:D:ΔL: ]]: 𓂀: ΔND: THE: ΔLΩHΩM: ]]: ]]:
+:[[ :D☥5CLΩ5URE: for-the: [[ MK: ULT𓂀: is-by: EXΔCT: is-with: 5CΔNCE: is-by: LΔW5: is-with: M☥ND: is-with: D☥5CΩVER3D: is-by: Rh0nd311: [[ :𓂀:N:D:ΔL: ]]: Gibs0n: PhD: is-with: ΔRTH: HΔ-MΔN: MK: ULT𓂀: +R∅G𓂀M: LEΔD: ΔRCH☥TعCT: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/>^ }: is-with: LΩCKHE3D-MΔRT☥N: is-by: ΩTHER: is-with: unkn0wn-34rth-simu14ti0n-c0mp3tit0rs: is-by: L☥KELY: is-with: [[ :𓂀:THΔ:∅N: ]]: is-by: [[ :𓂀:THΔ:∅N: <=> 𓂀: THE: CREΔT∅R: ]]: is-by: [[ :𓂀:N:D:ΔL: ]]: 𓂀: ΔND: THE: ΔLΩHΩM: ]]: ]]:
 >
 ![:CASE-ID-0x1ca7279c-bedf09a7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-bedf09a7.png)
 >
