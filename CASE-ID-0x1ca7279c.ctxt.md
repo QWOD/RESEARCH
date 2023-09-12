@@ -363,6 +363,8 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/-nyyKqhC0YM> ^ }:
 >
+>:[[ عTHN☥C: <=> inding3n0us-f4mi1i3s: NΔT☥VE5: 0rigin41-trib3: 14n*-c0v3n-0wn3rs: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
