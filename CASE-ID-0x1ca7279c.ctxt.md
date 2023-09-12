@@ -780,6 +780,24 @@
 >
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 >
+### [[ :Serious Cryptography: A Practical Introduction to Modern Encryption: { ^  Jean-Philippe Aumasson (Author) ^ }: ]]
+>
+:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
+>
+    https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
+>
+### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
+>
+:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+>
+    https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
+>
+### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]]
+>
+:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+>
+    https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
+>
 # :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]]
 >
 ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
