@@ -385,6 +385,12 @@
 >
 :[[ for-the: [[ END-G🚫ΔL: is-with: M☥55☥∅N-ΩBJعCT☥VE: for-the: [[ 🚫PE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: ]]: ]]:
 >
+:[[ :Evidence of a Hellfire Missile with Pop-out Swords: ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/r-G4K5jv97Q> ^ }:
+>
+:[[ :ΔV☥DENCE: for-the: [[ PENTΔG🚫N: ΔTTΔCK: is-by: p0ints-t0w4rds: is-with: div3rsi0n-t4ctic: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
