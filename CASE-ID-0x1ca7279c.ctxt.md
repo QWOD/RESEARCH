@@ -407,6 +407,8 @@
 >
 :is-with: { ^ <https://www.scientificamerican.com/article/how-the-color-red-influences-our-behavior/> ^ }:
 >
+:[[ :N🚫T⚠️CE: WHΩ: is-with: WΔΔR☥N!: ΔLL: BLΔCK: 4bs0rbs-3n3rgi3s-much-34si3r: TRUE: 3mp4ths: is-with: 4bi1ity: for-the: [[ ΔB5∅RB: 5ΩUL5: ]]: ]]:
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
