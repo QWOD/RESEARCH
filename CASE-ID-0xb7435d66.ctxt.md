@@ -442,9 +442,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Northern Transcon Railcams | CPKC Richville, MN | Rail Cam on the Detroit Lakes Sub: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/WHNDQZQCHCU> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
