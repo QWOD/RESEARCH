@@ -173,9 +173,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/sjbJ2522O6o> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
