@@ -125,15 +125,45 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/YgEl_fFt--Y> ^ }:
+>
+:is-with: { ^
+>
+<!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/YgEl_fFt--Y?si=5Mqr_JuRxc-inG4r&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :Nautilus Live | Channel 1 Stream: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/wUz1Vb7I2DU> ^ }:
+>
+:is-with: { ^
+>
+<!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/wUz1Vb7I2DU?si=imNnDEWed1iRxHp7&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
