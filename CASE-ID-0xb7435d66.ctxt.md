@@ -58,7 +58,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :16-year-old shot in robbery: ]]:= { ^ <https://youtube-nocookie.com/embed/FtU9ZDwNnD0> ^ }:\
+>
+>:[[ :ALL-DOMAIN: FIRE-SUPERIORITY: ]]:
+>
+>![:CASE-ID-0xb7435d66-ad17008a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-ad17008a.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
