@@ -86,6 +86,27 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+[[ :【ライブカメラ】羽田空港 HANEDA,Tokyo International Airport（日テレNEWS LIVE): ]]:
+>
+:is-with: { ^ <https://youtube-nocookie.com/embed/8407vORT9v8> ^ }:
+>
+:is-with: { ^
+>
+<!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/8407vORT9v8?si=6weVPkvxr9HewLFe&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
+>
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
 [[ :Horrific Natural Disasters: China city destroyed in seconds! river overflow causes major flooding: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/tz8FAsG14aE> ^ }:
@@ -95,12 +116,6 @@
 [[ :Spain Battered! Super Hail Storm And Flooding Blow Up Homes And Cars In Burriana: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/-8N8k5U4lU8> ^ }:
->
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
-[[ :Ω: ]]:
->
-:is-with: { ^ Δ ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
