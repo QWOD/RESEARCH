@@ -167,9 +167,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/7VkxEA7_XBU> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
