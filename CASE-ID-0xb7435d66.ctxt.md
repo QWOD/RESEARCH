@@ -580,9 +580,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Judgement day, ‘atonement’ day…. 239: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/PfyYUii7d40> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
