@@ -330,9 +330,9 @@
 
 >
 >
->### [[ :Ω: ]]
+>### [[ :Fukushima backlash: Chinese test for nuclear radiation in a frenzy...uncover unexpected big problems: ]]
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/A0GIvVZOUU4> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
