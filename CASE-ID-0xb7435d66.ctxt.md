@@ -94,7 +94,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Mark "Oz" Geist - 13 Hours Survivor Shot 22 Times Reflects on the Deadly Benghazi Attacks | SRS: [[ _: 74 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/Q9i_es05rWc> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
