@@ -446,24 +446,66 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/WHNDQZQCHCU> ^ }:
 >
+>:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/WHNDQZQCHCU?si=PJGdmg6bDOQWQUpK&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Northern Transcon Railcams | Staples, Mn: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/EKSqYhompCA> ^ }:
 >
+>:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/EKSqYhompCA?si=QQNsZmap1__-b3Bf&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Northern Transcon Railcams | Detroit Lakes Cam: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/SsPEnGjk-SU> ^ }:
 >
+>:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/SsPEnGjk-SU?si=J9xtdinwXcbGKkhS&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
