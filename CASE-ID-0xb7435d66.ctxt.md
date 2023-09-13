@@ -38,21 +38,23 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Main ADM Plant Closed After Explosion Just As Corn And Soy Bean Harvesting Begins?: ]]:= { ^ <https://youtube-nocookie.com/rm8h2gSfXAk> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Main ADM Plant Closed After Explosion Just As Corn And Soy Bean Harvesting Begins?: ]]:= { ^ <https://youtube-nocookie.com/embed/rm8h2gSfXAk> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :YOU ARE UNDEFEATED!!! THEIRS A ROYAL BLESSING ON THE WAY💜: ]]:= { ^ <https://youtube-nocookie.com/6lRs6u-6tyQ> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOU ARE UNDEFEATED!!! THEIRS A ROYAL BLESSING ON THE WAY💜: ]]:= { ^ <https://youtube-nocookie.com/embed/6lRs6u-6tyQ> ^ }:
 >
 >*:[[ :N🚫T⚠️CE: for-the: [[ HΩU5E: DΔV☥D: DEΔTH: ΔNGΔL5: is-by: 5EEN: is-by: with0ut-r3quiring-infr4-r3d-c4m3r4: is-by: FΔR: 5U?ER☥∅R: is-with: TعCHN∅L∅GY: for-the: [[ ΔLL-D∅MΔ☥N: F☥RE-5U?ER☥∅R☥TY: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫?-Δ: ]]: ]]:*
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :YOU ARE A DIVINE TREE OF KNOWLEDGE! THAT’S WHY THEY TRIED TO KNOCK OUT YOUR DIVINE ENERGY 🔮🧞‍♀️: ]]:= { ^ <https://youtube-nocookie.com/2ybtclGlLEo> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOU ARE A DIVINE TREE OF KNOWLEDGE! THAT’S WHY THEY TRIED TO KNOCK OUT YOUR DIVINE ENERGY 🔮🧞‍♀️: ]]:= { ^ <https://youtube-nocookie.com/embed/2ybtclGlLEo> ^ }:
+>
+>![:CASE-ID-0xb7435d66-058eef27.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-058eef27.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :What yall bout 2 witness is big business kid….wait til u see how this plays out..they never imagined: ]]:= { ^ <https://youtube-nocookie.com/embed/V6nQWOk2Kbw> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
