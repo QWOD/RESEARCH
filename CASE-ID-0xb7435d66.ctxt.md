@@ -46,6 +46,8 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/FNHuzLQVzUM> ^ }:
 >
+>[[ :H☥5T∅RY: is-with: sh0ws-4r34s-subj3ct: is-by: r0utin3: is-with: 3v4cu4ti0n: is-by: 0ft3n: is-with: ign0r3: is-with: such-r0utin3-3v4cu4ti0n-0rd3rs: is-by: t3nding: t3di0us: is-by: 0v3r: is-with: tim3: ]]:
+>
 >![:CASE-ID-0xb7435d66-7c15da39.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-7c15da39.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
