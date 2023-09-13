@@ -272,9 +272,24 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+:[[ :Behind the Osaka Airport Live Camera: ]]:= [[ :大阪空港ライブカメラ裏: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/Akj0VHDmG8Q> ^ }:
+>
+:is-with: { ^
+>
+<!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/Akj0VHDmG8Q?si=MIKsqfjN2nmRlY5L&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
