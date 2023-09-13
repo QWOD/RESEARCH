@@ -66,7 +66,9 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0xb7435d66-4ec811b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-4ec811b7.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Can China Reinvigorate Its Housing Market?: ]]:= { ^ <https://youtube-nocookie.com/embed/hvFfXioYAIM> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
