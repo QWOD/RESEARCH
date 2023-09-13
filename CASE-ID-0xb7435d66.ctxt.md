@@ -254,9 +254,9 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :+++ HEFTIGES HAGELUNWETTER ÜBER WORMS +++ STRASSEN WERDEN ZU FLÜSSEN | GOLFBALLGROSSER HAGEL: ]]:= [[ :VIOLENT HAILSTORM OVER WORMS +++ ROADS TURN INTO RIVERS | HAIL THE SIZE OF A GOLF BALL: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/uNq3ve3Re0s> ^ }:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
