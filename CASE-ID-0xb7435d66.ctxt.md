@@ -248,7 +248,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->###[[ :Average rent went up $103 every month since May: ]]:
+>### [[ :Average rent went up $103 every month since May: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/At_O99tA9rw> ^ }:
 
