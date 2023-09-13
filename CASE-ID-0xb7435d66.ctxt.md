@@ -364,9 +364,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Terrible natural disaster! Force of nature: massive flooding in Maluku: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/3K6qEbylAzk> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
