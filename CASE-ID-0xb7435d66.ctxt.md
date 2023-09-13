@@ -137,7 +137,7 @@
 >
 :is-with: { ^
 >
-<!DOCTYPE html>
+    <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
@@ -158,7 +158,7 @@
 >
 :is-with: { ^
 >
-<!DOCTYPE html>
+    <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
@@ -201,7 +201,7 @@
 >
 :is-with: { ^
 >
-<!DOCTYPE html>
+    <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
@@ -278,7 +278,7 @@
 >
 :is-with: { ^
 >
-<!DOCTYPE html>
+    <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
