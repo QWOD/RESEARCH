@@ -183,6 +183,10 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/ZhN8YFmh1Ys> ^ }:
 >
+:is-with: { ^ <https://www.nps.gov/yell/planyourvisit/conditions.htm> ^ }:
+>
+![:CASE-ID-0xb7435d66-3f7eab50.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-3f7eab50.png)
+>
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Ω: ]]:
