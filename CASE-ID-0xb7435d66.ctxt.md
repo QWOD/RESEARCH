@@ -34,6 +34,8 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :North Korea's Kim & Russia's Putin to Sign Arms Deal? | Vantage with Palki Sharma: ]]:= { ^ <https://youtube-nocookie.com/embed/VMtIL7BNGuY> ^ }:
 >
+>:is-with: { ^ <https://youtube-nocookie.com/embed/lD10fV7E_qM> ^ }:
+>
 >![:CASE-ID-0xb7435d66-7c15da39.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-7c15da39.png)
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
