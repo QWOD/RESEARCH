@@ -34,7 +34,17 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :North Korea's Kim & Russia's Putin to Sign Arms Deal? | Vantage with Palki Sharma: ]]:= { ^ <https://youtube-nocookie.com/embed/VMtIL7BNGuY> ^ }:
 >
+>[[ :Why Chinese Rocket Boosters Keep Hitting Villages: ]]:
+>
 >:is-with: { ^ <https://youtube-nocookie.com/embed/lD10fV7E_qM> ^ }:
+>
+>[[ :China's Rocket Dropping Habit: ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/yh2CRwVgqHA> ^ }:
+>
+>[[ :China Accidentally Launches a Rocket to Another Town: ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/FNHuzLQVzUM> ^ }:
 >
 >![:CASE-ID-0xb7435d66-7c15da39.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-7c15da39.png)
 >
