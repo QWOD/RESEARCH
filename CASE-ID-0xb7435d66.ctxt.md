@@ -375,7 +375,7 @@
 >
 >## *[[ :Northern Transcon Railcams | Brainerd, MN | Northern Pacific Center Rail Cam: ]]*
 >
->:is-with: { ^ https://youtu.be/AWJeeB-ZMls> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/AWJeeB-ZMls> ^ }:
 >
 >:is-with: { ^
 >
@@ -396,19 +396,47 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Northern Transcon Railcams | Little Falls, MN: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/W-h4_XTxr_8> ^ }:
 >
+>:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/W-h4_XTxr_8?si=q1KhLh58BdFljbfP&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Northern Transcon Railcams | Wadena, MN PTZ Rail Cam: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ov0vNoSV2jA> ^ }:
 >
+>:is-with: { ^
+>
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0xb7435d66-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/ov0vNoSV2jA?si=nqbJs2QGeYPep0xA&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+>
+> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
