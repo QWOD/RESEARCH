@@ -70,6 +70,8 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Can China Reinvigorate Its Housing Market?: ]]:= { ^ <https://youtube-nocookie.com/embed/hvFfXioYAIM> ^ }:
 >
+>![:CASE-ID-0xb7435d66-6fc08b1b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-6fc08b1b.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
