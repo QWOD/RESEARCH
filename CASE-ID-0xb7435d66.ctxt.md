@@ -355,9 +355,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Europe is on Chaos! Cataclysms are happening right now! Countries are going under water!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/JPbLvCpBt4o> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
