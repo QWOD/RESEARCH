@@ -88,7 +88,9 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0xb7435d66-57bb33b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-57bb33b7.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :The Whole city is going down for the crimes against you.....: ]]:= { ^ <https://youtube-nocookie.com/embed/wA2tiIodRtU> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -149,7 +151,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]:
+>### [[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/YgEl_fFt--Y> ^ }:
 >
@@ -170,7 +172,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :Nautilus Live | Channel 1 Stream: ]]:
+>### [[ :Nautilus Live | Channel 1 Stream: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/wUz1Vb7I2DU> ^ }:
 >
@@ -191,13 +193,13 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]:
+>### [[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/7VkxEA7_XBU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]:
+>### [[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/sjbJ2522O6o> ^ }:
 
@@ -234,7 +236,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :How Mexico is Taking Over China's Manufacturing: ]]:
+>### [[ :How Mexico is Taking Over China's Manufacturing: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/T_a_8c6HHxM> ^ }:
 >
@@ -242,7 +244,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->### [[ :Analysis: Evergrande Is Involved In The Power Struggle Between Xi Jinping And Zeng Qinghong: ]]:
+>### [[ :Analysis: Evergrande Is Involved In The Power Struggle Between Xi Jinping And Zeng Qinghong: ]]
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/RQ4gREPIlbk> ^ }:
 
