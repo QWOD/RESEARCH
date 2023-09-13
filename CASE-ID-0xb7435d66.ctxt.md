@@ -210,9 +210,11 @@
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Ω: ]]:
+[[ :How Mexico is Taking Over China's Manufacturing: ]]:
 >
-:is-with: { ^ Δ ^ }:
+:is-with: { ^ <https://youtube-nocookie.com/embed/T_a_8c6HHxM> ^ }:
+>
+>:[[ :CREΔTE: JΩB5: THERE: is-by: n0b0dy-wi11-3v3r-w4nt: is-by: c0m3: is-with: ΩSΔ: ΔVER: ΔGΔ☥N: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
