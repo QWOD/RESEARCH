@@ -18,7 +18,7 @@
 >
 ><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
 >
-*:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig 0x$(passworder -short)*
+### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig 0x$(passworder -short)*
 >
 ## :[[ :for-the: [[ CASE-ID-0xb7435d66: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <0xb7435d66-recon: Δ: mj12: Δ: agency> ^ }: ]]: ]]:.ctxt
 >
@@ -88,8 +88,8 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
-## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
->
+>## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :【ライブカメラ】羽田空港 HANEDA,Tokyo International Airport（日テレNEWS LIVE): ]]:
@@ -98,7 +98,7 @@
 >
 :is-with: { ^
 >
-<!DOCTYPE html>
+    <!DOCTYPE html>
     <head>
         <meta name="author" content="QWOD-MJ12: ATSUOMOP-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
@@ -110,28 +110,28 @@
     </html>
 >
 ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Horrific Natural Disasters: China city destroyed in seconds! river overflow causes major flooding: ]]:
+>### [[ :Horrific Natural Disasters: China city destroyed in seconds! river overflow causes major flooding: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/tz8FAsG14aE> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Spain Battered! Super Hail Storm And Flooding Blow Up Homes And Cars In Burriana: ]]:
+>### [[ :Spain Battered! Super Hail Storm And Flooding Blow Up Homes And Cars In Burriana: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/-8N8k5U4lU8> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Chinese Parents Abandoning Children Abroad: Desperation Amid China's Economic Decline: ]]:
+>### [[ :Chinese Parents Abandoning Children Abroad: Desperation Amid China's Economic Decline: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/2mkaBkoIPuE> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]:
+>### [[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/YgEl_fFt--Y> ^ }:
 >
@@ -149,10 +149,10 @@
     </html>
 >
 ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Nautilus Live | Channel 1 Stream: ]]:
+>### [[ :Nautilus Live | Channel 1 Stream: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/wUz1Vb7I2DU> ^ }:
 >
@@ -170,32 +170,32 @@
     </html>
 >
 ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]:
+>### [[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/7VkxEA7_XBU> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]:
+>### [[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/sjbJ2522O6o> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Tucker Carlson: "A 100ft Wide Fissure Crack JUST OPENED The Yellowstone Volcano!": ]]:
+>### [[ :Tucker Carlson: "A 100ft Wide Fissure Crack JUST OPENED The Yellowstone Volcano!": ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/ZhN8YFmh1Ys> ^ }:
 >
 :is-with: { ^ <https://www.nps.gov/yell/planyourvisit/conditions.htm> ^ }:
 >
 ![:CASE-ID-0xb7435d66-3f7eab50.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-3f7eab50.png)
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Earthquakemonitoring Worldmap: ]]:
+>### [[ :Earthquakemonitoring Worldmap: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/b0PRz34OtHg> ^ }:
 >
@@ -213,66 +213,66 @@
     </html>
 >
 ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :How Mexico is Taking Over China's Manufacturing: ]]:
+>### [[ :How Mexico is Taking Over China's Manufacturing: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/T_a_8c6HHxM> ^ }:
->
->:[[ :CREΔTE: JΩB5: THERE: is-by: n0b0dy-wi11-3v3r-w4nt: is-by: c0m3: is-with: ΩSΔ: ΔVER: ΔGΔ☥N: ]]:
+
+>### :[[ :CREΔTE: JΩB5: THERE: is-by: n0b0dy-wi11-3v3r-w4nt: is-by: c0m3: is-with: ΩSΔ: ΔVER: ΔGΔ☥N: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 [[ :Analysis: Evergrande Is Involved In The Power Struggle Between Xi Jinping And Zeng Qinghong: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/RQ4gREPIlbk> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Delivery Riders in Tears: Only $0.15 for 10KM!Economy Crash:Millions Jobless,Rush Into Delivery Jobs: ]]:
+>### [[ :Delivery Riders in Tears: Only $0.15 for 10KM!Economy Crash:Millions Jobless,Rush Into Delivery Jobs: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/amXmHD7LwVA> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Chinese satellite lasers recorded over Hawaii: ]]:
+>### [[ :Chinese satellite lasers recorded over Hawaii: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/amXmHD7LwVA> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Chinese destroyers confront Canadian warship in waters off Taiwan: ]]:
+>### [[ :Chinese destroyers confront Canadian warship in waters off Taiwan: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/5OhPtuCaV6I> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Average rent went up $103 every month since May: ]]:
+>###[[ :Average rent went up $103 every month since May: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/At_O99tA9rw> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :+++ HEFTIGES HAGELUNWETTER ÜBER WORMS +++ STRASSEN WERDEN ZU FLÜSSEN | GOLFBALLGROSSER HAGEL: ]]:= [[ :VIOLENT HAILSTORM OVER WORMS +++ ROADS TURN INTO RIVERS | HAIL THE SIZE OF A GOLF BALL: ]]:
+>### [[ :+++ HEFTIGES HAGELUNWETTER ÜBER WORMS +++ STRASSEN WERDEN ZU FLÜSSEN | GOLFBALLGROSSER HAGEL: ]]:= [[ :VIOLENT HAILSTORM OVER WORMS +++ ROADS TURN INTO RIVERS | HAIL THE SIZE OF A GOLF BALL: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/uNq3ve3Re0s> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Strong seismic activity recorded in Mexico, monitoring Popocatepetl! Live coverage.: ]]:
+>### [[ :Strong seismic activity recorded in Mexico, monitoring Popocatepetl! Live coverage.: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/LFhsRtEq2s4> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :One dead, 2 hurt in St. Helena high school shooting Tuesday: ]]:
+>### [[ :One dead, 2 hurt in St. Helena high school shooting Tuesday: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/oXxicVl6QuQ> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-:[[ :Behind the Osaka Airport Live Camera: ]]:= [[ :大阪空港ライブカメラ裏: ]]:
+>### :[[ :Behind the Osaka Airport Live Camera: ]]:= [[ :大阪空港ライブカメラ裏: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Akj0VHDmG8Q> ^ }:
 >
@@ -290,346 +290,513 @@
     </html>
 >
 ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
-[[ :Terrifying: Over 70 Crocodiles Escape From Breeding Farm Due To Heavy Flood In Guangdong: ]]:
+>### [[ :Terrifying: Over 70 Crocodiles Escape From Breeding Farm Due To Heavy Flood In Guangdong: ]]
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/vREjvM5fYi4> ^ }:
->
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
-[[ :Ω: ]]:
+>
+>### [[ :Ω: ]]
 >
 :is-with: { ^ Δ ^ }:
 >
