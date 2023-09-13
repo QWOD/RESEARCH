@@ -106,6 +106,8 @@
 >
 >![:CASE-ID-0xb7435d66-c536f8d6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-c536f8d6.png)
 >
+>![:CASE-ID-0xb7435d66-31334199.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-31334199.png)
+>
 >:[[ :*🚫PعD*: ]]:= [[ :Massive Tanks Head to Fujian, Taiwanese Entrepreneurs Exit China, Economic Collapse Looms: ]]:= { ^ <https://youtube-nocookie.com/embed/Gfl6iBb-qUU> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
