@@ -651,16 +651,14 @@
 >## *[[ :Monsoon storm explosion destroys airport in Arizona, USA! Mesa, Phoenix battered: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/V5n9PpBru6g> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Turkey Now! Istanbul closes all highways! 66,000 people are homeless!: ]]*
 >
->:is-with: { ^ Δ ^ }:
->
+>:is-with: { ^ <https://youtube-nocookie.com/embed/r5h-fgZxqO4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
