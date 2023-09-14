@@ -622,6 +622,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/FylcLZgsv8E> ^ }:
 >
+>:[[ :ΔLWΔY5-REMEMBER: is-with: GE☥GER-CΩΩNTER: is-with: m3t30r-hunting: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
