@@ -658,9 +658,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Try Listening For 5 Minutes And All Blessings Will Come, Bringing All Kinds Of Good Things: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RHioYt74-eo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
