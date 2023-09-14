@@ -784,9 +784,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Police chase California: Woman takes stolen truck for a joy ride in Southern California: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/6RvIr0zUvrM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
