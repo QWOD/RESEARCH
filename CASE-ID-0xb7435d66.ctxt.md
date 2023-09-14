@@ -598,9 +598,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Private Sector Boss Speaks Out: The Government Wants to Eliminate Us, It's Their Core Belief!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/h4a3aIS8jVo> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
