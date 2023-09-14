@@ -699,9 +699,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :US Battered || Monsoon Storm Destroys Airports, Planes & Buildings In Arizona: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/43gPw3hi90c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
