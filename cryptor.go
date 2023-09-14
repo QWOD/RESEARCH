@@ -41,8 +41,10 @@ var secretCodeSeed [35]string = [35]string{
 	"S", "D", "J", "F", "H",
 	"G", "K", "B", "C", "n"}
 
-var secretRandomSeed [7]string = [7]string{
-	"+", "!", "*", "%", "@", "?", "~"}
+var secretRandomSeed [15]string = [15]string{
+	"🔺", "+", "!", "*", "%",
+	"@", "?", "~", "☢️", "☣️",
+	"⚠️", "🚫", "🕳️", "✴️", "⚫"}
 
 func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
