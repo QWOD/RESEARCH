@@ -639,9 +639,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Chaos in Arizona !! Mesa AZ, Hurricane, Storm damaged planes last night !!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Hw-gUOGUYbU> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
