@@ -706,10 +706,11 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
+>![:CASE-ID-0xb7435d66-4e76d6c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-4e76d6c8.png)
 >
->## *[[ :Ω: ]]*
+>## *[[ :Angels and Archangels Heal You While You Sleep with Alpha Waves - Heal Soul And All Body Pains: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/6Z_4XHF4KjM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
