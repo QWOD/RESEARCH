@@ -33,18 +33,24 @@ import (
 
 var codeSize int
 var secretCodeSeed [33]string = [33]string{
-	"a", "l", "j", "k", "p",
-	"g", "m", "d", "q", "v",
-	"c", "x", "z", "Z", "W",
-	"V", "X", "T", "R", "Q",
-	"P", "L", "N", "M", "S",
-	"D", "J", "F", "H", "G",
-	"K", "B", "C", "n"}
+	"a", "l", "j",
+	"k", "p", "g",
+	"m", "d", "q",
+	"v", "c", "x",
+	"z", "Z", "W",
+	"V", "X", "T",
+	"R", "Q", "P",
+	"L", "N", "M",
+	"D", "J", "F",
+	"H", "G", "K",
+	"B", "C", "n"}
 
 var secretRandomSeed [15]string = [15]string{
-	"🔺", "+", "!", "*", "%",
-	"@", "?", "~", "☢️", "☣️",
-	"⚠️", "⭕", "🕳️", "✴️", "⚫"}
+	"🔺", "+",  "!",
+	"*",  "%",  "@",
+	"?",  "~",  "☢️",
+	"☣️", "⚠️", "⭕",
+	"🕳️", "✴️", "⚫"}
 
 func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
