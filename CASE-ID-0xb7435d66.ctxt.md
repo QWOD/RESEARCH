@@ -732,7 +732,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/sNf60yFEDi4> ^ }:
 >
->:[[ :CH☥NE5E-5PY: TΔNG🚫-DΔLTΔ: عCHΔL∅N-M☥KE: ]]:
+>:[[ :CH☥NE5E-CL∅NE-5PY: TΔNG🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: ☣️E: is-by: KEEP: is-with: DR🚫PP☥NG: TΔNG🚫: is-with: TΔNG🚫: is-by: KEEP5: is-with: MY5TER☥ΩU5LY-P🚫PP☥NG-UP: ΔGΔ☥N: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
