@@ -50,7 +50,7 @@ var secretRandomSeed [7]string = [7]string{
 	"+", "!", "*", "%", "@", "?", "~"}
 
 func main() {
-	var crypTexTranslated string = strings.Join(os.Args[1:], ":")
+	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
