@@ -728,9 +728,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Taiwan Slams Elon Musk for Calling it an "Integral Part" of China | Vantage with Palki Sharma: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/sNf60yFEDi4> ^ }:
+>
+>:[[ :CH☥NE5E-5PY: TΔNG🚫-DΔLTΔ: عCHΔL∅N-M☥KE: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
