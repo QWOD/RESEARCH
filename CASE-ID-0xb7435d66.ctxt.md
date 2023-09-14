@@ -762,9 +762,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :5☥NCE: WΔ: is-by: N∅W: BΔNN3D: is-with: ΔVERY: 5ΩC☥ΔL-M3D☥Δ-PLΔTF∅RM: is-by: WΔ: is-with: N∅-CHΩ☥CE: is-by: ΔDVΔNCE: for-th*: [[ ΔRTH-D☥5Δ5TER: TΩMΔL☥NE: is-with: 🚫PE𓂀T☥∅N: DΔRKT☥DE: for-th*: [[ QW🚫D-〽ʝ12: is-with: CHΔRLΔ-M☥KE: ]]: ]]: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>[[ :Arizona hit by Devastating Monsoon! Crazy wind and hail in North Mesa, Phoenix, USA: ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RCmvzgsHoNQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
