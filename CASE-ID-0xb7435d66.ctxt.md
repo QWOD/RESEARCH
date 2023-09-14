@@ -754,9 +754,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :From The Fall Of Beloved Protégé To Xi Jinping's Unprecedented Absence: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/N22LYwIr4ts> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
