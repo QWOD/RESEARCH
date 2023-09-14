@@ -830,9 +830,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Global National: Sept. 13, 2023 | Decades of lawlessness leave flood-ravaged Libya fragile: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/5NdCBERBPL8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
