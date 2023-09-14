@@ -32,19 +32,14 @@ import (
 )
 
 var codeSize int
-var secretCodeSeed [36]string = [36]string{
-	"e", "a", "o",
-	"l", "j", "k",
-	"p", "g", "m",
-	"d", "q", "v",
-	"c", "x", "z",
-	"Z", "W", "V",
-	"X", "T", "R",
-	"Q", "P", "L",
-	"N", "M", "S",
-	"D", "J", "F",
-	"H", "G", "K",
-	"B", "C", "n"}
+var secretCodeSeed [35]string = [35]string{
+	"e", "a", "l", "j", "k",
+	"p", "g", "m", "d", "q",
+	"v", "c", "x", "z", "Z",
+	"W", "V", "X", "T", "R",
+	"Q", "P", "L", "N", "M",
+	"S", "D", "J", "F", "H",
+	"G", "K", "B", "C", "n"}
 
 var secretRandomSeed [7]string = [7]string{
 	"+", "!", "*", "%", "@", "?", "~"}
