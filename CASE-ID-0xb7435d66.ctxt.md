@@ -796,9 +796,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Anticipate a Profound Weather Shift On The Horizon...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/1aIQntKUAJo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
