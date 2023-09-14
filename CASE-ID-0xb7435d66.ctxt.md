@@ -691,9 +691,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Hastings Co-Op Creamery fire aftermath aerials: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/QrsVAR8nmKk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
