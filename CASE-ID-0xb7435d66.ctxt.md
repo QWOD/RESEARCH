@@ -648,9 +648,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Monsoon storm explosion destroys airport in Arizona, USA! Mesa, Phoenix battered: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/V5n9PpBru6g> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
