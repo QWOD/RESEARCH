@@ -854,9 +854,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Bangladesh fire: Massive blaze destroys hundreds of shops in Dhaka's Mohammadpur market: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/6cblwDQmA7o> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
