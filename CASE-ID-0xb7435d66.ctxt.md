@@ -628,9 +628,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :They have celebrated your demise too early. The rug is being pulled out from under them✨️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/3y4-oCdgeuk> ^ }:
+>
+>:[[ :THΔ: ΔTTΔCK3D: VعTERΔN: is-with: PT5D: TYPE: is-with: wh3r3-th3y-sit-th3r3-411-d4y-h0pin@-s0m30n3-4tt4cks: ]]:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
