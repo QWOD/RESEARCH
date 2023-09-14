@@ -690,11 +690,15 @@
 >[[ :Someone is in spiritual Court for attempting to block you. (Part 2): ]]:
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/J5mdjq7ETg0> ^ }:
+>
+>[[ :Solar Eruption, Magnetic Heart Issues, Starlink Outage | S0 News Sep.14.2023: ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/V9PL-Xte5Ck> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
- >
+>
 >## *[[ :Hastings Co-Op Creamery fire aftermath aerials: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/QrsVAR8nmKk> ^ }:
