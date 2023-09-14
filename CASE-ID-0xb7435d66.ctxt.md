@@ -776,9 +776,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Watch.. Sudanese army drones bomb vehicles belonging to the Rapid Support Forces at Shambat Bridge: ]]:= [[ :شاهد.. مسيّرات الجيش السوداني تقصف مركبات تابعة لقوات الدعم السريع بجسر شمبات: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/oC8n-pInPAM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
