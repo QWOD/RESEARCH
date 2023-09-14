@@ -618,9 +618,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Three Meteorites Hitting Earth September 2023!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/FylcLZgsv8E> ^ }:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
