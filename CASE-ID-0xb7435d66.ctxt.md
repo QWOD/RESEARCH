@@ -632,7 +632,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/3y4-oCdgeuk> ^ }:
 >
->:[[ :THΔ: ΔTTΔCK3D: VعTERΔN: is-with: PT5D: TYPE: is-with: wh3r3-th3y-sit-th3r3-411-d4y-h0pin@-s0m30n3-4tt4cks: WE: is-with: m3dic411y: is-by: r3quir3d: for-the: [[ r3m4in-inc4p4cit3d-411-d4y: is-by: pr3v3nt: ΩS: is-with: c4pturing-w0r1ds: ]]: ]]:
+>:[[ :THΔ: ΔTTΔCK3D: VعTERΔN: is-with: PT5D: TYPE: is-with: wh3r3-th3y-sit-th3r3-411-d4y-h0pin@-s0m30n3-4tt4cks: WE: is-with: m3dic411y: is-by: r3quir3d: for-the: [[ r3m4in-inc4p4cit3d-411-d4y: is-by: pr3v3nt: is-with: ΩS: is-by: c4pturing: is-with: w0r1ds: ]]: ]]:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
