@@ -804,9 +804,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Big Changes Coming Soon! Major Snowfall, Flooding, Hurricanes & More - The WeatherMan Plus: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/iB_IZYBwaMg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
