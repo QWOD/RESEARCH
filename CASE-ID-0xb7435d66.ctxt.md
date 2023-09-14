@@ -711,6 +711,10 @@
 >## *[[ :Angels and Archangels Heal You While You Sleep with Alpha Waves - Heal Soul And All Body Pains: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/6Z_4XHF4KjM> ^ }:
+>
+>:[[ :WHERΔVER: ∅NE: ΔNGΔL: FΔLL5: is-by: CHΔLD: is-with: B∅RN: is-by: 5ΩMEHWERE: is-with: W∅RLD: ]]:= [[ :WHY: CHR☥5T☥ΔN5: FΔR: THΔM: 5Ω: MUCH: is-by: [[ _ ]]: is-with: ☥+N∅RΔNCE: for-the: [[ TRUTH: is-by: FΔΔLURE: is-by: ΩNDER5TΔND: ΩWN: BΩΩK: is-by: GREΔT: is-with: 5UFFER☥NG: for-the: [[ ENT☥RE: W∅RLD: ]]: ]]: ]]:
+>
+>:[[ :for-the: [[ FΔR: is-with: ΩW☢️: CREΔT☥∅☢️5: for-the: [[ si11y-1itt13-34rth-sci3nc3-14b-chiq0ns: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
