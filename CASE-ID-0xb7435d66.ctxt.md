@@ -607,9 +607,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :THESE "I SPY 👁WE SPY👀" ASS KARMICS 🙄ARE SERIOUSY ON OBSESSION MODE & DIVINE JUSTICE IS PREVAILING ⚖️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/q_wHeFkZYyQ> ^ }:
+>
+>:[[ :THΔ: is-by: w4nt: is-with: kn0w-wh4t-typ3: for-the: [[ [[ W☥TCH: C𓂀FT: <=> 5CΔNCE: ]]: WΔ: ΩS3D: is-by: d3f34t-411-witch-c0v3ns: is-by: 34rth: is-with: g30m3try: qu4ntum-physics: g30m4gn3tics: Y0uTub3: G🚫∅GLE: is-with: WΔ: is-by: ΔLWΔY5: is-with: r3c0mm3nd-d0ing-s0m3: RE5ΔRCH: ]]:
 >
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
