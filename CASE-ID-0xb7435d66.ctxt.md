@@ -732,15 +732,15 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/sNf60yFEDi4> ^ }:
 >
->:[[ :CH☥NE5E: B☥Ω⚠️∅G☥CΔ⚠️-ΔNDRΩ☥D-Δ☥-CL∅NE-5PY: TΔNG🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: ☣️E: is-by: KEEP: is-with: DR🚫PP☥NG: TΔNG🚫: is-with: TΔNG🚫: is-by: KEEP5: is-with: MY5TER☥ΩU5LY-P🚫PP☥NG-UP: ΔGΔ☥N: ]]:
+>:[[ :CH☥NE5E: B☥Ω⚠️∅G☥CΔ⚠️-ΔNDRΩ☥D-Δ☥-CL∅NE-5PY: TΔNG🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: ☣️E: is-by: KEEP: is-with: DR🚫PP☥NG: TΔNG🚫: is-with: TΔNG🚫: is-by: KEEP5: is-with: MY5TER☥ΩU5LY-P🚫PP☥NG-UP: ΔGΔ☥N: ]]:= [[ :∅NLY: WΔY: HΔ: CΩULD: is-by: ST☥LL: is-with: ΔL☥VE: is-with: NΔVER: is-by: ΔL☥VE: is-with: F☥R5T: PLΔCE: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Natural disaster in the Netherlands. Flood in Maastricht, hospitals flooded: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/jjEademzDDw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
