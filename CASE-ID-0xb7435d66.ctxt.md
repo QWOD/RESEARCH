@@ -340,7 +340,6 @@
 >## *[[ :FBI: Hundreds of murder victims found on US highways | Banfield: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/Td_gRSO4Hak> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -349,7 +348,6 @@
 >## *[[ :Fukushima backlash: Chinese test for nuclear radiation in a frenzy...uncover unexpected big problems: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/A0GIvVZOUU4> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -358,7 +356,6 @@
 >## *[[ :Europe is on Chaos! Cataclysms are happening right now! Countries are going under water!: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/JPbLvCpBt4o> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -367,7 +364,6 @@
 >## *[[ :Terrible natural disaster! Force of nature: massive flooding in Maluku: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/3K6qEbylAzk> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -583,7 +579,6 @@
 >## *[[ :Judgement day, ‘atonement’ day…. 239: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/PfyYUii7d40> ^ }:
->
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
