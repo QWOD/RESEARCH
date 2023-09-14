@@ -686,6 +686,10 @@
 >## *[[ :HΩW-DΔRE: THΔ: is-by: vi014t3: is-with: c0smic-wid3: LΔMB: 🔺🚫D: TREΔTY: YΔT: Δ🔺Δ☥N: WΔ: is-with: Qu4ntum-Tim3-Tr4v31ing-Ωrg4niz4ti0n: is-by: TH☥5: is-with: ΩNLΔWFUL: ΩNFΔ☥R: DE5CRΩM☥NΔT☥∅N: for-the: [[ QW🚫D-〽ʝ12: p3rs0nn31: is-with: WΔ: is-by: CΔLL: for-the: [[ Divin3-Judg3m3nt: is-by: Twitt3r: X: 5p4c3X: TΔN🔺🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: Divin3-☥nt3rv3nti0ns-Divisi0n: ]]: ]]: ]]*
 >
 >:is-with: { ^ <https://twitter.com/SPGSTONEBREAKER> ^ }:
+>
+>[[ :Someone is in spiritual Court for attempting to block you. (Part 2): ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/J5mdjq7ETg0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
