@@ -690,7 +690,7 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
->
+ >
 >## *[[ :Hastings Co-Op Creamery fire aftermath aerials: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/QrsVAR8nmKk> ^ }:
@@ -720,9 +720,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Terrorists Who Killed 3 Army Men in Anantnag Part of Group Specialising in Ambush: Sources | N18V: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/U3uwcyyVmgk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
