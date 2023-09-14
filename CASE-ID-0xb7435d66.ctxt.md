@@ -812,9 +812,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Nasa JUST ANNOUNCED "This Underwater Volcano Is Gonna SHOCK The Whole World": ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/XXsmPhpOG6U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
