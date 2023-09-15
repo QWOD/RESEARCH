@@ -942,9 +942,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Karmic family took the money to work against u- MKUltra: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/5aCDRzepLac> ^ }:
 >
 ## [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
