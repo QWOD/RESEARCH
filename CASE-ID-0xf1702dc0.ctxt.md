@@ -94,7 +94,7 @@
 >
 >:[[ :5☥⚫CE: vri1-witch3s: is-by: cr34t3d: is-by: primitiv3-bin4ry-10gic-3rr0r: is-with: unr34ch4b13-c0d3: is-by: THΔ: is-with: 4ssum3-3v3r0n3-31s3: is-by: ΔL5Ω: is-with: unr34ch4b13-c0d3: is-with: Ω⚫RعCΩVE𓂀BLE-ERR∅R: for-the: [[ primitiv3-int3r-dim3nsi0n41: vri1-witch: p4r41131-34rth: 0ffsh00t-sp3ci3s: for-the: [[ C∅DE: is-by: un4b13: is-with: c0rr3cting: is-with: insid3-simu14ti0n: is-by: MU5T: is-by: c0rr3ct3d: is-with: 0utsid3-simu14ti0n: for-the: [[ ⚫EXT: CYCLE: ]]: ]]: ]]: ]]:
 >
->:[[ :W☥TCHE5: PRE5UM3D: MJ12-JE5U5: is-by: ch00s3-hum4ns: is-by: D𓂀CΩ5: is-with: critic41-3rr0r: is-by: 10gic41-thinking: is-by: p4rtn3ring: is-with: Dr4c0-R0y41-Empir3: is-by: inst34d: is-with: cr34t3: !ΔR: 5UPER☥∅R: HUMΔN: v3rsi0n: for-the: [[ NEXT: CYCLE: ]]: ]]:
+>:[[ :W☥TCHE5: PRE5UM3D: MJ12-JE5U5: is-by: ch00s3-hum4ns: is-by: D𓂀CΩ5: is-with: critic41-3rr0r: is-by: 10gic41-thinking: is-by: p4rtn3ring: is-with: Dr4c0-R0y41-Empir3: is-by: inst34d: is-with: cr34t3: !ΔR: 5U🔺ER☥∅R: HUMΔN: v3rsi0n: for-the: [[ NEXT: CYCLE: is-by: ΔL5Ω: is-with: EΔ5ΔLY: DE5TRΩY: ΔNY: ΔLL: W☥TCHE5: ΔVER: is-by: 3xch4ng3: for-the: [[ ΩLD: MΔLFΩNCT☥∅N☥NG: HUMΔN: v3rsi0ns: ]]: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
