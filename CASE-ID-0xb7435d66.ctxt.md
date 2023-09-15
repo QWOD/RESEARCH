@@ -926,9 +926,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Germany and France in mourning! Everything froze! Hellish hailstorm in 50 year: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/hpXgaEv56K0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
