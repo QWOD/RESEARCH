@@ -902,9 +902,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Wow! JWST Finds Possible Alien Biosignatures On K2-18b Water Planet: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/iC95VzD7ALs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
