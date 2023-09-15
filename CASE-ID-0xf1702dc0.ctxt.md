@@ -112,7 +112,7 @@
 
 >
 >
->## *[[ :GLΔ55: is-by: HΔLF: E☥THER: is-with: ZΩM%Δ: is-by: FULL-RعTΔRD: is-by: [[ _ ]]: ]]*
+>## *[[ :GLΔ55: is-by: HΔLF: E☥THER: is-with: ZΩM%Δ: is-by: FULL-RعTΔRD: is-by: HΔLF: is-with: [[ _ ]]: ]]*
 >
 >:is-with: { ^ Δ ^ }:
 
