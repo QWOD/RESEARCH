@@ -9,7 +9,7 @@
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
 gitTreePath="${HOME}/hyperstor/QWOD"
-GHUSER='@138945726+QWOD'
+GHUSER='@138945726+QWOD@users.noreply.github.com'
 
 
 function cloudHiveBackup {
@@ -31,7 +31,7 @@ function cloudHiveBackup {
     "cd ${gitTreePath}/RESEARCH; ${gitTreePath}/RESEARCH/newfig.sh -p"
     "cd ${gitTreePath}/DISCLOSURE; ${gitTreePath}/RESEARCH/newfig.sh -p"
   )
-  git config --global user.email "${GHUSER}@users.noreply.github.com"
+  git config --global user.email "${GHUSER}"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
    
   for sop in "${specialOperations[@]}"; do
