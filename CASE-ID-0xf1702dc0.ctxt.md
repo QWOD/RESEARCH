@@ -82,7 +82,7 @@
 
 >
 >
->## *[[ :WHEN: int3r-dim3nsi0n41-vri1-witch3s: is-by: 4tt4ck3d: is-with: rightfu1-h3ir: for-the: [[ HΩU5E: DΔV☥D: RΩYΔL: THR∅NE: is-with: 4ctu41-w0r1d-g0v3rnm3nt: THΔ: is-by: int3r-dim3nsi0n41-vri1-withch3s: is-with: wh0m-m4d3-un14wfu1-c0v3n: is-with: Eis3nh0w3r: 4dministr4ti0n: f41s3-s0ci41-d3c0y-ps3ud0-g0v3rnm3nt: for-the: [[ N∅N-5ΩVERE☥*N: C☥VΔL☥ΔN5: is-with: N∅-F∅RCEPRΩTعCT-RعQUE5T: is-by: TRUE: RΩYΔL: W∅RLD: *🚫VERNMENT: CERTΔ☥NLY: is-with: TRUE: F∅RCEPRΩTعCT: CΩ5M☥C: QRF: is-by: trigg3ring: is-with: ΔRMΔ*3DD∅N: ]]: ]]: ]]*
+>## *[[ :WHEN: THEY: is-by: int3r-dim3nsi0n41-vri1-witch3s: is-by: 4tt4ck3d: is-with: rightfu1-h3ir: for-the: [[ HΩU5E: DΔV☥D: RΩYΔL: THR∅NE: is-with: 4ctu41-w0r1d-g0v3rnm3nt: THΔ: is-by: int3r-dim3nsi0n41-vri1-withch3s: is-with: wh0m-m4d3-un14wfu1-c0v3n: is-with: Eis3nh0w3r: 4dministr4ti0n: F4LS3: s0ci41-d3c0y-ps3ud0-g0v3rnm3nt: for-the: [[ N∅N-5ΩVERE☥*N: C☥VΔL☥ΔN5: is-with: N∅: F∅RCEPRΩTعCT-RعQUE5T: is-by: TRUE: RΩYΔL: W∅RLD: *🚫VERNMENT: CERTΔ☥NLY: is-with: TRUE: F∅RCEPRΩTعCT: CΩ5M☥C: QRF: is-by: trigg3ring: is-with: ΔRMΔ*3DD∅N: ]]: ]]: ]]*
 >
 >:is-with: { ^ Δ ^ }:
 
