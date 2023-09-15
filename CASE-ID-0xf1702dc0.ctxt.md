@@ -90,9 +90,7 @@
 
 >
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>## *[[ :WE: is-by: WΔ5: ΔLWΔY5: is-with: ΩS: is-by: MENTΔLLY: CLΩΔK3D: is-with: MK: ULT𓂀: for-the: [[ 🚫PE𓂀T☥∅NΔL-5عCUR☥TY: for-the: [[ 🚫PE𓂀T☥∅N: DΔRKT☥DE: <=> ΔRMΔG3DD∅N: ]]: ]]: ]]*
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
