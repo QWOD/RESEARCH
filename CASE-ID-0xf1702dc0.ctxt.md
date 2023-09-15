@@ -100,7 +100,7 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :PRΩM☥T☥VE: 1itt13-t0🔺🔺13r-min🔺3🔺-0n3s: is-by: ENJΩY: is-with: g00🔺-st0ri3s: is-with pr0ph3ci3s: is-with: 🔺isguising-missi0n-0bj3ctiv3s: is-by: PR🚫PHعCY: is-by: 3n3mi3s: is-with: f311-right-int0-0ur-h4n🔺s: for-the: [[ MK: ULT𓂀: PR∅G𓂀M5: is-by: 34si1y: is-with: 🔺3f34t3🔺: ]]: ]]*
 >
 >:is-with: { ^ Δ ^ }:
 
