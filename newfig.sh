@@ -3,6 +3,7 @@
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.$(uname -i); sha256sum passworder.$(uname -i) >passworder.$(uname -i).asc; sha256sum -c passworder.$(uname -i).asc; newfig 0x$(./passworder.$(uname -i) -short)
 
+GHUSER='@138945726+QWOD'
 goPath="${HOME}/go"
 brevity=513
 localRepoPath="${HOME}/hyperstor/QWOD"
@@ -47,7 +48,7 @@ if [[ $* == "-r"  ]]; then
 fi
 if [[ $* == "-p"  ]]; then
   ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
-  git config --global user.email "${USER}@mj12.agency"
+  git config --global user.email "${GHUSER}@users.noreply.github.com"
   git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
   git config --global pull.rebase false
   git merge --no-ff
