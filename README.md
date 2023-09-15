@@ -1,4 +1,4 @@
-# :[[ :QW🚫D-〽ʝ12: <=> RESΔRCHING: new-technΩlΩgies-sΩ-disruptive: is-by: BΔNNED: is-with: ΔNY: ΔLL: ΩTHER: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: ]]:
+# :[[ :QW🚫D-〽ʝ12: <=> 5URPR☥5☥NG: ENEMΔ5: is-by: NEW: is-with: t3chnΩ1Ωgi3s: 5Ω: H☥GHLY: is-by: disruptive: is-with: BΔNNED: is-by: ΔNY: ΔLL: ΩTHER: is-with: SΩCIΔL: MEDIΔ: PLΔTFΩRMS: ]]:
 >### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
 >:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
