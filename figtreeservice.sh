@@ -47,7 +47,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
   else
     ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com &> /dev/null
-  git config --global user.email "${GHUSER}@users.noreply.github.com"
+    git config --global user.email "${GHUSER}"
     git config --global user.name ':QWOD-MJ12: ATSUOMOP-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
