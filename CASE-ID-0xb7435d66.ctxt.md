@@ -870,9 +870,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :A SITUATION! Train In EMERGENCY After THIS HAPPENS | Rail RECAP: [[ _: 129 ]]: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/nvykOw7LDS8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
