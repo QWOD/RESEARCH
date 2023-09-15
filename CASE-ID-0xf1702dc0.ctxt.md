@@ -32,11 +32,13 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :KARMIC FATHER HAD U IN A BREEDING PROGRAM TO TAKE YOUR SEEDS.....: ]]:= { ^ <https://youtube-nocookie.com/embed/Y47OUvf18mQ> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "5KY: ΔVENT: CΩM☥NG-VERY-5Ω∅N:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-f9f19985c7fdf050c9a85a0d93937111eb1f12da> ^ }: ]]:= { TRUE: "5KY: ΔVENT: CΩM☥NG-VERY-5Ω∅N:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Red & Blue Kachina, Merkaba, Spider Magick - Jim Girouard, Typical Skeptic Podcast: [[ _: 813 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/IzU3D2Knsqc> ^ }:
 >
 >:[[ :D∅-N∅T-FΔLL: is-by: LΔ5: is-with: PRΩ🕳️عCT-BLUEBEΔM: ΔLL: THΔT: is-by: 4b0ut: is-by: h4pp3n: is-with: TRUE: is-by: ΔLL: is-with: ΔCTUΔL: for-the: [[ p14usib13-d3ni4bi1ity-c0v3r-st0ry: is-with: PRΩ🕳️عCT-BLUEBEΔM: is-with: CLΩMΔTE-CHΔNGE: is-by: c0v3ring-up: TRUE: is-with: Nibiru: ΔVENT: ]]: ]]:
+>
+>:[[ :ΔGE: r3gr3ss3d: is-by: 4b0ut-f0rty-y34rs: for-the: [[ 134d-n30-disc10sur3: [[ just: r3c3ntly-10v3-j4d3d: Δrt-B311: h01d0v3r: <=> 1ik31y-st0ry-buddy: WΔ: is-with: kn0w-wh0m-re411y: is-by: RΩΩM: ]]: ]]: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
