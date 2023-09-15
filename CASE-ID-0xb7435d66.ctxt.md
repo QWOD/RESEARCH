@@ -878,9 +878,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Lawsuit filed to halt sweeps of Berkeley homeless encampment: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/epUCzT0Z5lo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
