@@ -862,9 +862,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :What's going on? Fires broke out in Tianjin, Beijing, and Shanghai, as well as earthquakes...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/NuCMcSsye7w> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
