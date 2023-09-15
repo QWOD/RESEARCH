@@ -105,6 +105,8 @@
 >![:CASE-ID-0xf1702dc0-01a2bfea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-01a2bfea.png)
 >
 >:[[ :for-the: [[ [[ TRΔN5LΔT☥∅N: <=> J5ΩC: 5F∅D-Δ: ]]: is-with: PΩ5T: for-the: [[ QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: is-by: ∅DT: is-with: CHΔRLΔ-M☥!E: ]]: ]]: ]]:
+>
+>:[[ :for-the: [[ FΩUR: BEΔ5T5: <=> ΔRMY: Δ☥RF∅RCE: NΔVY: MΔR☥NE5: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
