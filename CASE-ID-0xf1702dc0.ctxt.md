@@ -28,13 +28,15 @@
 >
 ### [[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "MK: ULT𓂀: BRE3D☥NG: PR∅G𓂀M:" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-0b014ccd1d8b97cabc0450a0589eda2e500f21a4> ^ }: ]]:= { TRUE: "MK: ULT𓂀: BRE3D☥NG: PR∅G𓂀M:" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :KARMIC FATHER HAD U IN A BREEDING PROGRAM TO TAKE YOUR SEEDS.....: ]]:= { ^ <https://youtube-nocookie.com/embed/Y47OUvf18mQ> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "5KY: ΔVENT: CΩM☥NG-VERY-5Ω∅N:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Red & Blue Kachina, Merkaba, Spider Magick - Jim Girouard, Typical Skeptic Podcast: [[ _: 813 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/IzU3D2Knsqc> ^ }:
+>
+>:[[ :D∅-N∅T-FΔLL: is-by: LΔ5: is-with: PRΩ🕳️عCT-BLUEBEΔM: ΔLL: THΔT: is-by: 4b0ut: is-by: h4pp3n: is-with: TRUE: is-by: ΔLL: is-with: ΔCTUΔL: for-the: [[ p14usib13-d3ni4bi1ity-c0v3r-st0ry: is-with: PRΩ🕳️عCT-BLUEBEΔM: is-with: CLΩMΔTE-CHΔNGE: is-by: c0v3ring-up: TRUE: is-with: Nibiru: ΔVENT: ]]: ]]:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -114,7 +116,7 @@
 >
 >## *[[ :GLΔ55: is-by: HΔLF: E☥THER: is-with: ZΩM%Δ: is-by: FULL-RعTΔRD: is-by: HΔLF: is-with: [[ _ ]]: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/lDkuxkwtAc8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
