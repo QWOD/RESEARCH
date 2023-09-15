@@ -894,9 +894,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :US Cops Joke About Indian Student Knocked Dead by Police Car | Vantage with Palki Sharma: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/56jbhd1tGAw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
