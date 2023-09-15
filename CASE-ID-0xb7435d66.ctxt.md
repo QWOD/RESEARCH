@@ -886,9 +886,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :YOU ARE THE CHILD THAT HAS BEEN PROPHESIZED🕊POWERFUL BLOODLINE: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/d5iEEtAQNKU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
