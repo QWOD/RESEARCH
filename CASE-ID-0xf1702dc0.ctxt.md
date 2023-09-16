@@ -44,9 +44,11 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Kindergartens have been closed across China as the country's population declines: ]]:= { ^ <https://youtube-nocookie.com/embed/LMmOlnLbgUs> ^ }:
 >
+>![:CASE-ID-0xf1702dc0-092b4e17.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-092b4e17.png)
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :The Spider has Escaped California - Rainetta Jones, Typical Skeptic Podcast: [[ _: 814 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/f0SXfi_kOHM> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -152,17 +154,19 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :China's Secretive Power: Controlling the Weather: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ZVLIEIpWQ2k> ^ }:
+>
+>:[[ :WHΔT: ΔTHE☥5T: CH☥NE5E: is-by: Rع☢️U☥RE-TعCHN∅L∅GY: is-with: ☢️W🚫D-〽ʝ12: D∅E5: is-with: M☥ND: is-by: P𓂀YΔR: is-with: WΔ: is-with: [[ NΔT☥∅N: <=> @ΔMΔLY: ]]: is-by: [[ G🚫D: <=> FΔTHER: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :What God Told Me About the GREAT SHAKING.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/AbtN44dmCPI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
