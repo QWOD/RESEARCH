@@ -50,9 +50,13 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :The Spider has Escaped California - Rainetta Jones, Typical Skeptic Podcast: [[ _: 814 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/f0SXfi_kOHM> ^ }:
 >
+>![:CASE-ID-0xf1702dc0-a2db7c2b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-a2db7c2b.png)
+>
+>:[[ :ZERΩ-CΔR@∅N: <=> ZERΩ-@EΔ5T: ]]:
+>
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :: ]]:= { ^ Δ ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
