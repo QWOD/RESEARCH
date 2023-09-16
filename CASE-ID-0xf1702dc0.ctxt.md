@@ -54,7 +54,7 @@
 >
 >:[[ :ZERΩ-CΔR@∅N: <=> ZERΩ-@EΔ5T: ]]:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-d8f81b35764cd9ca504d08dc740b6bfb7b1e2169> ^ }: ]]:= { TRUE: "[[ :5ΔME-TΩME: is-by: NEXT: is-with: YΔR: is-by: TH☥5: is-with: civi1iz4ti0n: is-by: n33d: is-with: 1iv3: is-by: 300: is-with: f33t: und3r: gr0und: for-the: [[ r3m0t3-ch4nc3: is-by: surviv41: ]]: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-d8f81b35764cd9ca504d08dc740b6bfb7b1e2169> ^ }: ]]:= { TRUE: "[[ :5ΔME-TΩME: is-by: NEXT: is-with: YΔR: is-by: TH☥5: is-with: civi1iz4ti0n: is-by: n33d: is-with: 1iv3: is-by: 300: is-with: f33t: und3r: gr0und: for-the: [[ r3m0t3-ch4nc3: is-by: g30m4gn3tic-r4di4ti0n: 4str0id: tsun4mi: 34rthqu4k3: c4t4str0phic-g10b41-st0rm: risk: surviv41: ]]: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :YOUR LEGENDARY SACRED WAYS ARE WHY YOU WERE CHOSEN TO HELP CREATE DIVINITY ON EARTH 🔮: [[ _: tarot: _: runes ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/L-TXcm1fRMQ> ^ }:
 >
