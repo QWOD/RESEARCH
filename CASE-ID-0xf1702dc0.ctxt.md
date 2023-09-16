@@ -208,6 +208,7 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
+>![:CASE-ID-0xf1702dc0-afd57083.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-afd57083.png)
 >
 >## *[[ :Ω: ]]*
 >
