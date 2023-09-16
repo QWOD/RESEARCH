@@ -237,9 +237,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :"Belt and Road" to "Dead End"!CCP Has No Money to Continue;US Boosts India's "New Economic Corridor": ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/bUNNFOpw4oI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
