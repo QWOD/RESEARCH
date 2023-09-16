@@ -201,9 +201,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Observing the surge in coastal Maine. Live cams and coverage.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/poZkfUnzE1Y> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
