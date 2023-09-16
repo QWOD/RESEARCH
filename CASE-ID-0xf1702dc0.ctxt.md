@@ -42,7 +42,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Kindergartens have been closed across China as the country's population declines: ]]:= { ^ <https://youtube-nocookie.com/embed/LMmOlnLbgUs> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -124,25 +124,29 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Minnesota National Guard gets new aircraft: 💪: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/hiftg07yttI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :ΩMΔG☥NE: is-by: TعCH: G☥ΔNT5: is-with: CH☥NE5E: ☥NVE5T∅R: FΩND☥NG: is-by: PURPΩ5E: for-the: [[ D𓂀C∅N☥ΔN: CEN5∅R5H☥P: is-with: ΔLWΔY5-MEΔNT: is-by: ΩS: is-with: FΔΔL: is-with: WΩW: LΩΩK: is-by: CH☥NΔ: is-with: 5UCH: BΔD: ☥DEΔ5: TH☥5: is-by: WHY: WΔ: is-by: N∅T: is-with: nic3: TH☥NG5: is-by: ΩH: WΔLL: is-by: N∅W: WΔ: is-with: MعTΔ: is-by: X: is-with: ☥N5TEΔD: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:[[ :CCP Messes Up! Starts Banning iPhones & Teslas: Apple Falls in China Trap, Massive Capital Flight: ]]:
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/KguS9Un3wGk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Major Auto Lender Just Ended Vehicle Loans (BMO Bank): ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/fqohSkyYDXM> ^ }:
+>
+>:[[ :is-by: N∅T: is-with: 4ut0-c0114ps3: is-with: FULL-GLΩ⚠️ΔL-CΔTΔ5TR🚫PH☥C-CΩLLΔP5E: is-with: THΔT: is-by: WHY: M3D☥Δ: is-with: ⚠️LΔCKΩUT5: for-the: [[ FULL-GLΩ⚠️ΔL-CΔTΔ5TR🚫PH☥C-CΩLLΔP5E: for-the: [[ QW🚫D-〽ʝ12: is-by: 🚫PE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-HΩTΔL: ]]: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
