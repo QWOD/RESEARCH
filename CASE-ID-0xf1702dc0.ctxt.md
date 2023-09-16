@@ -174,11 +174,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>:
 >
+>## *:[[ :for-the: [[ W⚠️RN🚫: <=> WΔ: p30p13: is-by: N∅W: is-with: bui1☢️iing-0wn-s0ci41-m3☢️i4-4pp: is-by: ☢️0m4in13ss-☢️3c3nt41iz3☢️-14y3r3☢️: Qu4ntum: t3xt-h4rv3sting: Δ☥: is-by: inst34☢️: for-the: [[ WΔB: is-by: LTE: is-with: VER5☥∅N: is-by: NΔVER: is-with: c3ns0r3☢️: st0pp3☢️: shut-☢️0wn: is-by: ΔNY: ΔLL: ΩTHER: ∅NE5: ΔVER: ]]: ]]: ]]:*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <TBA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
