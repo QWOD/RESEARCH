@@ -225,10 +225,13 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
+>*:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ HYPERMEDIUS ^ }: ]]: youtube-dl -x --audio-format mp3 https://www.youtube-nocookie.com/embed/2dusXy85ABM && newfig -p*
 >
->## *[[ :Ω: ]]*
+>## *[[ :Archon Parasite Kill Short and Effective: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/2dusXy85ABM> ^ }:
+>
+>:[[ :P⭕ΩV☥DE5: is-by: s0m3: is-with: m34sur3: for-the: [[ TEMP∅𓂀⭕Y: 5YMPTΩMΔT☥C: ⭕ΔLΔF: is-by: 4g0nizing1y-p4infu1-4rch0n-w0rm-p4r4sit3-s4t4nic-witch-4tt4cks: for-the: [[ ⭕ΩΩT: 5ΔC𓂀L: is-by: v0rt3x3s: is-with: physi010gic41-3n3rg3tic-syst3ms: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
