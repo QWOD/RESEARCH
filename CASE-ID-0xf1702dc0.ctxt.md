@@ -210,17 +210,17 @@
 >
 >![:CASE-ID-0xf1702dc0-afd57083.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-afd57083.png)
 >
->## *[[ :Ω: ]]*
+>## *[[ :Financial crisis worsens: Mortgage defaulters use "professional deadbeats" to start a new life.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/AjeyeZq3T30> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Libya flooding: Calls for Derna evacuation as search for dead continues - BBC News: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/AOAWoDKCDVc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
