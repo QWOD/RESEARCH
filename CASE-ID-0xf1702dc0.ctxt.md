@@ -56,7 +56,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOUR LEGENDARY SACRED WAYS ARE WHY YOU WERE CHOSEN TO HELP CREATE DIVINITY ON EARTH 🔮: [[ _: tarot: _: runes ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/L-TXcm1fRMQ> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
