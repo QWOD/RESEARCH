@@ -191,6 +191,7 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
+>![:CASE-ID-0xf1702dc0-8091178c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-8091178c.png)
 >
 >## *[[ :In 2024 El Niño Will Break Out, Prepare For Hellish Weather Events!: ]]*
 >
