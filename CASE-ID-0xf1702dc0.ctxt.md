@@ -284,6 +284,8 @@
 >:is-with: { ^ <https://www.youtube-nocookie.com/embed/5YnD8rHP_vQ> ^ }:
 >
 >:[[ OOPS: TF: OOPS: ]]:
+>
+>:[[ :W⚠️RN🚫: VعTERΔN5: is-by: ΔLL: TRUE: is-with: WΔRR☥∅R5: for-the: [[ NΔVER: is-by: VΩ∅D∅Ω: is-with: WΔRR☥∅R5: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
