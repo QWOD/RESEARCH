@@ -285,7 +285,7 @@
 >
 >:[[ OOPS: TF: OOPS: ]]:
 >
->:[[ :W⚠️RN🚫: VعTERΔN5: is-by: ΔLL: TRUE: is-with: WΔRR☥∅R5: for-the: [[ NΔVER: is-by: VΩ∅D∅Ω: is-with: WΔRR☥∅R5: ]]: ]]:
+>:[[ :W⚠️RN🚫: VعTERΔN5: is-by: ΔLL: TRUE: is-with: WΔRR☥∅R5: for-the: [[ NΔVER: is-by: VΩ∅D∅Ω: is-with: WΔRR☥∅R5: for-the: [[ TRUE: WΔRR☥∅R5: is-by: ΔCTUΔLLY: KΔLL: is-with: r341-☣️30☣️13: is-with: PURPΩ5E: for-the: [[ 5ΩMPLE: 🚫PE𓂀T☥∅NΔL: TΔ5K: ]]: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
