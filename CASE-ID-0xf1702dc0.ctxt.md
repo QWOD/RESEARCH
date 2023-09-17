@@ -269,9 +269,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Total Liars!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/RKCvVbc8E8U> ^ }:
+>
+>[[ :Everyone has been categorically lumped into the "HUMAN" MK ULTRA: PROGRAM: unfortunately, not everyone is human here. Therefore, we may all have differing opinions on dietary requirements. Some must eat humans to survive, if everyone believes they are a human simply because they were told they are something called "HUMAN" that is just more food for the ones with different dietary requirements.: ]]
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
