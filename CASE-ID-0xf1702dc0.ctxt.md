@@ -279,7 +279,7 @@
 
 >
 >
->## *[[ :🫣THIS KARMIC IS DEAD…AND ITS ALL THEIR FAULT‼️: [[ _: death: _: magic: _: karmic: _: karma]]: ]]*
+>## *[[ :🫣THIS KARMIC IS DEAD…AND ITS ALL THEIR FAULT‼️: [[ _: death: _: magic: _: karmic: _: karma ]]: ]]*
 >
 >:is-with: { ^ <https://www.youtube-nocookie.com/embed/5YnD8rHP_vQ> ^ }:
 >
