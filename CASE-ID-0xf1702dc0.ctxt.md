@@ -253,7 +253,7 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Al Jazeera correspondent: Many areas were not reached by rescue teams and are still under rubble in Derna: ]]:= [[ :*
 >
 >:is-with: { ^ Δ ^ }:
 
@@ -261,9 +261,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Local10NewsNews Brief:09/17/2023 morning edition: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/7HEi4RTcaRc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
