@@ -295,6 +295,9 @@
 >
 >:[[ oopse: TF: oopse: ]]:
 
+
+## :[[ :∅NLY: is-with: ΔKN∅WL3DG☥NG: ΩWN: ΩMPERFعCT☥∅N5: is-by: 4110ws: ∅NE: is-with: 4cc3ss: for-the: [[ NEXT: LΔVΔL: C∅DE5: for-the: [[ 5ΩMULΔT☥∅N: is-by: th3r3f0r3: is-with: ΩNΔCKN∅WL3DG3D: 🚫PE𓂀T☥∅N5: is-by: unkn0wn-c0mp3tit0rs: is-with: 41w4ys-d3stin3d: is-by: FΔΔL: ]]: ]]
+
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
