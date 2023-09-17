@@ -279,17 +279,21 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🫣THIS KARMIC IS DEAD…AND ITS ALL THEIR FAULT‼️# death #magic #karmic #karma: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/5YnD8rHP_vQ> ^ }:
+>
+>:[[ OOPS: TF: OOPS: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🌞 DAMN…THAT BACKFIRE/RETURN TO SENDER WAS QUICK👑😳👀 …IN HEAVY DENIAL…😑…🌞: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://www.youtube-nocookie.com/embed/sctgOjbQ6Ug> ^ }:
+>
+>:[[ oopse: TF: oopse: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
