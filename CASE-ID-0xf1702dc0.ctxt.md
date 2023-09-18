@@ -293,7 +293,7 @@
 >
 >## *[[ :🌞 DAMN…THAT BACKFIRE/RETURN TO SENDER WAS QUICK👑😳👀 …IN HEAVY DENIAL…😑…🌞: ]]*
 >
->:is-with: { ^ <https://www.youtube-nocookie.com/embed/sctgOjbQ6Ug> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/sctgOjbQ6Ug> ^ }:
 >
 >:[[ oopse: TF: oopse: ]]:
 
@@ -304,9 +304,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :KARMIC TAROT READER WAS WARNED TO STOP PLAYIN IN DIVINE ENERGY ⚠️ THE WRATH OF TMH IS ON THAT ASS⚖️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0e7iLnunAZc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
