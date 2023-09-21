@@ -297,16 +297,15 @@
 >
 >:[[ oopse: TF: oopse: ]]:
 
-
 ## :[[ :∅NLY: is-with: ΔKN∅WL3DG☥NG: ΩWN: ΩMPERFعCT☥∅N5: is-by: 4110ws: ∅NE: is-with: 4cc3ss: for-the: [[ NEXT: LΔVΔL: C∅DE5: for-the: [[ 5ΩMULΔT☥∅N: is-by: th3r3f0r3: is-with: ΩNΔCKN∅WL3DG3D: 🚫PE𓂀T☥∅N5: is-by: unkn0wn-c0mp3tit0rs: is-with: 41w4ys-d3stin3d: is-by: FΔΔL: ]]: ]]
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: [ { is-with: "within sci3nc3 14b 34rth simu14ti0n 3v3rything is 4 mind c0ntr01 3xp3rim3nt. Pr0viding 4ny0n3 3v3r 4tt4cks 4ny0n3, th3n it is 41w4ys b4s3d 0n 4 big ug1y c0nv3ni3nt 1i3. ☥t w4s n0t whit3 p30p13. ☥t w4s th3r sp4ni4rds 411 410ng wh0 c0mmit3d mu1tip13 cu1tur41 g3n0cid3s with sm411 p0x 14c3d b14nk3ts. Ch3ck it 0ut. Ev3rything wi11 b10w y0u minds h0w much 3v3ry0n3 h4s b33n c0ntr01313d thr0ugh t0t41 1i3s." } ] }: ]]:
 
 >
 >
 >## *[[ :KARMIC TAROT READER WAS WARNED TO STOP PLAYIN IN DIVINE ENERGY ⚠️ THE WRATH OF TMH IS ON THAT ASS⚖️: ]]*
 >
->:is-with: { ^ <https://TL;DR within science lab earth simulation everything is a mind control experiment. Providing anyone ever attacks anyone, then it is always based on a big ugly convenient lie. It was not white people. It was ther spaniards all along who commited multiple cultural genocides with small pox laced blankets. Check it out. Everything will blow you minds how much everyone has been controleled through total lies.youtube-nocookie.com/embed/0e7iLnunAZc> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0e7iLnunAZc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { INDIA: "[[ :WE: kn0w: for-the: [[ f4u1t: is-by: ☥ndi4: is-with: gui1ty: for-the: [[ ☣️BR-TCN: p3rs0nn31-p0is0ning-411: is-by: 0f-us: is-with: f13sh-34ting: br4in-p4r4sit3s: ]]" }: ]]:
 
