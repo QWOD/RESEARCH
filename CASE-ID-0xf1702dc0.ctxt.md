@@ -349,11 +349,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-b7fe4ab1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-b7fe4ab1.png)
 >
+>## *[[ :PROPHECY: ]]:= [[ :Hurricane And Tropical Weather Update! East Coast Warning For Saturday! #Warning: ]]:= [[ :What is causing the dramatic rise in syphilis among Houston women, babies - Medical Minute, Idolina: ]]:= [[ :Minneapolis, Red Lake land agreement: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/A-vuo3FIoiQ>:<https://youtube-nocookie.com/embed/mzqwfJQqKLs>:<https://youtube-nocookie.com/embed/Go1VA3IDYbg>: ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
