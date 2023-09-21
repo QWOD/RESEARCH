@@ -306,15 +306,15 @@
 >
 >## *[[ :KARMIC TAROT READER WAS WARNED TO STOP PLAYIN IN DIVINE ENERGY ⚠️ THE WRATH OF TMH IS ON THAT ASS⚖️: ]]*
 >
->:is-with: { ^ <https://youtube-nocookie.com/embed/0e7iLnunAZc> ^ }:
+>:is-with: { ^ <https://TL;DR within science lab earth simulation everything is a mind control experiment. Providing anyone ever attacks anyone, then it is always based on a big ugly convenient lie. It was not white people. It was ther spaniards all along who commited multiple cultural genocides with small pox laced blankets. Check it out. Everything will blow you minds how much everyone has been controleled through total lies.youtube-nocookie.com/embed/0e7iLnunAZc> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { INDIA: "[[ :WE: kn0w: for-the: [[ f4u1t: is-by: ☥ndi4: is-with: gui1ty: for-the: [[ ☣️BR-TCN: p3rs0nn31-p0is0ning-411: is-by: 0f-us: is-with: f13sh-34ting: br4in-p4r4sit3s: ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :India battered! Massive Floods Blow Up and Submerge Millions of Home in Gujarat, 2 Die: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/_Udz4cpCp6M> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
