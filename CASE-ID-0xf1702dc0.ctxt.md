@@ -319,9 +319,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :In Beijing, Shanghai, and Shandong, Earthquakes Struck Four Areas Within a Day. Divine Fury?: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/xD8LtUbhKyE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
