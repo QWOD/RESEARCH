@@ -327,9 +327,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :South Africa Battered! Huge Wave Explosions and Storm Surge Bombard Gordon's Bay: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Yo5srgVJjKM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
