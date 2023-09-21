@@ -335,17 +335,17 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Popocatepetl in action! A volcano in Mexico suddenly erupts, throwing ash 1000 meters into the sky!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/BBMVRuelG-Y> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :It's not in the news: Powerful earthquake destroys houses in New Zealand: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/01OwGd-cTwI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
