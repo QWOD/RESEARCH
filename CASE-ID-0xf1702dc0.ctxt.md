@@ -359,9 +359,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :كارثة😨 بعد ليبيا! اعصار مرعب يجتاح امريكا الآن/ تدمير مطارات واعلان الطوارئ-كارثة امريكا لايصدق: ]]:= [[ :Disaster 😨 after Libya! A terrifying hurricane is sweeping America now / destroying airports and declaring an emergency - America’s disaster is unbelievable: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/YmA8ycMcJss> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
