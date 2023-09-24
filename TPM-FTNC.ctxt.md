@@ -144,9 +144,7 @@
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >:[[ :ATSUΩM🚫P: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
->#
->
->[[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]:
+>## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 >
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >
