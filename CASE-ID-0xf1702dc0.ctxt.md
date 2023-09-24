@@ -436,11 +436,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-1f64af35.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-1f64af35.png)
 >
+>## *[[ :Scammers in the Metaphysical Community, Real Hoodoo and Witchcraft - Miss Aida, TSP [[ _: 827: ]]: ]]:= [[ :🫣IT KILLED THEM…THAT’S WHAT THEY GET‼️: [[ _: death _: family _: funeral: _: magic: _: sick: _: karma ]]: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/vjDu-9K8Ey4>:<https://youtube-nocookie.com/embed/BjbLEgpgvFI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
