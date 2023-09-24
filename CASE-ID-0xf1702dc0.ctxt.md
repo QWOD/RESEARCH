@@ -375,9 +375,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Xi's True Enemy Revealed; CCP Allocates 1.5 Trillion to Tackle Debt, Sparking Doubt About Its Origin: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/bT2xCrB2jSA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
