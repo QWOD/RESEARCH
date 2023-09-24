@@ -66,7 +66,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :عاجل⛔ اختفت عاصمة الفلبين! لحظات انفجار احد اشرس البراكين حول العالم!بركان تال ينفث الرماد للسماء!: ]]:= [[ :⛔ Urgent the capital of the Philippines has disappeared! Moments of eruption of one of the fiercest volcanoes around the world!: ]]:= { ^ <https://youtube-nocookie.com/embed/Jw7KtYB15XA> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-f99f989609b5a6bdde285a8418934d8de503fee9> ^ }: ]]:= { TRUE: "[[ 5☥NCE: WΔ: JE5U5: is-with: c4ptur3d: is-by: LΩCKHE3D-MΔRT☥N: is-with: cr34t3d-r31i⚫i0n: is-by: s3nt: b4ck: is-with: TΩME: is-with: V0ic3-0f-🕳️0d: TعCHN∅L∅🕳️Y: is-by: c0v3r-up-crim3s: for-the: [[ hum4n-tr4ffickin⚫: is-with: simp1y: MK: UTL𓂀: 3ntir3-w0r1d: is-with: r31i⚫i0n: for-the: [[ P🚫PULΔT☥∅N: is-by: n0t: is-with: b31i3v3: J3sus: is-with: r341: is-by: simp1y: is-with: hum4n-tr4ffickin⚫-victim: is-by: p14c3: is-with: J3sus: for-the: [[ m0st-3vi1-s4t4nic: MK: ULT𓂀: pr0⚫r4m-h0st-f4mi1y: is-with: ΔRTH: for-the: [[ 40: y34rs: 54t4nic-Ritu41-Δbus3: is-with: m4kin⚫: J3sus: f0r⚫3t: is-by: wh0: for-the: [[ J3sus: is-with: 3ntir3-1if3: ]]: ]]: ]]: ]]: ]]: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :CHOSEN ONE!!🍒MSG FOR AN EXTREMELY ADVANCED OLD SOUL ABOUT TO RECEIVE THE LIGHTWORKERS BOUNTY🧞‍♀️🔮: ]]:= { ^ <https://youtube-nocookie.com/embed/7nnYEDgXHJc> ^ }:
 >
