@@ -404,6 +404,11 @@
 >## *[[ :THESE PEOPLE ARE TERRIFIED OF YOU & YOUR SPIRITUAL GIFTS 👀🧿NOW TRYING TO BLIND YOU FROM THE TRUTH 🙄: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/sduAwvlsdZw> ^ }:
+>
+>## :[[ :☥NHER☥TΔNCE: ]]:= [[ :ΔRTH: ]]
+
+![:CASE-ID-0x6f29aa55-61dd67ff.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-61dd67ff.png)
+![:CASE-ID-0x6f29aa55-ed66ca2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed66ca2f.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
