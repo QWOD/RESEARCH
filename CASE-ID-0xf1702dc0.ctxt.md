@@ -383,9 +383,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :China's Exports to the US Is Done, A New Nemesis Looming! Mexico, Vietnam, and India Are Rising: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/dLRT5HmNM2s> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
