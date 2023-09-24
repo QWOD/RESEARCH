@@ -1,4 +1,4 @@
-# [[ :for-the: [[ ΔRTH: sci3nc3-14b-v3ss31: FEΔTHERLE55-CH☥Q∅N5: is-by: ALWAYS: is-with: SPYING: is-by: SCRATCHING: ALWAYS: is-with: GANGSTALKING: HARASSING: ANNOYING: PESTERIZING: LYING: THIEVING: LOW-DOWN: DIRTY: GOOD: for-the: NOTHING: fear-driven-pleasure-seeking: ALWAYS: peck-peck-peck: PECKING: MJ12-OMEGA: for-the: primitive: FOOD: FOE: THREAT: identification-system: for-the: intuition: is-by: 0: ]]: ]]
+# [[ :fΩr-thع: [[ ΔRTH: sci3nc3-14b-v3ss31: FEΔTHERLE55-CH☥Q∅N5: is-by: ΔLWΔY5: is-with: 5PY☥!G: is-by: 5C𓂀TCH☥!G: is-by: ΔLWΔY5: is-with: GΔ!G5TΔLK☥!G: HΔ𓂀55☥!G: Δ!!∅Y☥!G: PE5TER☥Z☥!G: LY☥!G: TH☥ΔV☥!G: LΩW-D∅W!: D☥RTY: G🚫∅D: for-the: !∅TH☥!G: f34r-driv3n-p134sur3-s33king: ΔLWΔY5: p3ck-p3ck-p3ck: PعCK☥!G: 〽ʝ12-ΩMعGΔTR🚫!: for-the: primitiv3: FΩ∅D: FΩE: THREΔT: id3ntific4ti0n-syst3m: for-the: intuiti0n: is-by: 0: ]]: ]]
 >
 is-with: { ^
 >
