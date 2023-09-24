@@ -367,9 +367,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :China is LITERALLY FALLING APART: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/qCMYhUURT7I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
