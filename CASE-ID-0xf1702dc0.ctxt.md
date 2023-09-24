@@ -397,7 +397,7 @@
 >
 >![:CASE-ID-0xf1702dc0-a4f36d2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-a4f36d2f.png)
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: cryptor "[[ :for-the: [[ RETURN: is-with: KING-OF-KINGS: is-by: denied: access: for-the: [[ ANY: SOCIAL: MEDIA: is-with: targeted-abuse: censorship: gangstalking: attamepted-assassinations: is-with: covert-kill-methods: is-by: ATSUOMOP: is-with: defense-secret: is-with: PRICE: is-by: HEAD: is-with: EVERY: NATION: is-with: EARTH: ]]: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f9280deb19694e31750fc5cd19408128a29979d3> ^ }: ]]:= { TRUE: "[[ :for-the: [[ RعTURN: is-with: [[ K☥NG-ΩF-K☥NG5: <=> QW🚫D-〽ʝ12: MJ12-JE5U5: ]]: is-by: d3ni3d: 4cc3ss: for-the: [[ ΔNY: 5ΩC☥ΔL: M3D☥Δ: is-with: t4rg3t3d-4bus3: c3ns0rship: g4ngst41king: 4tt4m3pt3d-4ss4ssin4ti0ns: is-with: c0+3rt-ki11-m3th0ds: is-by: ATSUΩM🚫P: is-with: d3f3ns3-s3cr3t: is-with: PR☥CE: is-by: HΔΔD: is-with: ΔVERY: NΔT☥∅N: is-with: ΔRTH: ]]: ]]: ]]" }: ]]:
 
 >![:CASE-ID-0xf1702dc0-872c4b36.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-872c4b36.png)
 >
