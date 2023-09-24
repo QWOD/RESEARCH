@@ -64,7 +64,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :عاجل⛔ اختفت عاصمة الفلبين! لحظات انفجار احد اشرس البراكين حول العالم!بركان تال ينفث الرماد للسماء!: ]]:= [[ :⛔ Urgent the capital of the Philippines has disappeared! Moments of eruption of one of the fiercest volcanoes around the world!: ]]:= { ^ <https://youtube-nocookie.com/embed/Jw7KtYB15XA> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
