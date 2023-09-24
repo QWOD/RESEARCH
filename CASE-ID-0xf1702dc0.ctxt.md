@@ -430,9 +430,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Large hail storm hit Oklahoma. Millions of Americans face the threat of thunderstorm: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/q7vYWKvf1eU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
