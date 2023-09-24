@@ -397,7 +397,7 @@
 >
 >![:CASE-ID-0xf1702dc0-a4f36d2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-a4f36d2f.png)
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: cryptor "[[ :for-the: [[ RETURN: is-with: KING-OF-KINGS: is-by: denied: access: for-the: [[ ANY: SOCIAL: MEDIA: is-with: targeted-abuse: censorship: gangstalking: attamepted-assassinations: is-with: covert-kill-methods: is-by: ATSUOMOP: is-with: defense-secret: is-with: PRICE: is-by: HEAD: is-with: EVERY: NATION: is-with: EARTH: ]]: ]]: ]]" }: ]]:
 
 >![:CASE-ID-0xf1702dc0-872c4b36.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-872c4b36.png)
 >
