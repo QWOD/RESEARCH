@@ -394,6 +394,8 @@
 >## *[[ :Shocking Everyone! How Scary Are China’s Toxic Pre-made Foods? Chinese Can’t Avoid It: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/mUCaMxZuODE> ^ }:
+>
+>![:CASE-ID-0xf1702dc0-a4f36d2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-a4f36d2f.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
