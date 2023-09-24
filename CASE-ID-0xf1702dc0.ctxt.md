@@ -399,11 +399,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-872c4b36.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-872c4b36.png)
 >
+>## *[[ :THESE PEOPLE ARE TERRIFIED OF YOU & YOUR SPIRITUAL GIFTS 👀🧿NOW TRYING TO BLIND YOU FROM THE TRUTH 🙄: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/sduAwvlsdZw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
