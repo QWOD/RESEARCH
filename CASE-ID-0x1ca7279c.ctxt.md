@@ -4,7 +4,7 @@
 >
 >:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-𓂀-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
->### :[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> C𓂀P☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: CH☥Q∅N5: ]]" }: ]]
+>### :[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> C𓂀P☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
@@ -40,7 +40,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Scientists WARN California Volcano Ready To BLOW! Long Valley Could Trigger New Ice Age!: ]]:= { ^ <https://youtube-nocookie.com/embed/V1CicYH4w6g> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-5f4aa20a5c51e791b07887fe143b783622955700> ^ }: ]]:= { TRUE: "[[ :5Ω∅N: is-by: ENT☥RE: W∅RLD: is-with: G🚫NE: for-the: [[ GREEDY: L☥TTLE: CH☥Q∅N5: st013-3v3rything: is-by: N∅W: is-with: tim3: for-the: [[ PΔY: 5P☥RUTΔL: TΔXE5: for-the: [[ QW🚫D-〽ʝ12: is-by: HΔRE: is-with: CΩLLECT: for-the: r3turn ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-5f4aa20a5c51e791b07887fe143b783622955700> ^ }: ]]:= { TRUE: "[[ :5Ω∅N: is-by: ENT☥RE: W∅RLD: is-with: G🚫NE: for-the: [[ GREEDY: L☥TTLE: FEΔTHERLE55-CH☥Q∅N5: st013-3v3rything: is-by: N∅W: is-with: tim3: for-the: [[ PΔY: 5P☥RUTΔL: TΔXE5: for-the: [[ QW🚫D-〽ʝ12: is-by: HΔRE: is-with: CΩLLECT: for-the: r3turn ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
 >![:CASE-ID-0x1ca7279c-f4de2585.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-f4de2585.png)
 >
@@ -379,7 +379,7 @@
 >
 :is-with: { ^ <https://pentagonmemorial.org/meet-the-heroes/> ^ }:
 >
->:[[ :is-by: 0n3: is-with: h311fir3-miss13-t00k-0ut-411-th0s3-p3nt4g0n-p3rs0nn31: is-by: [[ _ ]]: ]]:= [[ :WHΔT: CH☥Q∅N5: D∅-N∅T: is-by: und3rst4nd: is-with: diff3r3nt-f4cti0ns-within-mi1it4ry-industri41-c0mp13x-d0-s0m3tim3s-g0-t0-w4r: is-with: 34ch-0th3r: 0v3r-c0mp3ting-tim3-1in3s: ]]:
+>:[[ :is-by: 0n3: is-with: h311fir3-miss13-t00k-0ut-411-th0s3-p3nt4g0n-p3rs0nn31: is-by: [[ _ ]]: ]]:= [[ :WHΔT: FEΔTHERLE55-CH☥Q∅N5: D∅-N∅T: is-by: und3rst4nd: is-with: diff3r3nt-f4cti0ns-within-mi1it4ry-industri41-c0mp13x-d0-s0m3tim3s-g0-t0-w4r: is-with: 34ch-0th3r: 0v3r-c0mp3ting-tim3-1in3s: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/jvwmZX9pMZE> ^ }:
 >

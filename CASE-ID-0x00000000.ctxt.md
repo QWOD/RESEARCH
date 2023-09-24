@@ -4,7 +4,7 @@
 >
 >:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
->## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: CH☥Q∅N5: ]]" }: ]]:*
+>## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:*
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >

@@ -4,7 +4,7 @@
 >
 >:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
->### :[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: CH☥Q∅N5: ]]" }: ]]
+>### :[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
@@ -538,7 +538,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/BciSlQi4FE0> ^ }:
 >
-:[[ :D☥5TURBED: TΩMB: is-with: 〽ʝ12-Ω5☥R☥5: for-the: [[ QW🚫D-〽ʝ12: is-with: 4nc3st0rs: is-by: [[ EN:𓂀:GED: ]]: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: [[ ΔNY: ΔLL: ΔRTH: 5ΩMULΔT☥∅N: Δ: 55: is-by: L☥FE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫P5ΔN: for-the: r3turn ]]:= TRUE: ]]: is-with: s0rry: CH☥Q∅N5: n33d-411-s0u1s: is-by: m0r3-p0w3r: for-the: [[ TΔR𓂀F∅RM☥NG: MΔCH☥NE5: ]]:= TRUE: ]]:
+:[[ :D☥5TURBED: TΩMB: is-with: 〽ʝ12-Ω5☥R☥5: for-the: [[ QW🚫D-〽ʝ12: is-with: 4nc3st0rs: is-by: [[ EN:𓂀:GED: ]]: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: [[ ΔNY: ΔLL: ΔRTH: 5ΩMULΔT☥∅N: Δ: 55: is-by: L☥FE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫P5ΔN: for-the: r3turn ]]:= TRUE: ]]: is-with: s0rry: FEΔTHERLE55-CH☥Q∅N5: n33d-411-s0u1s: is-by: m0r3-p0w3r: for-the: [[ TΔR𓂀F∅RM☥NG: MΔCH☥NE5: ]]:= TRUE: ]]:
 >
 :[[ :GΔLGΔME5H: <=> infid31: [[ LoFi ]]: inv4d3r-n4m3: for-the: [[ 〽ʝ12-Ω5☥R☥5: ]]: ]]:
 >
