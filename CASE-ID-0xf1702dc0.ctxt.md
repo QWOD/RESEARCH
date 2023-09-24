@@ -68,7 +68,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Germany now! All roads are blocked in Berlin! A million liters of water on the streets!: ]]:= { ^ <https://youtube-nocookie.com/embed/vhLtjeQEGss> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :CHOSEN ONE!!🍒MSG FOR AN EXTREMELY ADVANCED OLD SOUL ABOUT TO RECEIVE THE LIGHTWORKERS BOUNTY🧞‍♀️🔮: ]]:= { ^ <https://youtube-nocookie.com/embed/7nnYEDgXHJc> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -414,17 +414,17 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Presidential motorcade stopped by tornado in Italy! Tornado in Borgoricco: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/uQ6PdGq3JB8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Germany now! All roads are blocked in Berlin! A million liters of water on the streets!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/vhLtjeQEGss> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
