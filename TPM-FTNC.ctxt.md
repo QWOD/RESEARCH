@@ -1,18 +1,12 @@
 # :[[ :{ ^ tpm-ftnc.mj12.agency ^ }: ]]
 
-### :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: 1s-by: 42: for-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]
+## :[[ :💀: { ^ recon.mj12.agency ^ }: ]]:= [[ :👻: SpeciΔl-CΩuncil: 1s-by: 42: for-the: 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: ]]
 >>>
-###
->>>
-# :[[ :RESEARCH: FUNDING: ]]
+## :[[ :RESEARCH: FUNDING: ]]
 >>>
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >>>
-###
->>>
 ### :[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]
->>>
-###
 >>>
 ## :[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >>>
