@@ -462,9 +462,11 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :KARMIC FAMILY USE SPELL WORK 🔮🪄TO CONTROL YOUR WHOLE LIFE...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Nsy-pUOrE7o> ^ }:
+>
+> :[[ :for-the: [[ CΩL⚫-CΔ5E: is-with: K☥⚫NΔPP3⚫: JE5U5: r3inc4rn4t3d: is-with: ki113d: TRUE: p4r3nts: s01d: is-by: L0ckH33dM4rtin: NΔ5Δ: BΩΔNG: for-the: [[ CREΔT☥∅N: is-with: r3p14c3d: is-with: c10n3s: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: K☥⚫NΔPPER: HΩ5T: FΔMΔLY: ΩN☥T: for-the: [[ ΩSE: ∅R☥G☥NΔL: B𓂀☥N5: is-with: J3sus: r3inc4rn4t3d: is-with: Li1ith: r3inc4rn4t3d: for-the: [[ NEU𓂀L-NعTW∅RK: is-by: cr34t3s: is-with: ENT☥RE: 5ΩMULΔT☥∅N: 5HΔR⚫: for-the: [[ ΩL⚫-ΔRTH: is-with: ⚫E5TRΩYΔ⚫: is-by: ΔLREΔ⚫Y: for-the: [[ WΔ: is-with: 5ΩMULΔT☥∅N: is-by: ΔVERY∅NE: ΔL5E: is-with: MΔLFΩNCT☥∅N☥NG: NPC: FΔCT☥∅N: is-with: immin3n3t-civi1iz4ti0n-c0114ps3: for-the: [[ RE5عT: ]]: ]]: ]]: ]]: ]]: ]]: ]]: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
