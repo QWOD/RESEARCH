@@ -78,9 +78,9 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Mission complete..U carry a heavy crown, that is seen brighter now..cant be denied.. Grade A++: ]]:= { ^ <https://youtube-nocookie.com/embed/3U95aY8ZXyc> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { CHECKPOINT: "[[ :And the third angel poured out his vial upon the rivers and fountains of waters; and they became blood.: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :🔴Deadly Floods Keep Slamming Spain!🔴Anvil Fire Burns in Oregon! /Disasters On September 14-17, 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/wlgwtsJrlJs> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
