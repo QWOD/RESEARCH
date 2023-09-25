@@ -488,9 +488,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :A few minutes ago in USA! Worst hailstorm - Golf Ball Size - destroyed thousands of cars in Texas!!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RMfajQqo1WA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
