@@ -454,9 +454,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :السعودية الآن🔴 طوفانات وعواصف كالجبال تفاجئ الناس! كل مياه العالم تضرب مكة والمدينة وعسير مباشر: ]]:= [[ :Saudi Arabia is now🔴 floods and storms like mountains that surprise people! All the waters of the world hit Mecca, Medina and Asir directly: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Bhx0C_Xnys0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
