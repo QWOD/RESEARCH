@@ -480,9 +480,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Moments of thunderstorms that explode in the skies of Saudi Arabia alert Al-Baha and Asir: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/8rkcJYUovz0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
