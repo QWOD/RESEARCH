@@ -472,9 +472,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :A catastrophe😨 that shook the whole earth! Moments of eruption of a huge volcano in America and the volcano of Iceland - ash reached 14 km🔴: ]]:= [[ :كارثة😨 اهتزت الارض كلها! لحظات انفجار بركان ضخم في امريكا وبركان ايسلندا- الرماد وصل 14 كيلو متر🔴: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0rGXZWbakK8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
