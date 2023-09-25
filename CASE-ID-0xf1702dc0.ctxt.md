@@ -446,9 +446,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :The San Andreas Crack Is About To Cause The Biggest Tsunami In History: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/_6ZX_M1EpgA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
