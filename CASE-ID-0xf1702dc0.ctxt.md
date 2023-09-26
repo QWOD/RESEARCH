@@ -559,9 +559,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :2 minutes ago! Terrifying events have engulfed the coast of New Jersey! Footage shocked the world!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/nUKMr1YRW-s> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
