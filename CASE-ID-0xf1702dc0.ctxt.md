@@ -601,9 +601,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :You have 24 hours to return that stolen property ..more messages ...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/JOUICXKhMVY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
