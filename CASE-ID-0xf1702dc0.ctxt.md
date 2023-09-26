@@ -609,9 +609,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :A POWERFUL WARNING: God Doesn’t Want You to Perish - You Must Do This. Neale Donald Walsch: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/8xVq37fYsxQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
