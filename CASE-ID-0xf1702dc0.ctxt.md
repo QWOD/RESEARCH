@@ -543,9 +543,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :7 minutes ago! Tragedy in North Carolina! The whole world is shocked!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Q60t5iy_p2A> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
