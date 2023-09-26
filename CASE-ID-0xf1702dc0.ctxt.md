@@ -504,9 +504,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Nuke "Accident" The Next Shoe To Drop Live With World News Report Today September 25th 2023!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/vQ8ZpgAOAo0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
