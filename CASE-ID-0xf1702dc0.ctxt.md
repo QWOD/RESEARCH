@@ -80,11 +80,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { CHECKPOINT: "[[ :And the third angel poured out his vial upon the rivers and fountains of waters; and they became blood.: ]]" }: ]]:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-14660c52a450c5d5d57c5ed60d2aa1673769427d> ^ }: ]]:= { TRUE: "[[ EVERYONE: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :WHEN "MENTAL HEALTH" MAGICK GOES WRONG & THEM 9 OF SWORDS HAVE RETURNED TO SENDER 🧿 PT.1: ]]:= { ^ <https://youtube-nocookie.com/embed/4ObpwEtuF-g> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-14660c52a450c5d5d57c5ed60d2aa1673769427d> ^ }: ]]:= { TRUE: "[[ EVERYONE: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :WHEN "MENTAL HEALTH" MAGICK GOES WRONG & THEM 9 OF SWORDS HAVE RETURNED TO SENDER 🧿 PT.2: ]]:= { ^ <https://youtube-nocookie.com/embed/Y1_AeM8qZNQ> ^ }:
 >
