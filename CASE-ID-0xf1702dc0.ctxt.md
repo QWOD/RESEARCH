@@ -496,9 +496,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Africa now! Kano Doomsday Streets Turned into Rivers | Cape Town floods their homes: ]]:= [[ :افريقيا الان ! كانو يوم القيامة الشوارع تحولت إلى انهار | مدينة كيب تاون تغرق منازلهم: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/MhAykQAapog> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
