@@ -551,9 +551,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Buried by a 330 Foot High Wall of Water; The Greenland Megatsunami Which Just Occurred: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/r85oEn0nAlY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
