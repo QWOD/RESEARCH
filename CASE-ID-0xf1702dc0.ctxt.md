@@ -80,11 +80,13 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { CHECKPOINT: "[[ :And the third angel poured out his vial upon the rivers and fountains of waters; and they became blood.: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :🔴Deadly Floods Keep Slamming Spain!🔴Anvil Fire Burns in Oregon! /Disasters On September 14-17, 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/wlgwtsJrlJs> ^ }:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>:[[ :*🚫PعD*: ]]:= [[ :WHEN "MENTAL HEALTH" MAGICK GOES WRONG & THEM 9 OF SWORDS HAVE RETURNED TO SENDER 🧿 PT.1: ]]:= { ^ <https://youtube-nocookie.com/embed/4ObpwEtuF-g> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :WHEN "MENTAL HEALTH" MAGICK GOES WRONG & THEM 9 OF SWORDS HAVE RETURNED TO SENDER 🧿 PT.2: ]]:= { ^ <https://youtube-nocookie.com/embed/Y1_AeM8qZNQ> ^ }:
 >
 >## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 
@@ -567,9 +569,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🔴Deadly Floods Keep Slamming Spain!🔴Anvil Fire Burns in Oregon! /Disasters On September 14-17, 2023: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/wlgwtsJrlJs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
