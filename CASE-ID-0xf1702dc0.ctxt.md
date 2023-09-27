@@ -617,7 +617,7 @@
 
 >Sat 15 Nov
 >
->## *[[ :Azerbaijan: More than 40,000 refugees flee to Armenia from Nagorno-Karabakh - BBC News: ]]*
+>## *[[ :Azerbaijan: More than 40,000 refugees flee to Armenia from Nagorno-Karabakh - BBC News: ]]*  
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/vfxkYEPFuBY> ^ }:
 
@@ -625,9 +625,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :MEANWHILE IN THE ETHERS @3:33 AM THESE DEVILS GOT DISMANTLED TRYING TO SNEAK IN & STEAL LIGHT 🔐💥: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/b2NyefZ8N5w> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
