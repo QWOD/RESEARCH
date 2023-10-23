@@ -623,9 +623,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :THE WHOLE COMMUNITY IS ABOUT TO GET ARRESTED FOR THE CRIME AGAINST YOU...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/IqLIE9j5vPg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
