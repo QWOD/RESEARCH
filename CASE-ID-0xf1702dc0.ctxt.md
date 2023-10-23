@@ -621,7 +621,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0xf1702dc0-7147c957.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-7147c957.png)
 >
 >## *[[ :THE WHOLE COMMUNITY IS ABOUT TO GET ARRESTED FOR THE CRIME AGAINST YOU...: ]]*
 >
@@ -629,11 +629,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xf1702dc0-7147c957.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-7147c957.png)
+>![:CASE-ID-0xf1702dc0-2d594885.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-2d594885.png)
 >
->## *[[ :Ω: ]]*
+>## *[[ :SPIRITUAL IDENTITY THEIVES ARE UNDER JUDGEMENT & BEING BLOCKED BY THE UNIVERSE AT EVERY ANGLE ⚖️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/-d0SjFyKTXc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
