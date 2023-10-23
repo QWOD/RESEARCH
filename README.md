@@ -2,7 +2,7 @@
 >
 >### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
 >
->:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+>:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSΩSSDEV-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >>>
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 >>>
@@ -17,11 +17,11 @@
 ## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE
 
 ![Rعي:ΔRC](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
->:is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSUΩMΩP: SECRΔT: is-by: TRUE: ]]:
+>:is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSΩSSDEV: SECRΔT: is-by: TRUE: ]]:
 >
 ###
 
-## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ATSUΩMΩP-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]
+## :FΩr-thع: [[ CrΔp☥Δx™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]
 
 ###
 

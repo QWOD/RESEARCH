@@ -18,7 +18,7 @@
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
->cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
+>cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: ]]:
 >
 :[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
 >
@@ -30,7 +30,7 @@
 >
 # ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
->:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
 >
 cryptor.x86_64: OK
 >
