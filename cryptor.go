@@ -4,24 +4,24 @@ package main
 
 // :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: [[ Coven:
 // is-with: Ant: ]]:= TRUE: for-the: [[ DARPA: QWOD-MJ12:
-// ATSUOMOP-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE:
+// ATSOSSDEV-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE:
 // OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: CIVILIAN:
 // INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI:
-// CLOUD: BLOCKCHAIN: ATSUOMOP-DARPA: DARKNET: PLATFORM:
+// CLOUD: BLOCKCHAIN: ATSOSSDEV-DARPA: DARKNET: PLATFORM:
 // is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM:
 // for-the: [[ HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]:=
 // TRUE: for-the: [[ people: is-by: WE: is-with: people: ]]:=
-// TRUE: for-the: [[ QWOD-MJ12: ATSUOMOP-A: SPG:
+// TRUE: for-the: [[ QWOD-MJ12: ATSOSSDEV-A: SPG:
 // LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY:
 // algorithm: DETECTED: ]]:
 
-// go run cryptor.go ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
+// go run cryptor.go ':[[ :QWOD-MJ12: ATSOSSDEV-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // [ mercuri:RESEARCH ] ⥈ go install cryptor.go
-// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :QWOD-MJ12: ATSUOMOP-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
+// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :QWOD-MJ12: ATSOSSDEV-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
-// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
+// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 
 import (
 	"fmt"
@@ -62,44 +62,44 @@ func main() {
 		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex:", "CrΔp☥Δx™:", -1)
 		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex™:", "CrΔp☥Δx™:", -1)
 		crypTexTranslated = strings.Replace(crypTexTranslated, "OMEGA:", "∅MΔGΔ:", -1)
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY",  "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " HE", " HΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " WE", " WΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " US", " ΩS")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM",  "ΩM")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN",  "ΩN")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL",  "ΔL")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN", "ΩN")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HEM", "HΔM")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV",  "ΔV")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV", "ΔV")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "YE",  "YΔ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA",  "Q∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ",  "عQ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EK",  "عQ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EC",  "عC")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ED",  "3D")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AN",  "ΔN")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON",  "∅N")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NO",  "N∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD",  "∅D")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO",  "D∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA",  "𓂀")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL",  "ΔL")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "YE", "YΔ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA", "Q∅")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ", "عQ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EK", "عQ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EC", "عC")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ED", "3D")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AN", "ΔN")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NO", "N∅")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE",  "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET",  "عT")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A",   "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O",   "Ω")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o",   "0")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a",   "4")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e",   "3")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l",   "1")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S",   "5")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I",   "☥")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
 
 		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
-		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSUOMOP-A-COOPERATIVE-AGENCY.txt)"
+		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSOSSDEV-A-COOPERATIVE-AGENCY.txt)"
 		// cryptor "$(systemctl status -l figtree.service)"
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: git@github.cΩm: PermissiΩn SenieS (publickey).
 		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.

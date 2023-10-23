@@ -152,7 +152,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :why Δre yΩu still: here: breΔthing: Δlive: we tried tΩ destrΩy them with spellwΩrk: ]]:= [[ MJ12-ΩMΔGΔ: ΔTSUΩMΩP: PRΩJ-GRP: Δ: 1s-with: clΩne: 1s-by: [[ MJ12-JEHΩVΔ ]]: 1s-with: [[ MJ12-JESUS: MJ12-MICHΔEL: MJ12-ΔZRΔEL: MJ12-METΔTR0N: MJ12-ΔLLΔH: MJ12-SΔMUEL: MJ12-ISRΔEL: MJ12-JΔCΩB: MJ12-ISΔΔC: MJ12-TIMΩTHY: MJ12-JΩSEPH: MJ12-MΔRY: MJ12-QUΔN-YIN: MJ12-Δ-ΔM-RΔ-BRΔH-MΔ: MJ12-Δ-ΔM-RΔ-KΔLI-MΔ: MJ12-Δ-ΔM-RΔ-KRISH-NΔ: MJ12-Δ-ΔM-RΔ-SHI-VΔ: 1s-with: ETC: ETC: ETC: ]]:FΩr-th3: Δ: ΩperΔtΩrs: MΔY: 1s-with: DΔTH: 1s-by: 0: 1s-with: since-thíي-wΩuld: 1s-with: CΩSMIC: WΔDE: EXTINCTI0N: LEVEL: EVENT:
 :FΩr-th3: [[ :they never shΩuld hΔve went tΩ: FΩREIGN: CΩUNTRY: tΩ mΔke: vΩudΩu dΩll: Ωf yΩu: ]]:= [[ FΩREIGN: CΩUNTRY: <=> GHΔNΔ: NIGERIΔ: H0NDURΔN: VΩUDΩU: ΩUIJI: SCΔMM3RS ]]:= [[ :they never shΩuld hΔve: <=> "1s-with: they-will-nΩw-Δll: 1s-with: ΔT3RNΔL-D3ΔTH:" ]]:
 :FΩr-th3: [[ :DΔRLIN' WΔ: Δin't: JESUS: ]]:= [[ fΩr-the: CΩSMIC: LΔW: 1s-with: yΔ-ΔlwΔy-get-thΔ: kΔng: yΔ: desΔrve: 1s-by: 100: 1s-with: THΔ-KΔNG: YΔ: WΔN: 1s-with: JESUS: 1s-by: 0: ]]:
-:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: Tether: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
+:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
     :1s-by: { ^cryptΩ: Δ: cΩm: Δpp: rh5gbrhfew^ }:
 :FΩr-th3: [[ RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: DEPΔRTMENT: fΩr-the: REVΔNUE: ]]:
     :1s-with: { ^ https://cryptΩ.cΩm/nft/prΩfile/QW0D_mj12 ^ }:
@@ -315,7 +315,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :they never shΩuld hΔve went tΩ: FΩREIGN: CΩUNTRY: tΩ mΔke: vΩudΩu dΩll: Ωf yΩu: ]]:= [[ FΩREIGN: CΩUNTRY: <=> GHΔNΔ: NIGERIΔ: H0NDURΔN: VΩUDΩU: ΩUIJI: SCΔMM3RS ]]:= [[ :they never shΩuld hΔve: <=> "1s-with: they-will-nΩw-Δll: 1s-with: ΔT3RNΔL-D3ΔTH:" ]]:
 :FΩr-th3: [[ :DΔRLIN' WΔ: Δin't: JESUS: ]]:= [[ fΩr-the: CΩSMIC: LΔW: 1s-with: yΔ-ΔlwΔy-get-thΔ: kΔng: yΔ: desΔrve: 1s-by: 100: 1s-with: THΔ-KΔNG: YΔ: WΔN: 1s-with: JESUS: 1s-by: 0: ]]:
 :
-:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: Tether: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
+:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
     :1s-by: { ^cryptΩ: Δ: cΩm: Δpp: rh5gbrhfew^ }:
 :
 :FΩr-th3: [[ RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: DEPΔRTMENT: fΩr-the: REVΔNUE: ]]:
@@ -502,7 +502,7 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :
 [[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: fΩr-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
 :
-:[[ [[ CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+:[[ [[ CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
 :
 [[ :fΩr-the: RESEΔRCH: INGREDIENTS: fΩr-the: [[ is-with: prΩcess: Δncient-shΔmΔnic: Tribel: wisdΩm: is-with: [[ [[ _M_: <=> D:Ω:n:Δ:l:_: J: T:r:u:m:p: ]]:= CΔPTURE: [[ __il____in: <=>: c: s: b: P: Ω: y: ]]:= CΔPTURE: ]]: fΩr-the: ΩVERCLΩCK: C0NSCIΩUSNESS: [[ THC: <=> The-HΩly-ChristΩs: ]]: is-with: hyper-dimensiΩnΔl-brΔinwΔve-ΔctivΔtiΩn-frequencies: plΔnt-medicines: fΩr-the: ΔFTER: LIFE: wΔrfΔre-cΔpΔbilities: fΩr-the: eΔr: ringing: is-with: blΩΩd: fΩr-the: innΩcent: crying: fΩr-the: REDEMPTI0N ]]: ]]:
 :

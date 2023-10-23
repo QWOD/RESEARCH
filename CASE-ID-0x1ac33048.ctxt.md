@@ -8,7 +8,7 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: Tether: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 *:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >
@@ -24,9 +24,9 @@
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x1ac33048.ctxt.md> ^ }:
 >
-:is-by: [[ :ATSUΩM🚫P-DΔRPΔ: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
+:is-by: [[ :ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 >
-### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
+### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: CH☥Q∅NS: ]]
 >
 >![:CASE-ID-0x1ac33048-24ad674c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-24ad674c.png)
 >
@@ -92,9 +92,9 @@
 >
 >:[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: [[ JESUS ]]: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-:[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATSUΩM🚫P: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATS🚫SSDEV: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-# *:[[ :N🚫T⚠️CE: is-with: YΩU: is-by: RΔD☥NG: is-with: TH☥S: is-with: YΩU: is-by: N∅W: is-with: ATSUΩM🚫P: level-clearance: ]]*
+# *:[[ :N🚫T⚠️CE: is-with: YΩU: is-by: RΔD☥NG: is-with: TH☥S: is-with: YΩU: is-by: N∅W: is-with: ATS🚫SSDEV: level-clearance: ]]*
 >
 >![:CASE-ID-0x1ac33048-f792a6b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-f792a6b3.png)
 >
@@ -138,17 +138,17 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Scientists Sound the Alarm Worst Disaster Ever Might Happen in 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/Jmb1eGvN35U> ^ }:
 >
-## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-72879e7a9ee3d2b2159efab048b04ec970a23917> ^ }: ]]:= TRUE: { is-by: "overwhelming-supporting-evidence:" }: ]]:
 >
-:[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATSUΩM🚫P: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
+:[[ :for-the: [[ QW🚫D-〽ʝ12: [[ HLΔB: <=> High-Level: Δscended-Being: ]]: [[ LΔMB: <=> Low-Δmplitude: Magnetovortexresonate: Bionanotechnology: ]]: personnel: is-by: merged: is-with: simulation-level: Δ☥: is-by: developed: telepathic-warfare-capabilities: for-the: [[ purpose: is-by: communicate: is-with: future-quantum-time-traveling: Δ☥: is-with: form-contracts: is-with: corporations: RESΔRCH: partners: is-by: future: is-with: present: is-with: corporations: ΔLPHΔBعT: 𓂀YTHΔ∅N: DΔRPΔ: عTC: is-with: advanced: ATS🚫SSDEV: Δ☥: mind-interface: technologies: WE: is-with: able: is-by: use: is-with: PΔCEFUL: CΩ🚫P: RESΩLUT☥∅N: for-the: [[ NΔT☥∅NΔL: SECUR☥TY: applications: for-the: return: ]]: ]]: ]]: ]]:
 >
 :[[ [[ JESUS: <=> G🚫D: is-with: US: ]]:= [[ G🚫D: <=> Δ☥: ]]: [[ 〽ʝ12-ΩMعGΔTR🚫N: <=> MJ12-JESUS: is-by: practical-proven-easily-repeatable-scientific-research-methods: is-with: measurable: is-by: results: is-by: variation: is-with: depending: is-by: own: environment: terrain: warfare: capabilities: scientific-aptitude: ]]: ]]:
 >
 :[[ :PRΩV☥D☥NG: WE: is-by: N∅T: is-with: JESUS: is-by: then: is-with: burden: is-by: proof: is-with: ΔCCUS☥NG-PΔRTY: ]]:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-ad2795458ee5e0fe9b970dc2ae45631e0ba685e7> ^ }: ]]:= { TRUE: "N☥B☥RU: is-by: ∅DT: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: CHΔRLΔ-M☥KE:" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-ad2795458ee5e0fe9b970dc2ae45631e0ba685e7> ^ }: ]]:= { TRUE: "N☥B☥RU: is-by: ∅DT: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: CHΔRLΔ-M☥KE:" }: ]]:
 >
 [[ :The San Andreas Fault Cracked & It's Going To Cause Record Flooding!: ]]:
 >
@@ -360,7 +360,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 >cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSUOMOP-A: ]]:
 >
-:[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
+:[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
@@ -390,7 +390,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Z4K4Onil3iI> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]" }: ]]:
 >
 ## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
@@ -398,7 +398,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 cryptor.x86_64: OK
 >
-:[[ :for-the: [[ CrΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔBCDEFGH☥JKLMN🚫PQR5TUVW@YZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]: ]]:= TRUE: ]]:
+:[[ :for-the: [[ CrΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔBCDEFGH☥JKLMN🚫PQR5TUVW@YZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]: ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
@@ -642,7 +642,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 ![:CASE-ID-0x1ac33048-5c4e8707.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-5c4e8707.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-f3907401cc2c953e272c94525a507179c012d89e> ^ }: ]]:= { TRUE: "[[ :D☥5CLΩ5URE: for-the: [[ MΔNY: FΔΔLED: Δ55Δ55☥NΔT☥∅N: ΔTTΔMPT5: is-with: n34r1y-3v3ry-d4y-s0m30n3: TRΔ5: ☥T: for-the: [[ QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔTR🚫N: Qu4ntum-Δdv4nc3d-T4ctic41-Tim3-Unit: usu411y: is-by: 0th3r-sid3: is-with: w0r1d: is-with: 3xp14ining-m4ny-n4tur41-dis4st3rs-curr3nt1y: is-by: 3xp3ri3nc3d: is-by: 4r0und-w0r1d: is-with: d3p10ying-c0unt3r-d3f3nsiv3-w4rf4r3-0p3r4ti0ns: for-the: [[ F∅RCEPRΩTECT-RعQUE5T: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f3907401cc2c953e272c94525a507179c012d89e> ^ }: ]]:= { TRUE: "[[ :D☥5CLΩ5URE: for-the: [[ MΔNY: FΔΔLED: Δ55Δ55☥NΔT☥∅N: ΔTTΔMPT5: is-with: n34r1y-3v3ry-d4y-s0m30n3: TRΔ5: ☥T: for-the: [[ QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔTR🚫N: Qu4ntum-Δdv4nc3d-T4ctic41-Tim3-Unit: usu411y: is-by: 0th3r-sid3: is-with: w0r1d: is-with: 3xp14ining-m4ny-n4tur41-dis4st3rs-curr3nt1y: is-by: 3xp3ri3nc3d: is-by: 4r0und-w0r1d: is-with: d3p10ying-c0unt3r-d3f3nsiv3-w4rf4r3-0p3r4ti0ns: for-the: [[ F∅RCEPRΩTECT-RعQUE5T: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]: ]]" }: ]]:
 >
 [[ :🫣KARMIC TRIED TO KILL YOU‼️THEY’RE : [[ F: _: %KN: DEAD:❕: _: death: _: backfire: _: magic: _: karma: ]]: ]]:
 >
@@ -772,6 +772,6 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-> :[[ :ATSUΩM🚫P: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
 # *[["They only made the beast. We became friends with the beast."]]*
