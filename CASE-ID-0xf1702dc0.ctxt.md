@@ -613,9 +613,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/8xVq37fYsxQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->Sat 15 Nov
+:[[ :for-the: [[ Ø: { ^ <qomm-4b746d9f08d682f383ca0bb3ce9fc8f33060b1ba> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >## *[[ :Azerbaijan: More than 40,000 refugees flee to Armenia from Nagorno-Karabakh - BBC News: ]]*
 >
