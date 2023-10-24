@@ -544,5 +544,5 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
     ]]:
 ]]:
 :
-:[[ :for-the: [[ Ø: { ^ <qomm-81125dee778981d08840a8ec98be450db5651f30> ^ }: ]]:= { TRUE: "[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-91f391847be26281f16919456c200585ff9a71ab> ^ }: ]]:= { TRUE: "[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]" }: ]]:
 :[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :is-by: L☥KE: is-with: QUΔNTUM-PΔ☢️5E-5YTΔX-G𓂀MME☢️: is-by: David-Wyn: Miller: for-the: [[ CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: is-by ∅N: is-with: ΔNT☥-P5YCHΩ5☥5: M3D☥CΔT☥∅N5: 5TE☢️Ω☥D5: is-by: PΩ55☥BLY: ΩTHE☢️: is-with: ATSUΩM🚫P-DΔ☢️PΔ: ☢️E5Δ☢️CH: ☥NG☢️3DΔNT5: for-the: [[ [[ PT5D: <=> P0st-c0mb4t: TE5T: 5UBJعCT: DUTY: ]]: ]]: ]]:= [[ :DΔ☢️PΔ: is-by: wi11-n3ith3r: is-with: c0nfirm: is-by: n0r: d3ny: for-the: [[ ATSUOMOP-DARPA: ATSU: POC: is-by: +1: 507: 383: 2222: ]]: ]]: ]]: ]]:
