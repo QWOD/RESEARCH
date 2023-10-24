@@ -687,9 +687,9 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-b8a83c39.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-b8a83c39.png)
 >
->
->## *[[ :Ω: ]]*
+>## *[[ :NOISE CAMPAINING NEIGHBORS: ]]:= [[ :CΩMM∅N: for-the: [[ CΩVERT: GΔNG5TΔLK☥NG: ΔBU5E: 0rg4niz3d-str33t-t3rr0rism: p4id: is-by: ENEMΔ5: is-with: ☥RΔN: BLΔCK🚫P5: Δ1-Q43d4: D43sh: ]]: ]]*
 >
 >:is-with: { ^ Δ ^ }:
 
