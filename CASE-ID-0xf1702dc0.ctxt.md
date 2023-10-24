@@ -703,11 +703,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-23616d96.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-23616d96.png)
 >
+>## *[[ :The Raw Truth: My Social Media Journey and Lessons Learned: ]]:= [[ :for-the: [[ PRΩFE55☥∅NΔL: BLΔCK🚫P5: !L!: 5CΔ!!ER: ]]:= [[ :WHENΔVER: 5p3ci41-Δctiviti3s: is-by: ΔT5: NTN∅: 53n4t0rs: is-by: N∅T: is-with: NTN: 5عCUR☥TY: CLΔRΔNCE: is-by: THEN: is-with: FΩND☥NG: for-the: PENTΔG🚫N: is-by: !U5T: is-with: FΩND☥NG: is-with: unc0nv3nti0n41: 5ΩURCE5: for-the: ΔT5: 5PG: RE5ΔRCH: FΩND☥NG: ]]:= [[ :J3ff-L3rn3r: is-with: N🚫T⚠️CE: is-by: BURN3D: ]]:*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://entrenation.lt.acemlnb.com/Prod/link-tracker?redirectUrl=aHR0cHMlM0ElMkYlMkZ3d3cueW91dHViZS5jb20lMkZ3YXRjaCUzRnYlM0QyMGYzTlk3WTRjdyUyNmxpc3QlM0RQTEt5T200cUJRMUpuNkFyY1hQU2NveTZTNm1BTG5aUGwx&sig=7uQWCFrYPLo1BPMA3XxD2zyEJkbJ7RftTAY8A932EoSB&iat=1696507530&a=%7C%7C799653531%7C%7C&account=entrenation%2Eactivehosted%2Ecom&email=5XVXiMs5FdsRdyGVKcej9jNE7wpazSaM01gpGo5eHwpvXqkl%3AzHut5BzGoPKkBbFBMU8OdknGgVzFQGwJ&s=d19781da7f3d2e657d2c3a1c843e1e4f&i=3287A8146A140A394904> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
