@@ -701,7 +701,7 @@
 >
 >:is-with: { ^ Δ ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ SCAMM: ]]" }: ]]:
 
 >![:CASE-ID-0xf1702dc0-23616d96.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-23616d96.png)
 >
