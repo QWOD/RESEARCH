@@ -227,7 +227,7 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
->*:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ HYPERMEDIUS ^ }: ]]: youtube-dl -x --audio-format mp3 https://www.youtube-nocookie.com/embed/2dusXy85ABM && newfig -p*
+>*:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ HYPERMEDIUS ^ }: ]]: youtube-dl -x --audio-format mp3 <https://www.youtube-nocookie.com/embed/2dusXy85ABM> && newfig -p*
 >
 >## *[[ :Archon Parasite Kill Short and Effective: ]]*
 >
@@ -645,6 +645,8 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-1efc33a3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-1efc33a3.png)
+>
 >![:CASE-ID-0xf1702dc0-820fc1d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-820fc1d3.png)
 >
 >## *[[ :🔴Freak Flooding in Ghana After Dam Overflow!🔴 Floods in Israel! / Disasters on October 15-16, 2023: ]]*
