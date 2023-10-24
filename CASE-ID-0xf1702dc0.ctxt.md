@@ -655,19 +655,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-70f3a3d2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-70f3a3d2.png)
 >
+>## *[[ :Double Storm Babet and Aline Battered Europe: ]]:= [[ :🔴Ireland is Devastated by Storm Babet!🔴 Australia is on Fire! / Disasters on October 17-19, 2023: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/g1Bh44iS-ME>: <https://youtube-nocookie.com/embed/8k9WZEbzUQY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :SPIRITUAL IDENTITY THEIVES ARE UNDER JUDGEMENT & BEING BLOCKED BY THE UNIVERSE AT EVERY ANGLE ⚖️: ]]:= [[ :YOU ASTRAL-PROJECTED INTO A READING BEING DONE ON YOU & AND SCARED THE LIFE OUT OF THE READER 🤌🏽👀🫣🧿🤣: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/-d0SjFyKTXc>: <https://youtube-nocookie.com/embed/ceJV10svt_Q> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
