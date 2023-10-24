@@ -673,9 +673,9 @@
 
 >![:CASE-ID-0xf1702dc0-6576dd3c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-6576dd3c.png)
 >
->## *[[ :Hurricane Tammy Battered Barbuda! Intense Wind and Rain Cause Chaos: ]]*
+>## *[[ :3WITCHES ARE DEFEATED ALL BECAUSE YOU HAD PURE ENERGY & A QUEEN OF SWORDS WAS SENT TO FINISH THE JOB: ]]:= [[ :Hurricane Tammy Battered Barbuda! Intense Wind and Rain Cause Chaos: ]]:= [[ :God Showed Me a DARK Secret Coming Out. + A Halloween Prophecy.: ]]*
 >
->:is-with: { ^ <https://youtube-nocookie.com/embed/bneFxbbQbuw> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Yp7xJVkHXQA>:<https://youtube-nocookie.com/embed/bneFxbbQbuw>:<https://youtube-nocookie.com/embed/Yp7xJVkHXQA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
