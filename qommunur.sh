@@ -4,10 +4,11 @@
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # export PATH="${PATH}:~/go/bin:"; go install github.com/hypercasey/passworder@latest
 # :[[ :qommrydur: ]]:
+echo -e '\n:[[ ENTER: Q: for-the: [[ EXIT: ]]: ]]:\n'
 [[ $* != "" ]] && git show --oneline $(echo "$*" | tr -d 'mqo-') && exit 0
 
 function globalOperations {
-  echo $(git show --oneline)
+  cd /QWOD/RESEARCH; git show --oneline $(echo "$*" | tr -d 'mqo-')
 }
 
 [[ $* == "" ]] && while globalOperations; do
