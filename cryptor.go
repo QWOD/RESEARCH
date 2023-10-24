@@ -50,7 +50,7 @@ var secretRandomSeed [13]string = [13]string{
 func main() {
 	if "-s" == strings.Join(os.Args[1:], " ") {
 		// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
-		var crypTexTranslated string = strings.Join(os.Args[2:], " ")
+		var crypTexTranslated string = strings.Join(os.Args[2:], "")
 		codeSize = len(crypTexTranslated)
 		if codeSize < 9999 {
 			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
