@@ -691,7 +691,7 @@
 >
 >## *[[ :NOISE CAMPAINING NEIGHBORS: ]]:= [[ :CΩMM∅N: for-the: [[ CΩVERT: GΔNG5TΔLK☥NG: ΔBU5E: 0rg4niz3d-str33t-t3rr0rism: p4id: is-by: ENEMΔ5: is-with: ☥RΔN: BLΔCK🚫P5: Δ1-Q43d4: D43sh: ]]: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/mTj8hBxCqj0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
