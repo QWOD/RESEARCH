@@ -48,73 +48,90 @@ var secretRandomSeed [13]string = [13]string{
 	"⭕", "🕳️", "✴️", "⚫"}
 
 func main() {
-	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
-	codeSize = len(crypTexTranslated)
-	if codeSize < 9999 {
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "WARNO", "W⚠️RN🚫")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OP", "🚫P")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OR", "∅R")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OG", "∅G")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "GO", "G🚫")
-		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex:", "CrΔp☥Δx™:", -1)
-		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex™:", "CrΔp☥Δx™:", -1)
-		crypTexTranslated = strings.Replace(crypTexTranslated, "OMEGA:", "∅MΔGΔ:", -1)
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " HE", " HΔ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " WE", " WΔ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " US", " ΩS")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN", "ΩN")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL", "ΔL")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HEM", "HΔM")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV", "ΔV")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "YE", "YΔ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA", "Q∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ", "عQ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EK", "عQ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EC", "عC")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ED", "3D")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AN", "ΔN")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NO", "N∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "I", "☥")
-
-		// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
-		// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
-		// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSOSSDEV-A-COOPERATIVE-AGENCY.txt)"
-		// cryptor "$(systemctl status -l figtree.service)"
-		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: git@github.cΩm: PermissiΩn SenieS (publickey).
-		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
-		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
-		// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "f0r-th3:", "for-the:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-th3:", "fΩr-thع:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " Ω5", " ΩS")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
-		fmt.Println(crypTexTranslated)
+	if "-s" == strings.Join(os.Args[1:], " ") {
+		// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
+		var crypTexTranslated string = strings.Join(os.Args[2:], " ")
+		codeSize = len(crypTexTranslated)
+		if codeSize < 9999 {
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
+		} else {
+			fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
+		}
 	} else {
-		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
+		// :[[ :SYMBOLIZED: CrypTex: for-the: [[ SYMBOL: MINDED: ]]: ]]:
+		var crypTexTranslated string = strings.Join(os.Args[1:], " ")
+		codeSize = len(crypTexTranslated)
+		if codeSize < 9999 {
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "WARNO", "W⚠️RN🚫")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OP", "🚫P")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OR", "∅R")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OG", "∅G")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "GO", "G🚫")
+			crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex:", "CrΔp☥Δx™:", -1)
+			crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex™:", "CrΔp☥Δx™:", -1)
+			crypTexTranslated = strings.Replace(crypTexTranslated, "OMEGA:", "∅MΔGΔ:", -1)
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " HE", " HΔ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " WE", " WΔ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " US", " ΩS")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN", "ΩN")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL", "ΔL")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HEM", "HΔM")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV", "ΔV")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "YE", "YΔ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA", "Q∅")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ", "عQ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EK", "عQ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EC", "عC")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ED", "3D")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AN", "ΔN")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ON", "∅N")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NO", "N∅")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "OD", "∅D")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "4")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "l", "1")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "S", "5")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
+
+			// :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+			// cryptor "$(curl https://github.com/QWOD/RESEARCH/commit/0b0cef6e4859adbf787fa3c4ececb88d0c32b40c | tail -c 9999)"
+			// // cryptor "$(tail -c 9999 CONSTITUTION-for-the-QWOD-MJ12-ATSOSSDEV-A-COOPERATIVE-AGENCY.txt)"
+			// cryptor "$(systemctl status -l figtree.service)"
+			// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: git@github.cΩm: PermissiΩn SenieS (publickey).
+			// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: fΔtΔl: CΩulS nΩt reΔS frΩm remΩte repΩsitΩry.
+			// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: PleΔse mΔke sure yΩu hΔve the cΩrrect Δccess rights
+			// Sep 06 01:35:42 mercuri.us.hyperspire.net figtreeservice[5289]: ΔnS the repΩsitΩry exists.
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "f0r-th3:", "for-the:")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-th3:", "fΩr-thع:")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-with:", "íي-wíth:")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " Ω5", " ΩS")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ΔT5U", "ATSU")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "☥s-by:", "íي-by:")
+			crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
+			fmt.Println(crypTexTranslated)
+		} else {
+			fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
+		}
 	}
 }
 
