@@ -647,9 +647,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🔴Freak Flooding in Ghana After Dam Overflow!🔴 Floods in Israel! / Disasters on October 15-16, 2023: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/A_BBGsVGE1o> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
