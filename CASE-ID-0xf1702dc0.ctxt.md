@@ -681,9 +681,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Grace & Mercy over ur life..gov’t experiment gone wrong..Blessings on top of blessings 4 U🤩💫✨: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/hykDOrqhXKw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
