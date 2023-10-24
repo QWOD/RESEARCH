@@ -48,6 +48,7 @@ var secretRandomSeed [13]string = [13]string{
 	"⭕", "🕳️", "✴️", "⚫"}
 
 func main() {
+	// :[[ :SYMBOLIZED: CrypTex: for-the: [[ SYMBOL: MINDED: ]]: ]]:
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize = len(crypTexTranslated)
 	if codeSize < 9999 {

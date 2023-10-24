@@ -21,7 +21,7 @@ package main
 // :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
-// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor-s.go; cp -f ~/go/bin/cryptor-s cryptor-s.$(uname -i); sha256sum cryptor-s.$(uname -i) >cryptor-s.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor-s.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
+// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor-s.go; cp -f ~/go/bin/cryptor-s cryptor-s.$(uname -i); sha256sum cryptor-s.$(uname -i) >cryptor-s.$(uname -i).asc; sha256sum -c cryptor-s.$(uname -i).asc; ./cryptor-s.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 
 import (
 	"fmt"
@@ -57,6 +57,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "Ω")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
