@@ -645,7 +645,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0xf1702dc0-820fc1d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-820fc1d3.png)
 >
 >## *[[ :🔴Freak Flooding in Ghana After Dam Overflow!🔴 Floods in Israel! / Disasters on October 15-16, 2023: ]]*
 >
