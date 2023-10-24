@@ -701,7 +701,7 @@
 >
 >:is-with: { ^ Δ ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ SCAMM: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-d8d8171023bc39f4e514a003411d57f162a7b2f7> ^ }: ]]:= { TRUE: "[[ MLM: MULTI: LEVEL: MARKETING: SCAM: <=> PYRAMID: SCAM: ]]" }: ]]:
 
 >![:CASE-ID-0xf1702dc0-23616d96.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-23616d96.png)
 >
