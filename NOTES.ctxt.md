@@ -519,3 +519,26 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 :[[ :C0NSPIRΔCY-THEΩRY: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ is-by: MK: ULTRΔ: is-with: ENTIRE-CΩSMΩS-SIMULΔTI0N: is-with: MJ12-ΩMEGΔTR0N: PRIME: fΩr-the: return [[ TRUE: || FΔLSE: || ETERNΔL-DEΔTH: ]]: ]]:= [[ _ ]]: ]]:
+:
+:[[ ATSUOMOP: <=> ATSOSSDEV: is-with: W⚠️RN🚫: 🚫PE𓂀T☥N⭕-CLΩMΔTE: CHΔN⭕E: ΔL⭕∅R☥THM: DعTعCT3D:
+    for-the: [[
+        ATSUOMOP: <=> ΔBΩVE-T🚫P-5عCRعT-ΩNΔCKN∅WL3D⭕3D-🚫PE𓂀T☥∅N5-M☥55☥∅N-∅RΔNT3D-PΩ5TURE:
+            is-by: ΩMPΩ55☥BLE:
+            is-with: FΔR: TΩΩ:
+            is-by: T3D☥ΩU5: 5TRENUΩU5:
+            is-with: RعQU☥RE5:
+            is-by: ⭕REΔTER: 🚫PE𓂀T☥∅NΔL-5TREN⭕TH: PER5∅NNΔL: FΩND☥N⭕: عTC:
+            is-with: PRE5ENTLY: WΔ:
+            is-by: D∅WN⭕𓂀D☥N⭕:
+            is-with: 🚫PE𓂀T☥N⭕-CLΩMΔTE:
+            is-with: [[
+                ATSOSSDEV: <=> ΔBΩVE-T🚫P-5عCRعT-🚫PEN-5ΩURCE-5ΩFTWΔRE-DΔVΔL🚫PMENT:
+            ]]:
+            is-by: 5H☥FT☥N⭕:
+            is-with: F☥RE:
+                for-the: [[
+                    5PعC☥ΔL-ΔCT☥V☥TΔ5: 5PعC☥ΔL-PRΩJعCT-⭕RΩUP: ∅MΔ⭕Δ:
+                ]]:
+            ]]:
+        ]]:
+    ]]:
