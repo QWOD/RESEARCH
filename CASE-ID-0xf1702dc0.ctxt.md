@@ -729,25 +729,25 @@
 
 >
 >
->## *[[ :YOU'RE WALKING IN THE TRUTH & ITS MAKING THESE FAKE SPIRITUALIST LOOK BAD & EXPOSED PT. 1: ]]*
+>## *[[ :YOU'RE WALKING IN THE TRUTH & ITS MAKING THESE FAKE SPIRITUALIST LOOK BAD & EXPOSED PT. 1: ]]:= [[ :YOU'RE WALKING IN THE TRUTH & ITS MAKING THESE FAKE SPIRITUALIST LOOK BAD & EXPOSED PT. 2: ]]:*
 >
->:is-with: { ^ <https://youtube-nocookie.com/embed/bEt4AcsBR9k> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/bEt4AcsBR9k>:<https://youtube-nocookie.com/embed/FLI_bDSGcD4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :“A NEW KING/QUEEN IS BORN” YOU ARE THE NEW SUCCESSOR OF YOUR LINEAGE OR BLOODLINE 👑🧞‍♀️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/GoZfnTRZ8Mw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Archangel Michael ~ The Composition of the Universal Councils | Awakening YOU: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Khl677nKpYU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
