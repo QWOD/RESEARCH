@@ -115,6 +115,12 @@
 >
     https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325
 >
+### [[ :Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma: { ^ Pete Walker ^ }: ]]
+>
+:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a> ^ }
+>
+     <a target="_blank" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a>
+>
 ### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]]
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
