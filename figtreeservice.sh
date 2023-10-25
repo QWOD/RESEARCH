@@ -47,7 +47,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     # Requires Toolbox
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
     # Repo Miror
-    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
+    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start &> /dev/null'"
   else
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
