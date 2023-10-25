@@ -47,7 +47,6 @@ if [[ $* == "-r"  ]]; then
   exit 0
 fi
 if [[ $* == "-p"  ]]; then
-  /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
   /usr/bin/env git config --global user.email "${GHUSER}"
   /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
   /usr/bin/env git config --global pull.rebase false
