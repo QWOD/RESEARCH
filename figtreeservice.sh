@@ -45,7 +45,8 @@ if [[ $* == "start" || $* == "-r" ]]; then
 
   if [[ "${sshSystemDHook}" == true ]]; then
     # Requires Toolbox
-    toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
+    [[ $* == "start" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/bin/figtreeservice start'"
+    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
   else
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
