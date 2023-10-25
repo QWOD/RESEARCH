@@ -751,11 +751,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf1702dc0-5416f5e1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-5416f5e1.png)
 >
+>## *[[ :AN ISOLATION SPELL WORKED IN YOUR FAVOR & YOU HAD A MEETING W/THE DEVIL AN DENOUNCED HIS OFFER 🧿⚖️😇: ]]:= [[ :THE WISDOM OF THE PRIESTESS TO FOLLOW HER HEART THROUGH THE DARK 🧞‍♀️ [[ _: lovetarotreading: _: soulmates: ]]: ]]:*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0kYY2LdtTWY>:<https://youtube-nocookie.com/embed/odpqsY8E-34> ^ }:
 >
 [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
 >
