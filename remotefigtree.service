@@ -10,6 +10,6 @@ Group=hyperuser
 Type=exec
 TimeoutStartSec=86400
 TimeoutStopSec=122
-ExecStart=/home/hyperuser/hyperstor/bin/figtreeservice start
+ExecStart=/home/hyperuser/bin/figtreeservice -r
 [Install]
 WantedBy=remote-fs.target
