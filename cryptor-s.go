@@ -34,6 +34,7 @@ func main() {
 	var crypTexTranslated string = strings.Join(os.Args[1:], "")
 	codeSize := len(strings.Join(os.Args[1:], ""))
 	if codeSize < 9999 {
+		fmt.Println(crypTexTranslated)
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
