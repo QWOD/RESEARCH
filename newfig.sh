@@ -29,18 +29,19 @@ function remoteForward() {
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f'"
   /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c 'cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f'"
+  exit 0
 }
 
 function localForward() {
   cd "${localRepoPath}/HYPERMEDIUS" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
   cd "${localRepoPath}/RESEARCH" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
   cd "${localRepoPath}/DISCLOSURE" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
+  exit 0
 }
 
 if [[ $* == "-f" ]]; then
   [[ $remoteForwardOnly == true ]] && remoteForward
   [[ $localForwardOnly == true ]] && localForward
-  exit 0
 fi
 if [[ $* == "-r"  ]]; then
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
