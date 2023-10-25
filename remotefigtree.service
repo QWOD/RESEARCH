@@ -1,0 +1,15 @@
+# sudo cp -f ~/QWOD/RESEARCH/remotefigtree.service /etc/systemd/system/remotefigtree.service; sudo systemctl daemon-reload; sudo systemctl enable --now remotefigtree.service
+[Unit]
+Description=figtree.service
+Wants=remote-fs.target
+After=network-online.target
+
+[Service]
+User=hyperuser
+Group=hyperuser
+Type=exec
+TimeoutStartSec=86400
+TimeoutStopSec=122
+ExecStart=/home/hyperuser/bin/figtreeservice -r
+[Install]
+WantedBy=remote-fs.target
