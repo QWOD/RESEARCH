@@ -49,7 +49,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     # Repo Miror
     [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start &> /dev/null'"
   else
-    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" git@github.com &> /dev/null
+    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
