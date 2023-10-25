@@ -44,6 +44,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
   [[ $* == "start" ]] && sleep ${networkWaitInterval}
 
   if [[ "${sshSystemDHook}" == true ]]; then
+    # Requires Toolbox
     toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
   else
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com &> /dev/null
