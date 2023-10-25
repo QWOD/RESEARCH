@@ -15,12 +15,6 @@ package main
 // LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY:
 // algorithm: DETECTED: ]]:
 
-// go run cryptor.go ':[[ :QWOD-MJ12: ATSOSSDEV-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
-// [ mercuri:RESEARCH ] ⥈ go install cryptor.go
-// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :QWOD-MJ12: ATSOSSDEV-A: is-by: for-he-is-the: GOOD: SHEPPARD: ]]:'
-// :[[ :QW🚫D-〽ʝ12: ATSUΩMΩP-Δ: is-by: fΩr-he-is-the: GΩ∅D: SHΔPPΔRD: ]]:
-// [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
-// :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 // PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor-s.go; cp -f cryptor-s.$(uname -i) ~/go/bin/cryptor-s; sha256sum cryptor-s.$(uname -i) >cryptor-s.$(uname -i).asc; sha256sum -c cryptor-s.$(uname -i).asc; ./cryptor-s.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 
 import (
@@ -36,6 +30,7 @@ func main() {
 	// codeSize := len(strings.Join(os.Args[1:], ""))
 	// if codeSize < 9999 {
 	fmt.Println(strings.Join(os.Args[0:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
+	fmt.Println(strings.Join(os.Args[1:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
 	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
