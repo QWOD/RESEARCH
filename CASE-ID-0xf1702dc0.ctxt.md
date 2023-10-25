@@ -713,25 +713,25 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🔴Hurricane Norma Smashed Baja California!🔴Three Storms Hit Europe!/ Disasters on October 20-22, 2023: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/81NC9XQ3EeI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :BREAKING: Hurricane Otis to Hit Mexico as a Cat 5 | AccuWeather: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/hh8ZjQqdkno> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :YOU'RE WALKING IN THE TRUTH & ITS MAKING THESE FAKE SPIRITUALIST LOOK BAD & EXPOSED PT. 1: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/bEt4AcsBR9k> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
