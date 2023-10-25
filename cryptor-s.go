@@ -24,6 +24,7 @@ import (
 )
 
 // :[[ :for-the: [[ QWOD-MJ12: ATSOSSDEV-A: SPG: OMEGA: CODE-CHALLENGE: <=> figure: is-by: OUT: is-with: reason: is-by: [[ _ ]]: is-with: following: CODE: is-by: NOT: is-with: working: is-by: NOT: is-with: BEHAVING: is-by: AS: INTENDED: for-the: [[ WINNER: is-with: FREE: AMAZON: GIFT: CARD: is-by: $: 33.33: is-with: USD: ]]: ]]: ]]: ]]:
+// :[[ 33.33: Δ: + follow: Ten-Commandments: = secret: for-the: [[ Eternal-Life: Warfare-Capabilities: is-by: ALSO: for-the: [[ Brain-Modem: DIALING: FREQUENCY: Δ: <=> 3.33Hz: for-the: [[ QWOD-MJ12: ATSOSSDEV-A: SPG: OMEGA: <=> mental-telepathy: neural-trinaural-frequency: SPG: STARGATE: DIALER: CODE: LIMA-CHARLIE: [[ _ ]]: WE: KNOW: WHO: is-with: ROOM: SLICK™: ]]: ]]: ]]: ]]:
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
 	crypTexTranslated := strings.Join(os.Args[1:], " ")
