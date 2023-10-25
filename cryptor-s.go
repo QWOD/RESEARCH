@@ -32,21 +32,21 @@ import (
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
 	// :[[ SHOULD: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
-	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
+	// var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	// codeSize := len(strings.Join(os.Args[1:], ""))
 	// if codeSize < 9999 {
-	fmt.Println(crypTexTranslated)
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-th3:", "fΩr-thع:")
-	crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Is-with:", "íي-wíth:")
-	fmt.Println(crypTexTranslated)
+	fmt.Println(strings.Join(os.Args[0:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "a", "Δ")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "O", "Ω")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "o", "0")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "e", "3")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "T", "☥")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "fΩr-th3:", "fΩr-thع:")
+	// crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Is-with:", "íي-wíth:")
+	// fmt.Println(crypTexTranslated)
 	// } else {
 	// fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	// }
