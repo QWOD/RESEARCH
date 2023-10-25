@@ -30,13 +30,10 @@ func main() {
 	if 0 < codeSize && 9999 > codeSize {
 		fmt.Printf(":[[ codeSize: <=> %v: %#v: ]]:", codeSize)
 		fmt.Println(strings.Join(os.Args[0:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
-		fmt.Println(strings.Join(os.Args[1:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
-	}
-	// :[[ SHOULD: is-by: ALWAYS: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
-	fmt.Println(":[[ DOES: THIS: WORK: is-by: [[ _ ]]: ]]:")
+		fmt.Println(crypTexTranslated)              // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
+		// :[[ SHOULD: is-by: ALWAYS: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
+		fmt.Println(":[[ DOES: is-with: THIS: is-by: WORK: is-by: [[ _ ]]: ]]:")
 
-	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
-	if codeSize < 9999 {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
@@ -49,6 +46,6 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "Is-with:", "íي-wíth:")
 		fmt.Println(crypTexTranslated)
 	} else {
-		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
+		fmt.Printf(":[[ %v: %#v: <=> inappropriate: codeSize: ]]:.\n", codeSize)
 	}
 }

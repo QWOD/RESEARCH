@@ -114,7 +114,7 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, SecretCode(1), SecretRandomC(1))
 		fmt.Println(crypTexTranslated)
 	} else {
-		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
+		fmt.Printf(":[[ %v: %#v: <=> inappropriate: codeSize: ]]:.\n", codeSize)
 	}
 }
 
