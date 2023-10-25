@@ -25,32 +25,14 @@ package main
 
 import (
 	"fmt"
-	"math/rand"
 	"os"
 	"strings"
-	"time"
 )
-
-var codeSize int
-var secretCodeSeed [27]string = [27]string{
-	"a", "j", "k", "p",
-	"g", "d", "q", "v",
-	"W", "V", "X", "T",
-	"R", "Q", "P", "L",
-	"N", "M", "D", "J",
-	"F", "H", "G", "K",
-	"B", "C", "Y"}
-
-var secretRandomSeed [13]string = [13]string{
-	"🔺", "+", "!",
-	"%", "@", "?",
-	"☢️", "☣️", "⚠️",
-	"⭕", "🕳️", "✴️", "⚫"}
 
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
-	var crypTexTranslated string = strings.Join(os.Args[2:], " ")
-	codeSize = len(crypTexTranslated)
+	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
+	var codeSize int = len(crypTexTranslated)
 	if codeSize < 9999 {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
@@ -63,42 +45,4 @@ func main() {
 	} else {
 		fmt.Printf("%v exceeds maximum allowed length of 9999.\n", codeSize)
 	}
-}
-
-func SecretRandomC(rotations int) string {
-	var s string
-	v := make([]int, rotations)
-	// Populate array "v" with "n" number of random
-	// characters selected from []string "secretRandomSeed".
-	for n := 0; n < rotations; n++ {
-		rand.Seed(time.Now().UnixNano())
-		for _, value := range rand.Perm(len(secretRandomSeed)) {
-			v[n] = value
-		}
-	}
-	// Generate "x" amount of random characters
-	// according to int specified with "rotations".
-	for x := 0; x < rotations; x++ {
-		s = s + secretRandomSeed[v[x]]
-	}
-	return s
-}
-
-func SecretCode(rotations int) string {
-	var s string
-	v := make([]int, rotations)
-	// Populate array "v" with "n" number of random
-	// characters selected from []string "secretCodeSeed".
-	for n := 0; n < rotations; n++ {
-		rand.Seed(time.Now().UnixNano())
-		for _, value := range rand.Perm(len(secretCodeSeed)) {
-			v[n] = value
-		}
-	}
-	// Generate "x" amount of random characters
-	// according to int specified with "rotations".
-	for x := 0; x < rotations; x++ {
-		s = s + secretCodeSeed[v[x]]
-	}
-	return s
 }
