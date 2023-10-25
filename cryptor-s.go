@@ -25,6 +25,7 @@ import (
 
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
+	crypTexTranslated := strings.Join(os.Args[1:], " ")
 	codeSize := len(strings.Join(os.Args[1:], " "))
 	if 0 < codeSize && 9999 > codeSize {
 		fmt.Printf(":[[ codeSize: <=> %v: %#v: ]]:", codeSize)

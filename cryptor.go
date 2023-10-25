@@ -50,7 +50,7 @@ func main() {
 	// :[[ :SYMBOLIZED: CrypTex: for-the: [[ SYMBOL: MINDED: ]]: ]]:
 	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	codeSize := len(strings.Join(os.Args[1:], " "))
-	if codeSize < 9999 {
+	if 0 < codeSize && 9999 > codeSize {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "QWOD-MJ12", "QW🚫D-〽ʝ12")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "MJ12-OMEGA", "〽ʝ12-ΩMعGΔTR🚫N")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "NOTICE", "N🚫T⚠️CE")
