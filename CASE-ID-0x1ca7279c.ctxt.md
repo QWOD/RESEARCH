@@ -20,7 +20,7 @@
 >
 *[[ :mercuri: RESEARCH: ]]:= newfig 0x$(passworder -short)*
 >
-## :[[ :for-the: [[ CASE-ID-0x1ca7279c: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <0x1ca7279c-recon: Δ: mj12: Δ: agency> ^ }: ]]: ]]:.ctxt
+## [[ :for-the: [[ CASE-ID-0x1ca7279c: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x1ca7279c-recon.mj12.agency/">0x1ca7279c-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x1ca7279c.ctxt.md> ^ }:
 >

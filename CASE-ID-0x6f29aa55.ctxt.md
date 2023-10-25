@@ -29,7 +29,7 @@
 >
 ###
 >
-:[[ :CΔSE-ID: 0x6f29aa55: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: 0xb337572f: { ^ 0x6f29aa55-recon.mj12.agency ^ }: ]]:
+## [[ :for-the: [[ CASE-ID-0x6f29aa55: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x6f29aa55-recon.mj12.agency/">0x6f29aa55-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
 >
 >:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md> ^ }:
 >

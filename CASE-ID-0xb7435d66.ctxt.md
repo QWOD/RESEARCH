@@ -20,7 +20,7 @@
 >
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig 0x$(passworder -short)*
 >
-## [[ :for-the: [[ CASE-ID-0xb7435d66: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <0xb7435d66-recon: Δ: mj12: Δ: agency> ^ }: ]]: ]]:.ctxt
+## [[ :for-the: [[ CASE-ID-0xb7435d66: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0xb7435d66-recon.mj12.agency/">0xb7435d66-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xb7435d66.ctxt.md> ^ }:
 >
