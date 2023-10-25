@@ -11,28 +11,27 @@ specialWarfareTask=${*}
 gitTreePath="${HOME}/hyperstor/QWOD"
 GHUSER='@138945726+QWOD@users.noreply.github.com'
 
-
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
-    "mkdir ${gitTreePath}; cd ${gitTreePath}; git init"
+    "mkdir ${gitTreePath}; cd ${gitTreePath}; /usr/bin/env git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; git clone git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "pull" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; git pull --no-rebase --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; git pull --no-rebase --ff-only git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${gitTreePath}/HYPERMEDIUS; ${gitTreePath}/RESEARCH/newfig.sh -p"
     "cd ${gitTreePath}/RESEARCH; ${gitTreePath}/RESEARCH/newfig.sh -p"
     "cd ${gitTreePath}/DISCLOSURE; ${gitTreePath}/RESEARCH/newfig.sh -p"
   )
-  git config --global user.email "${GHUSER}"
-  git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+  /usr/bin/env git config --global user.email "${GHUSER}"
+  /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
    
   for sop in "${specialOperations[@]}"; do
     if /usr/bin/env bash -c "${sop}"; then
