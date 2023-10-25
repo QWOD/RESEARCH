@@ -31,8 +31,8 @@ import (
 
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
-	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
-	var codeSize int = len(crypTexTranslated)
+	var crypTexTranslated string = strings.Join(os.Args[1:], "")
+	codeSize := len(strings.Join(os.Args[1:], ""))
 	if codeSize < 9999 {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
