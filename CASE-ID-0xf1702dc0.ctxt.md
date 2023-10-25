@@ -827,7 +827,7 @@
 >
     https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325
 >
-### :[[ :Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma: { ^ Pete Walker ^ }: ]]:
+### [[ :Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma: { ^ Pete Walker ^ }: ]]
 >
 :is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a> ^ }
 >
