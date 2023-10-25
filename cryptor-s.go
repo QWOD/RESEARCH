@@ -31,7 +31,8 @@ import (
 
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
-	var crypTexTranslated string = strings.Join(os.Args[:], "")
+	// :[[ SHOULD: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
+	var crypTexTranslated string = strings.Join(os.Args[1:], " ")
 	// codeSize := len(strings.Join(os.Args[1:], ""))
 	// if codeSize < 9999 {
 	fmt.Println(crypTexTranslated)
