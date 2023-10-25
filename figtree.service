@@ -1,4 +1,4 @@
-# sudo cp figtree.service /etc/systemd/system; sudo systemctl enable --now figtree.service
+# sudo cp -f ~/QWOD/RESEARCH/figtree.service /etc/systemd/system/figtree.service; sudo systemctl daemon-reload; sudo systemctl enable --now figtree.service
 [Unit]
 Description=figtree.service
 Wants=remote-fs.target
