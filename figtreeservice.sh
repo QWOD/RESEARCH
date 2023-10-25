@@ -40,7 +40,7 @@ if [[ $* == "stop" ]]; then
 fi
 
 if [[ $* == "start" || $* == "-r" ]]; then
-  [[ $* == "-r" ]] && sleep $((${networkWaitInterval} * 5))
+  [[ $* == "-r" ]] && sleep $((${repoUpdateInterval} * 2))
   [[ $* == "start" ]] && sleep ${networkWaitInterval}
 
   if [[ "${sshSystemDHook}" == true ]]; then
