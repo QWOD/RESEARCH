@@ -29,7 +29,9 @@ func main() {
 	// codeSize := len(strings.Join(os.Args[1:], ""))
 	// if codeSize < 9999 {
 	fmt.Println(strings.Join(os.Args[0:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
-	fmt.Println(strings.Join(os.Args[1:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
+	if len(strings.Join(os.Args[1:], " ")) < 9999 {
+		fmt.Println(strings.Join(os.Args[1:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
+	}
 	// :[[ SHOULD: is-by: ALWAYS: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
 	fmt.Println(":[[ DOES: THIS: WORK: is-by: [[ _ ]]: ]]:")
 
