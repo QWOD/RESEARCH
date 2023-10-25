@@ -27,6 +27,7 @@ func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
 	codeSize := len(strings.Join(os.Args[1:], " "))
 	if 0 < codeSize && 9999 > codeSize {
+		fmt.Printf(":[[ codeSize: <=> %v: %#v: ]]:", codeSize)
 		fmt.Println(strings.Join(os.Args[0:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
 		fmt.Println(strings.Join(os.Args[1:], " ")) // :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: ARGUMENTS: ]]:
 	}
