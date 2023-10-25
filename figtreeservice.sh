@@ -21,7 +21,7 @@ repoUpdateInterval=222
 if [[ $* == "stop" ]]; then
   [[ "${sshSystemDHook}" == true || "${fastForwardOnly}" == true ]] && exit 0
   if [[ $pushRepo == true ]]; then
-    if /usr/bin/env bash -c gitupur push; then
+    if /usr/bin/env bash -c ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
   fi
@@ -36,7 +36,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     # Requires Toolbox
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
     # Repo Miror
-    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start &> /dev/null'"
+    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start &> /dev/null"
   else
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
