@@ -47,20 +47,20 @@ if [[ $* == "start" || $* == "-r" ]]; then
     /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c '~/hyperstor/bin/figtreeservice start'"
   else
     ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com &> /dev/null
-    git config --global user.email "${GHUSER}"
-    git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+    /usr/bin/env git config --global user.email "${GHUSER}"
+    /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && newfig -f
-        [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && newfig -f
-        [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && newfig -f
-        [[ $pushRepo == true ]] &&  newfig -p &> /dev/null
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
       fi
       sleep $repoUpdateInterval
     done

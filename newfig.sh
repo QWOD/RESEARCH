@@ -32,9 +32,9 @@ function remoteForward() {
 }
 
 function localForward() {
-  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; git  pull --no-rebase --ff-only
-  cd "${localRepoPath}/RESEARCH" || exit 1; git pull --no-rebase --ff-only
-  cd "${localRepoPath}/DISCLOSURE" || exit 1; git pull --no-rebase --ff-only
+  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
 }
 
 if [[ $* == "-f" ]]; then
@@ -47,14 +47,14 @@ if [[ $* == "-r"  ]]; then
   exit 0
 fi
 if [[ $* == "-p"  ]]; then
-  ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
-  git config --global user.email "${GHUSER}"
-  git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
-  git config --global pull.rebase false
-  git merge --no-ff
-  git pull
+  /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
+  /usr/bin/env git config --global user.email "${GHUSER}"
+  /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+  /usr/bin/env git config --global pull.rebase false
+  /usr/bin/env git merge --no-ff
+  /usr/bin/env git pull
   for fig in "$(pwd)"/*; do
-    git add "${fig}"
+    /usr/bin/env git add "${fig}"
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
   git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ <https://youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ^ ΔLSE: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
