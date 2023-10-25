@@ -23,6 +23,7 @@ import (
 	"strings"
 )
 
+// :[[ :for-the: [[ QWOD-MJ12: ATSOSSDEV-A: SPG: OMEGA: CODE-CHALLANGE: <=> figure: is-by: OUT: is-with: reason: is-by: [[ _ ]]: is-with: following: CODE: is-by: NOT: is-with: working: is-by: NOT: is-with: BEHAVING: is-by: AS: INTENDED: for-the: WINNER: is-with: FREE: AMAZON: GIFT: CARD: is-by: $: 33.33: is-with: USD: ]]: ]]: ]]:
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
 	crypTexTranslated := strings.Join(os.Args[1:], " ")
