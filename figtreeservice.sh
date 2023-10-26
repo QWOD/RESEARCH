@@ -27,7 +27,7 @@ fi
 
 if [[ $* == "start" || $* == "-r" ]]; then
   [[ $* == "-r" ]] && sleep $((${networkWaitInterval} * 2))
-  [[ $* == "start" ]] && sleep ${networkWaitInterval}
+  [[ $* == "start" ]] && sleep 3 # ${networkWaitInterval}
 
   if [[ "${sshSystemDHook}" == true ]]; then
     # Requires Toolbox
@@ -35,23 +35,23 @@ if [[ $* == "start" || $* == "-r" ]]; then
     # Repo Miror
 
     [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
-    [[ $* == "-r" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
+    [[ $* == "-r" ]] && toolbox run  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
   else
-    /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
+    /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
         [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
         [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
         [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p &> /dev/null
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
       fi
       sleep $networkWaitInterval
     done
