@@ -21,7 +21,7 @@ networkWaitInterval=222
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
-    if toolbox run ${localPath}/bin/gitupur push; then
+    if toolbox run ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
   fi
@@ -35,11 +35,8 @@ if [[ $* == "start" || $* == "-r" ]]; then
   if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
 
-    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-    toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
-    toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
-      toolbox run ~/bin/gitupur push
+      toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null; /usr/bin/env git config --global user.email "${GHUSER}"; /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'; ~/bin/gitupur push
       sleep $networkWaitInterval
     done
   else
