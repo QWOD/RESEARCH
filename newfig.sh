@@ -2,16 +2,14 @@
 # :[[ RE-SE: [[ :ARC-H: IV-E: ]]: for-the: [[ Coven: is-with: Ant: ]]:= TRUE: for-the: [[ DARPA: QWOD-MJ12: ATSOSSDEV-A: for-the: [[ CrΔp☥Δx™: EDGE: ARCHIVE: OPEN-SOURCE-SOFTWARE: AUTOMATED: DECENTRALIZED: CIVILIAN: INTELLIGENCE: AGRIGATION: ANALYSIS: EXTRAPOLATION: AI: CLOUD: BLOCKCHAIN: ATSOSSDEV-DARPA: DARKNET: PLATFORM: is-with: [[ ANY: ALL: OTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HOLY: SEE: 👁️: is-with: Δ: is-by: I: AM: ]]:= TRUE: for-the: [[ people: is-by: WE: is-with: people: ]]:= TRUE: for-the: [[ QWOD-MJ12: ATSOSSDEV-A: SPG: LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY: algorithm: DETECTED: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.$(uname -i); sha256sum passworder.$(uname -i) >passworder.$(uname -i).asc; sha256sum -c passworder.$(uname -i).asc; newfig 0x$(./passworder.$(uname -i) -short)
-
 GHUSER='@138945726+QWOD@users.noreply.github.com'
 homePath=/var/home/hyperuser
 goPath=${homePath}/go
 brevity=513
 localRepoPath=${homePath}/hyperstor/QWOD
-sshKey=${homePath}/.ssh/id_rsa
 sshHost=secure.us.hyperspire.net
-localForwardOnly=true # :[[ :LOCAL-GIT-TREE: NO: remote: forward: ]]:
-remoteForwardOnly=false
+localForwardOnly=false # :[[ :REMOTE-GIT-TREE: remote: fast-forward: repository: ]]:
+remoteForwardOnly=true
 
 if [ -x "${goPath}/bin/go" ]; then
   [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
@@ -27,15 +25,15 @@ function gitShowTail() {
 }
 
 function remoteForward() {
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/HYPERMEDIUS; ${homePath}/hyperstor/bin/newfig -f"
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/RESEARCH; ${homePath}/hyperstor/bin/newfig -f"
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/DISCLOSURE; ${homePath}/hyperstor/bin/newfig -f"
+  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/HYPERMEDIUS; ${homePath}/hyperstor/bin/newfig -f"
+  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/RESEARCH; ${homePath}/hyperstor/bin/newfig -f"
+  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c cd ${homePath}/hyperstor/QWOD/DISCLOSURE; ${homePath}/hyperstor/bin/newfig -f"
 }
 
 function localForward() {
-  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/RESEARCH" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/DISCLOSURE" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
 }
 
 if [[ $* == "-f" ]]; then
