@@ -32,30 +32,35 @@ if [[ $* == "start" || $* == "-r" ]]; then
 
   if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
-    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-    toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
-    toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
-
     while true; do
       toolbox run ~/bin/gitupur push # &> /dev/null
       sleep $networkWaitInterval
     done
   else
-    /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-    /usr/bin/env git config --global user.email "${GHUSER}"
-    /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if [[ $* != "-r" ]]; then
         ${localPath}/bin/gitupur push # &> /dev/null
       fi
       if [[ $fastForwardOnly == true ]]; then
+        /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+        /usr/bin/env git config --global user.email "${GHUSER}"
+        /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
         if cd "${repoPath}/RESEARCH"; then
+          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+          /usr/bin/env git config --global user.email "${GHUSER}"
+          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
         if cd "${repoPath}/HYPERMEDIUS"; then
+          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+          /usr/bin/env git config --global user.email "${GHUSER}"
+          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
         if cd "${repoPath}/DISCLOSURE"; then
+          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+          /usr/bin/env git config --global user.email "${GHUSER}"
+          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
       fi
