@@ -15,10 +15,10 @@ networkWaitInterval=222
 [[ $* == "-r" ]] && sshSystemDHook=true && fastForwardOnly=true
 [[ "${fastForwardOnly}" == true ]] && repoPath=~/hyperstor/QWOD # :[[ :REMOTE-GIT-TREE: ]]:
 [[ "${fastForwardOnly}" != true ]] && repoPath=~/QWOD
-[[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' && exit 0
+[[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if [[ "${pushRepo}" == true ]]; then
+  if [[ "${pushRepo}" == true && "${fastForwardOnly}" != true ]]; then
     if ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
@@ -31,12 +31,27 @@ if [[ $* == "start" || $* == "-r" ]]; then
   [[ $* == "start" ]] && sleep ${networkWaitInterval}
 
   if [[ "${sshSystemDHook}" == true ]]; then
-    # Requires Toolbox
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
-    # Repo Miror
 
-    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start" # &> /dev/null"
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
+    /usr/bin/env git config --global user.email "${GHUSER}"
+    /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+    while true; do
+      if cd "${repoPath}/RESEARCH"; then
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+      fi
+      if cd "${repoPath}/HYPERMEDIUS"; then
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+      fi
+      if cd "${repoPath}/DISCLOSURE"; then
+        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+      fi
+      sleep $networkWaitInterval
+    done
   else
     /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
