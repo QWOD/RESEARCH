@@ -45,7 +45,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
-      if [[ $pushRepo == true ]]; then
+      if [[ $* != "-r" ]]; then
         ${localPath}/bin/gitupur push # &> /dev/null
       fi
       if [[ $fastForwardOnly == true ]]; then
