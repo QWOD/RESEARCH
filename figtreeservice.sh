@@ -18,9 +18,9 @@ repoUpdateInterval=222
 [[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  [[ "${sshSystemDHook}" == true || "${fastForwardOnly}" == true ]] && exit 0
+  [[ "${sshSystemDHook}" == true && "${fastForwardOnly}" == true ]] && exit 0
   if [[ $pushRepo == true ]]; then
-    if /usr/bin/env bash -c ~/bin/gitupur push; then
+    if ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
   fi
