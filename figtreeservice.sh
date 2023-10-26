@@ -20,7 +20,7 @@ networkWaitInterval=222
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true || "${fastForwardOnly}" != true ]]; then
-    if ~/bin/gitupur push; then
+    if toolbox run ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
   fi
