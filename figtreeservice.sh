@@ -30,7 +30,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
   [[ $* == "-r" ]] && sleep $((${networkWaitInterval} * 2))
   [[ $* == "start" ]] && sleep ${networkWaitInterval}
 
-  if [[ "${sshSystemDHook}" == true || $* == "-r" ]]; then
+  if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
     toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
