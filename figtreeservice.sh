@@ -35,7 +35,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
 
     toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-    [[ $* != "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ${localPath}/bin/figtreeservice start " # &> /dev/null"
+    [[ $* == "start" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ${localPath}/bin/figtreeservice start " # &> /dev/null"
     toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
     toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
