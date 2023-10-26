@@ -10,9 +10,10 @@ networkWaitInterval=222
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
 
+[[ $* == "" ]] && exit 0
 [[ $* != "-r" ]] && pushRepo=true # :[[ :LOCAL-GIT-TREE: ]]:
 [[ $* == "-r" ]] && sshSystemDHook=true && fastForwardOnly=true
-[[ "${fastForwardOnly}" == true ]] && repoPath=~/hyperstor/QWOD
+[[ "${fastForwardOnly}" == true ]] && repoPath=~/hyperstor/QWOD # :[[ :REMOTE-GIT-TREE: ]]:
 [[ "${fastForwardOnly}" != true ]] && repoPath=~/QWOD
 [[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' && exit 0
 
