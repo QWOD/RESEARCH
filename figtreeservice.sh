@@ -39,15 +39,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
     toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
     toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
-      if cd "${repoPath}/RESEARCH"; then
-        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
-      fi
-      if cd "${repoPath}/HYPERMEDIUS"; then
-        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
-      fi
-      if cd "${repoPath}/DISCLOSURE"; then
-        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
-      fi
+      toolbox run ~/bin/gitupur push
       sleep $networkWaitInterval
     done
   else
