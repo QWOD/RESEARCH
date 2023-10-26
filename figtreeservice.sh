@@ -18,7 +18,7 @@ networkWaitInterval=222
 [[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if [[ "${pushRepo}" == true && "${fastForwardOnly}" != true ]]; then
+  if [[ "${pushRepo}" == true || "${fastForwardOnly}" != true ]]; then
     if ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
