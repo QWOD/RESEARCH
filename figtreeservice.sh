@@ -33,8 +33,8 @@ if [[ $* == "start" || $* == "-r" ]]; then
   if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
 
-    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
-    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com &> /dev/null
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${gitHubKey}" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
@@ -53,7 +53,7 @@ if [[ $* == "start" || $* == "-r" ]]; then
       sleep $networkWaitInterval
     done
   else
-    /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+    /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com # &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
