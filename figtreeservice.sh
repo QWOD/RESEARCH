@@ -46,21 +46,12 @@ if [[ $* == "start" || $* == "-r" ]]; then
         /usr/bin/env git config --global user.email "${GHUSER}"
         /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
         if cd "${repoPath}/RESEARCH"; then
-          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-          /usr/bin/env git config --global user.email "${GHUSER}"
-          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
         if cd "${repoPath}/HYPERMEDIUS"; then
-          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-          /usr/bin/env git config --global user.email "${GHUSER}"
-          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
         if cd "${repoPath}/DISCLOSURE"; then
-          /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
-          /usr/bin/env git config --global user.email "${GHUSER}"
-          /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
           ${localPath}/bin/newfig -f
         fi
       fi
