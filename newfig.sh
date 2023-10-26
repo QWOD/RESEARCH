@@ -38,10 +38,11 @@ function localForward() {
 }
 
 if [[ $* == "-f" ]]; then
-  [[ $remoteForwardOnly == true ]] && remoteForward
-  [[ $localForwardOnly == true ]] && localForward
+  [[ $remoteForwardOnly == true ]] && remoteForward && exit 0
+  [[ $localForwardOnly == true ]] && localForward && exit 0
 fi
 if [[ $* == "-r"  ]]; then
+  # Random UUID mode
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
   exit 0
 fi
