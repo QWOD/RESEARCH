@@ -14,7 +14,7 @@ networkWaitInterval=222
 [[ $* == "-r" ]] && sshSystemDHook=true && fastForwardOnly=true
 [[ "${fastForwardOnly}" == true ]] && repoPath=~/hyperstor/QWOD
 [[ "${fastForwardOnly}" != true ]] && repoPath=~/QWOD
-[[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
+[[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' && exit 0
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
@@ -27,15 +27,15 @@ fi
 
 if [[ $* == "start" || $* == "-r" ]]; then
   [[ $* == "-r" ]] && sleep $((${networkWaitInterval} * 2))
-  [[ $* == "start" ]] && sleep 3 # ${networkWaitInterval}
+  [[ $* == "start" ]] && sleep ${networkWaitInterval}
 
   if [[ "${sshSystemDHook}" == true ]]; then
     # Requires Toolbox
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
     # Repo Miror
 
-    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &> /dev/null
-    [[ $* == "-r" ]] && toolbox run  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start " # &> /dev/null"
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+    [[ $* == "-r" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ~/hyperstor/bin/figtreeservice start" # &> /dev/null"
   else
     /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
