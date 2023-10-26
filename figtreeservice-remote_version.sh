@@ -20,7 +20,7 @@ networkWaitInterval=222
 [[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if [[ "${pushRepo}" == true || "${fastForwardOnly}" != true ]]; then
+  if [[ "${pushRepo}" == true ]]; then
     if toolbox run ${localPath}/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
@@ -35,41 +35,32 @@ if [[ $* == "start" || $* == "-r" ]]; then
   if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
 
-    /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com # &> /dev/null
-    [[ $* == "start" ]] && /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${gitHubKey}" -t "/usr/bin/env bash -c ${localPath}/bin/figtreeservice start " # &> /dev/null"
-    /usr/bin/env git config --global user.email "${GHUSER}"
-    /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+    [[ $* == "start" ]] && toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -t "/usr/bin/env bash -c ${localPath}/bin/figtreeservice start " # &> /dev/null"
+    toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
+    toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
-      if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
-      fi
-      if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
-      fi
-      if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
-      fi
+      toolbox run ~/bin/gitupur push
       sleep $networkWaitInterval
     done
   else
-    /usr/bin/env ssh -o "StrictHostKeyChecking no" -i "${gitHubKey}" -T git@github.com # &> /dev/null
+    /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
     /usr/bin/env git config --global user.email "${GHUSER}"
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
-      if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
+      if [[ $pushRepo == true ]]; then
+        ${localPath}/bin/gitupur push # &> /dev/null
       fi
-      if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
-      fi
-      if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
+      if [[ $fastForwardOnly == true ]]; then
+        if cd "${repoPath}/RESEARCH"; then
+          ${localPath}/bin/newfig -f
+        fi
+        if cd "${repoPath}/HYPERMEDIUS"; then
+          ${localPath}/bin/newfig -f
+        fi
+        if cd "${repoPath}/DISCLOSURE"; then
+          ${localPath}/bin/newfig -f
+        fi
       fi
       sleep $networkWaitInterval
     done
