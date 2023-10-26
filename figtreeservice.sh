@@ -40,16 +40,16 @@ if [[ $* == "start" || $* == "-r" ]]; then
     toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       sleep $networkWaitInterval
     done
@@ -59,16 +59,16 @@ if [[ $* == "start" || $* == "-r" ]]; then
     toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ~/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ~/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && toolbox run ~/bin/newfig -f
+        [[ $pushRepo == true ]] &&  toolbox run ~/bin/newfig -p # &> /dev/null
       fi
       sleep $networkWaitInterval
     done
