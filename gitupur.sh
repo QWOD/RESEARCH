@@ -9,22 +9,22 @@
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
 localPath=/var/home/hyperuser
-gitTreePath=${localPath}/hyperstor/QWOD
+gitTreePath=${localPath}/hyperstor
 GHUSER='@138945726+QWOD@users.noreply.github.com'
 
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
-    "mkdir ${gitTreePath}; cd ${gitTreePath}; /usr/bin/env git init"
+    "mkdir ${gitTreePath}/QWOD; cd ${gitTreePath}/QWOD; /usr/bin/env git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; /usr/bin/env git clone git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "pull" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
-    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/RESEARCH.git"
-    "cd ${gitTreePath}; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/HYPERMEDIUS.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/RESEARCH.git"
+    "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
     "cd ${localPath}/QWOD/HYPERMEDIUS; ${localPath}/QWOD/RESEARCH/newfig.sh -p"
