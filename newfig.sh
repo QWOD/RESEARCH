@@ -9,8 +9,8 @@ brevity=513
 localRepoPath="${HOME}/hyperstor/QWOD"
 sshKey="/var/home/hyperuser/.ssh/id_rsa"
 sshHost=secure.us.hyperspire.net
-localForwardOnly=true # :[[ :REMOTE-GIT-MIRROR: ]]:
-remoteForwardOnly=false # :[[ :LOCAL-GIT-TREE: ]]:
+localForwardOnly=true # :[[ :LOCAL-GIT-TREE: NO: remote: forward: ]]:
+remoteForwardOnly=false
 
 if [ -x "${goPath}/bin/go" ]; then
   [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
