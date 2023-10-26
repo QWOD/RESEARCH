@@ -14,7 +14,7 @@ pushRepo=true
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
-    if toolbox run ~/bin/gitupur push; then
+    if ~/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
   fi
@@ -24,7 +24,9 @@ fi
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
   while true; do
-    toolbox run ~/bin/gitupur push # &> /dev/null
+    if ~/bin/gitupur push; then
+        echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+    fi
     sleep $networkWaitInterval
   done
 fi
