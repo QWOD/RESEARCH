@@ -19,7 +19,7 @@ networkWaitInterval=222
 [[ $* == "start" || $* == "stop" || $* == "-r" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: || -r: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  if [[ "${pushRepo}" == true || "${fastForwardOnly}" != true ]]; then
+  if [[ "${pushRepo}" == true ]]; then
     if toolbox run ${localPath}/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
     fi
@@ -40,16 +40,13 @@ if [[ $* == "start" || $* == "-r" ]]; then
     toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] &&  toolbox run ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
+        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] &&  toolbox run ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
+        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
-        [[ $pushRepo == true ]] &&  toolbox run ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
+        toolbox run ${localPath}/bin/newfig -p # &> /dev/null
       fi
       sleep $networkWaitInterval
     done
