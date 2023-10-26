@@ -28,9 +28,9 @@ function cloudHiveBackup {
     "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ${localPath}/QWOD/HYPERMEDIUS; ${localPath}/QWOD/RESEARCH/newfig.sh -p"
-    "cd ${localPath}/QWOD/RESEARCH; ${localPath}/QWOD/RESEARCH/newfig.sh -p"
-    "cd ${localPath}/QWOD/DISCLOSURE; ${localPath}/QWOD/RESEARCH/newfig.sh -p"
+    "cd ${localPath}/QWOD/HYPERMEDIUS; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
+    "cd ${localPath}/QWOD/RESEARCH; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
+    "cd ${localPath}/QWOD/DISCLOSURE; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
   )
   /usr/bin/env git config --global user.email "${GHUSER}"
   /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
