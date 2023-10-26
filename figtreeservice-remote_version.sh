@@ -60,16 +60,16 @@ if [[ $* == "start" || $* == "-r" ]]; then
     /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
     while true; do
       if cd "${repoPath}/RESEARCH"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/bin/newfig -f
-        [[ $pushRepo == true ]] &&  ${localPath}/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
+        [[ $pushRepo == true ]] &&  ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/HYPERMEDIUS"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
+        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
       fi
       if cd "${repoPath}/DISCLOSURE"; then
-        [[ $fastForwardOnly == true ]] && ${localPath}/bin/newfig -f
-        [[ $pushRepo == true ]] && ${localPath}/bin/newfig -p # &> /dev/null
+        [[ $fastForwardOnly == true ]] && ${localPath}/hyperstor/bin/newfig -f
+        [[ $pushRepo == true ]] && ${localPath}/hyperstor/bin/newfig -p # &> /dev/null
       fi
       sleep $networkWaitInterval
     done
