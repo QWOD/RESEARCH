@@ -28,11 +28,11 @@ function cloudHiveBackup {
     "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
-    "toolbox run /usr/bin/env git config --global user.email ${GHUSER}"
-    "toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'"
-    "cd ${localPath}/QWOD/HYPERMEDIUS; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
-    "cd ${localPath}/QWOD/RESEARCH; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
-    "cd ${localPath}/QWOD/DISCLOSURE; toolbox run ~/QWOD/RESEARCH/newfig.sh -p"
+    "/usr/bin/env git config --global user.email ${GHUSER}"
+    "/usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'"
+    "cd ~/QWOD/HYPERMEDIUS; ~/QWOD/RESEARCH/newfig.sh -p"
+    "cd ~/QWOD/RESEARCH; ~/QWOD/RESEARCH/newfig.sh -p"
+    "cd ~/QWOD/DISCLOSURE; ~/QWOD/RESEARCH/newfig.sh -p"
   )
    
   for sop in "${specialOperations[@]}"; do
