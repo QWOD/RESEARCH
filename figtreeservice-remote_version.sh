@@ -34,9 +34,12 @@ if [[ $* == "start" || $* == "-r" ]]; then
 
   if [[ "${sshSystemDHook}" == true ]]; then
     # :[[ :Local-Worker: requires: Toolbox: for-the: sshSystemDHook: ]]:
+    toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com # &> /dev/null
+    toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
+    toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
 
     while true; do
-      toolbox run /usr/bin/env ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null; /usr/bin/env git config --global user.email "${GHUSER}"; /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'; ~/bin/gitupur push
+      toolbox run ~/bin/gitupur push # &> /dev/null
       sleep $networkWaitInterval
     done
   else
