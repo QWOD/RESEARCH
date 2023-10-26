@@ -4,9 +4,9 @@
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.$(uname -i); sha256sum passworder.$(uname -i) >passworder.$(uname -i).asc; sha256sum -c passworder.$(uname -i).asc; newfig 0x$(./passworder.$(uname -i) -short)
 
 GHUSER='@138945726+QWOD@users.noreply.github.com'
-goPath="${HOME}/go"
+goPath=~/go
 brevity=513
-localRepoPath="${HOME}/hyperstor/QWOD"
+localRepoPath=~/hyperstor/QWOD
 sshKey="/var/home/hyperuser/.ssh/id_rsa"
 sshHost=secure.us.hyperspire.net
 localForwardOnly=true # :[[ :LOCAL-GIT-TREE: NO: remote: forward: ]]:
@@ -26,15 +26,15 @@ function gitShowTail() {
 }
 
 function remoteForward() {
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f"
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f"
-  /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f"
+  toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/HYPERMEDIUS; ~/hyperstor/bin/newfig -f"
+  toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/RESEARCH; ~/hyperstor/bin/newfig -f"
+  toolbox run /usr/bin/env ssh "${sshHost}" -o "StrictHostKeyChecking no" -i "${sshKey}" -t "/usr/bin/env bash -c cd ~/hyperstor/QWOD/DISCLOSURE; ~/hyperstor/bin/newfig -f"
 }
 
 function localForward() {
-  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/RESEARCH" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/DISCLOSURE" || exit 1; /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
 }
 
 if [[ $* == "-f" ]]; then
@@ -47,17 +47,17 @@ if [[ $* == "-r"  ]]; then
   exit 0
 fi
 if [[ $* == "-p"  ]]; then
-  /usr/bin/env git config --global user.email "${GHUSER}"
-  /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
-  /usr/bin/env git config --global pull.rebase false
-  /usr/bin/env git merge --no-ff
-  /usr/bin/env git pull
+  toolbox run /usr/bin/env git config --global user.email "${GHUSER}"
+  toolbox run /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
+  toolbox run /usr/bin/env git config --global pull.rebase false
+  toolbox run /usr/bin/env git merge --no-ff
+  toolbox run /usr/bin/env git pull
   for fig in "$(pwd)"/*; do
-    /usr/bin/env git add "${fig}"
+    toolbox run /usr/bin/env git add "${fig}"
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
-  git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ <https://youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ^ ΔLSE: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
-  git push
+  toolbox run /usr/bin/env git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ <https://youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ^ ΔLSE: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
+  toolbox run /usr/bin/env git push
   exit 0
 fi
 if [[ $* ]]; then
