@@ -66,11 +66,13 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x62a540c0-c40f4665.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-c40f4665.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Shocking revelation 4 those still binded 2 SN Karma..you’ve stepped n2 ur NN & no protection 4 them: ]]:= { ^ <https://youtube-nocookie.com/embed/DiJ0ZbuJ3bM> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Iran's Nightmare! US Doubles Warships Near Israel: ]]:= { ^ <https://youtu.be/YiZEEIrP_J0> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >

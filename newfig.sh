@@ -65,5 +65,5 @@ if [[ $* != "-p" && $* != "-r" && $* != "-f" && $* != "" ]]; then
   exit 0
 fi
 if [[ $* == "" ]]; then
-  ~/bin/newfig "$(passworder -short)"
+  ~/bin/newfig "0x${FIG}"
 fi
