@@ -94,9 +94,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🔴 (NSFW) Israeli Ground Assault into Gaza Begins | Combat Footage Show: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/OYaT7LEw2xg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
