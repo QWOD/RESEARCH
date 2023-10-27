@@ -20,9 +20,9 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig*
 
-## [[ :for-the: [[ CASE-ID-0x00000000: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x00000000-recon.mj12.agency/">0x00000000-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
+## [[ :for-the: [[ CASE-ID-0x62a540c0: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x62a540c0-recon.mj12.agency/">0x62a540c0-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
 >
-:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x00000000.ctxt.md> ^ }:
+:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x62a540c0.ctxt.md> ^ }:
 >
 :is-by: [[ :ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 >
@@ -30,31 +30,39 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x62a540c0-78d96a68.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-78d96a68.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :THEY DIDNT WANT THEIR UGLY TRUTH TO BE EXPOSED....: ]]:= { ^ <https://youtube-nocookie.com/embed/pVZMx487jRY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Transform your life with Purium - Instagram Live Stream with chi3fchacon: ]]:= { ^ <https://youtube-nocookie.com/embed/JpU-fZ1_1UY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :EVERYONE TURNED ON THE KARMIC B!TCH....: ]]:= { ^ <https://youtube-nocookie.com/embed/aY59DExYeT8> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x62a540c0-6112a55c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-6112a55c.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :KARMIC EX LOVER IN BIG REGRET FOR CHOSEN A KARMIC OVER YOU....: ]]:= { ^ <https://youtube-nocookie.com/embed/b2fCobOOs7c> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>![:CASE-ID-0x62a540c0-89ba3e7a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-89ba3e7a.png)
+>
+>![:CASE-ID-0x62a540c0-fb39c43f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-fb39c43f.png)
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Horrifying Moments! Nuclear Capable Jet Fighters Wipe Out Hamas Headquarters: ]]:= { ^ <https://youtube-nocookie.com/embed/pJsbHfCXjmY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :BREAKING: Hamas Leader ELIMINATED, IDF Attacking Gaza TERROR TUNNELS | Israel-Gaza War | TBN Israel: ]]:= { ^ <https://youtube-nocookie.com/embed/EfL653lj8XI> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ FUTURE: is-by: NOW: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Project Blue Book: CIA MK Ultra Program (Season 2) | History: ]]:= { ^ <https://youtube-nocookie.com/embed/QYY5vVuit1Q> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
