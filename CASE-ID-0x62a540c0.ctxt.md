@@ -72,11 +72,11 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Iran's Nightmare! US Doubles Warships Near Israel: ]]:= { ^ <https://youtu.be/YiZEEIrP_J0> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Iran's Nightmare! US Doubles Warships Near Israel: ]]:= { ^ <https://youtube-nocookie.com/embed/YiZEEIrP_J0> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :📢 God Is Exhaulting The Humble & All Eyes Will See | Called & Qualified | Prophetic Word: ]]:= { ^ <https://youtube-nocookie.com/embed/aJuM4HnqS08> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
