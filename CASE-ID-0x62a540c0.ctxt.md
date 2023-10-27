@@ -60,7 +60,7 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :BREAKING: Hamas Leader ELIMINATED, IDF Attacking Gaza TERROR TUNNELS | Israel-Gaza War | TBN Israel: ]]:= { ^ <https://youtube-nocookie.com/embed/EfL653lj8XI> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ FUTURE: is-by: NOW: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-0cc0a96df0a36d28d0205a10de04f3c8e308aa4a> ^ }: ]]:= { RELEVANT: "[[ FU☥URE: is-by: N∅W: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Project Blue Book: CIA MK Ultra Program (Season 2) | History: ]]:= { ^ <https://youtube-nocookie.com/embed/QYY5vVuit1Q> ^ }:
 >
@@ -100,51 +100,51 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-509d8f32.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-509d8f32.png)
 >
+>## *[[ :Cyberpunk Industrial Darksynth Mix - Cybernetic Killer // Royalty Free No Copyright Background Music: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/HHmC1_41vWg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :BREAKING NEWS: Ted Cruz, GOP Senators Rip Biden-Harris Administration At U.S.-Mexico Border: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/mAqdtmmx9ZQ> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ WHERE: WΔ☢️☢️: ☥HΔ: G🚫: N∅W: is-by: 🚫PEN: is-with: ΩSΔ: b0rd3rs: ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-c76652be.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-c76652be.png)
+>
+>## *[[ :MEXICO Battered! Scariest STORM / MONSTER Flash Floods & Landslides, Bridges and Roads Destroyed: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/_1LKcYibuww> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-e99d0f91.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-e99d0f91.png)
+>
+>## *[[ :Wow Who Is This Devine Emperor Moving Towards This Devine Empress 😍🙏❤️🙏: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/JCRJoM_GHs0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :NYDENION: THE LAST STAR WARRIOR 🎬 Exclusive Full Sci-Fi Movie WORLD-Premiere 🎬 English HD 2022: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/BE-8hnMt9sI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-43577b90.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-43577b90.png)
 >
+>## *[[ :Secret Angel Magick For Beginners: A Step-by-step Guide To Genius Spirit Rituals [[ _: spirituality: ]]: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/tvKC_b1-2Xg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
