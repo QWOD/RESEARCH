@@ -20,7 +20,6 @@ function cloudHiveBackup {
     "mkdir ${gitTreePath}/QWOD; cd ${gitTreePath}/QWOD; /usr/bin/env git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
-    "/usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/HYPERMEDIUS.git"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/RESEARCH.git"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/DISCLOSURE.git"
@@ -31,7 +30,7 @@ function cloudHiveBackup {
     "cd ${gitTreePath}/QWOD; /usr/bin/env git pull --no-rebase --ff-only git@github.com:QWOD/DISCLOSURE.git"
   )
   [[ "push" == "${specialWarfareTask}" ]] && specialOperations=(
-    "cd ~/QWOD && toolbox run \"/usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null; /usr/bin/env git config --global user.email ${GHUSER}; /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'; cd ~/QWOD/HYPERMEDIUS && ~/bin/newfig -p; cd ~/QWOD/RESEARCH && ~/bin/newfig -p; cd ~/QWOD/DISCLOSURE && ~/bin/newfig -p\""
+    "/usr/bin/env git config --global user.email ${GHUSER}; /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'; cd ~/QWOD/HYPERMEDIUS && ~/bin/newfig -p; cd ~/QWOD/RESEARCH && ~/bin/newfig -p; cd ~/QWOD/DISCLOSURE && ~/bin/newfig -p"
   )
 
   for sop in "${specialOperations[@]}"; do
@@ -39,7 +38,7 @@ function cloudHiveBackup {
       echo ':[[ :{ ^ '"${sop}"' ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
       [[ "init" == "${sop}" ]] && return 0
     else
-      echo ':[[ :{ ^ '"${sop}"' ^ }: BRANCH-OPERATION: FAIL: ]]:'   
+      echo ':[[ :{ ^ '"${sop}"' ^ }: BRANCH-OPERATION: FAIL: ]]:'
     fi
   done
 }

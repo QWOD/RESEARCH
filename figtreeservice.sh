@@ -14,8 +14,10 @@ pushRepo=true
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
-    if ~/bin/gitupur push; then
-        echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: SUCCESS: ]]:'
+    if toolbox run "/usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null"; then
+      if toolbox run ~/bin/gitupur push; then
+        echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+      fi
     fi
   fi
   exit 0
@@ -23,10 +25,12 @@ fi
 
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
-  while true; do
-    if ~/bin/gitupur push; then
-        echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
-    fi
-    sleep $networkWaitInterval
-  done
+  if toolbox run "/usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null"; then
+    while true; do
+      if toolbox run ~/bin/gitupur push; then
+        echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+      fi
+      sleep $networkWaitInterval
+    done
+  fi
 fi
