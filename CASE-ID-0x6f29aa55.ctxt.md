@@ -37,7 +37,7 @@
 >
 :is-by: [[ ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ ]]:= { ^qwod: Δ: mj12: Δ: agency^ }:
 >
->### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: tasty-little-earth-science-lab: HUMΔN: FEΔ☥HERLE55-CH☥Q∅NS: ]]
+>### :[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :NΩW-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: NΩW: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: CΩLLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: t4sty-1itt13-34rth-sci3nc3-14b: HUMΔN: FEΔ☥HERLE55-CH☥Q∅NS: ]]
 >
 ###
 
