@@ -15,8 +15,8 @@ pushRepo=true
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
-    ( sudo toolbox run /usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null )
-    if sudo toolbox run ~/bin/gitupur push; then
+    ( cd ~/QWOD && /usr/bin/env toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null )
+    if cd ~/QWOD && /usr/bin/env toolbox run ~/bin/gitupur push; then
       echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     fi
   fi
@@ -25,9 +25,9 @@ fi
 
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
-  ( sudo toolbox run /usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null )
+  ( cd ~/QWOD && /usr/bin/env toolbox run /usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null )
   while true; do
-    if sudo toolbox run ~/bin/gitupur push; then
+    if cd ~/QWOD && /usr/bin/env toolbox run ~/bin/gitupur push; then
       echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     fi
     sleep ${updateCheckInterval}
