@@ -4,14 +4,14 @@
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install github.com/hypercasey/passworder@latest; cp -f ~/go/bin/passworder passworder.$(uname -i); sha256sum passworder.$(uname -i) >passworder.$(uname -i).asc; sha256sum -c passworder.$(uname -i).asc; newfig 0x$(./passworder.$(uname -i) -short)
 GHUSER='@138945726+QWOD@users.noreply.github.com'
 homePath=/var/home/hyperuser
-goPath=${homePath}/go
 brevity=513
+goPath=~/go
 localRepoPath=${homePath}/hyperstor/QWOD
 sshHost=secure.us.hyperspire.net
 localForwardOnly=false # :[[ :REMOTE-GIT-TREE: remote: fast-forward: repository: ]]:
 remoteForwardOnly=true
 
-if [ -x "${goPath}/bin/go" ]; then
+if [ -x "$(which go)" ]; then
   [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
   UUID="$(${goPath}/bin/passworder -uuid)" && export UUID="${UUID}"
   FIG="$(${goPath}/bin/passworder -short)" && export FIG="${FIG}"
