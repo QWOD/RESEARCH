@@ -9,15 +9,18 @@
 
 [[ $* = "" ]] && echo "{ NEGATIVE: \"SOLDIER: for-the: clone: is-by: pull: is-by: push:\" }" && exit 1
 specialWarfareTask=${*}
-localPath=/var/home/hyperuser
+localPath=/home/hyperuser
 gitTreePath=${localPath}/hyperstor
 GHUSER='@138945726+QWOD@users.noreply.github.com'
+# :[[ :Mirror-GitHub: Repo:{ ^ gitupur init && gitupur clone ^ }: ]]:
+# :[[ :Update-GitHub: Repo:{ ^ gitupur pull ^ }: ]]:
 
 function cloudHiveBackup {
   [[ "init" == "${specialWarfareTask}" ]] && specialOperations=(
     "mkdir ${gitTreePath}/QWOD; cd ${gitTreePath}/QWOD; /usr/bin/env git init"
   )
   [[ "clone" == "${specialWarfareTask}" ]] && specialOperations=(
+    "/usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/HYPERMEDIUS.git"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/RESEARCH.git"
     "cd ${gitTreePath}/QWOD; /usr/bin/env git clone git@github.com:QWOD/DISCLOSURE.git"

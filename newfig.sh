@@ -64,3 +64,6 @@ if [[ $* != "-p" && $* != "-r" && $* != "-f" && $* != "" ]]; then
   echo "{ FIG: \"CASE-ID-$*-${FIG}.png\" }" && unset FIG
   exit 0
 fi
+if [[ $* == "" ]]; then
+  ~/bin/newfig "$(passworder -short)"
+fi
