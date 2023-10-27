@@ -670,7 +670,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 >![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 >
->[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ https://youtu.be/mymSl_PdoRE ^ }: ]]:
+>[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/qSevkcLvna8?si=F3dzt8cF-s2r49ga> ^ }: ]]:
 >
 >:[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
 >
