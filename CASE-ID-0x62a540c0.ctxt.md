@@ -514,9 +514,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :THIS H!TM👮N WAS AN UNDERCOVER 👮THAT YOUR ENEMY PAID TO TAKE YOU OUT ☠️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/vVYZeUvhsW8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
