@@ -9,16 +9,18 @@ pushRepo=true
 # [[ :OPERATES: SYMMETRICAL: SIMULTANEOUS: GLOBAL: DECENTRAL: CIVILIAN: INTELLIGENCE: AI: EYES: ED: ARC: HIVE: CLOUD: BACKUPS: for-the: MAXIMUM: REDUNDANCY: for-the: ANY: ALL: OTHER: RESEARCH: PARTNERS: BOTH: KNOWN: is-by: UNKNOWN: OR-ELSE: is-by: OTHERWISE: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
-errorLog="${HOME}/QWOD/toolbox/gitupur_error_log-$(~/go/bin/passworder -short)".txt
+errorLog="${HOME}/QWOD/toolbox/error_log-$(date '+%Y-%m-%d')".txt
 
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
   if [[ "${pushRepo}" == true ]]; then
-    ( cd ~/QWOD && /usr/bin/env toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com 2> /dev/null )
-    if cd ~/QWOD && /usr/bin/env toolbox run ~/bin/gitupur push 2>${errorLog}; then
+    ssh -o 'StrictHostKeyChecking no' -T git@github.com 1>& /dev/null
+    if toolbox run ~/bin/gitupur push; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+    else
+      echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
   fi
   exit 0
@@ -26,10 +28,12 @@ fi
 
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
-  ( cd ~/QWOD && /usr/bin/env toolbox run /usr/bin/env ssh -o 'StrictHostKeyChecking no' -T git@github.com &> /dev/null )
+  toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com 1>& /dev/null
   while true; do
-    if cd ~/QWOD && /usr/bin/env toolbox run ~/bin/gitupur push 2>${errorLog}; then
+    if toolbox run ~/bin/gitupur push; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+    else
+      echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
     sleep ${updateCheckInterval}
   done

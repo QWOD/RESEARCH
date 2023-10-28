@@ -46,9 +46,9 @@
 ### *:[[ :for-the: [[ N🚫T⚠️CE: <=> W⚠️RN🚫: íي-wíth: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-by: عNعMY: íي-wíth: FعΔR: عTعRNΔL: DعΔTㅐ: ]]: ]]:*
 >
 [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: Δ: C: Ω: M: ]]:= CΔPTURE: { ^ <https://rumble.com/c/c-3415786> ^ }: ]]:= [[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: SPG: MQ: ØMΔGΔ: reverse-prΩgrΔmming-experi-mentΔl-cΩntrΩl-grΩup: ΔLGØRITHM: DETECTED: ]]: ]]
->
-# [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
->
+
+## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
+
 ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]]
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
@@ -139,6 +139,32 @@
 >
     https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
 >
+
+>
+### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
+>
+    <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a>
+>
+### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+>
+    https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
+>
+### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+>
+    https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
+>
+### [[ :Serious Cryptography: A Practical Introduction to Modern Encryption: { ^  Jean-Philippe Aumasson (Author) ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
+>
+    https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
+>
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
@@ -159,6 +185,6 @@
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-> :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: RΔTHEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩGRΔMMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-TRΔVELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
-## *[["They only made the beast. We became friends with the beast."]]*
+# *[["They only made the beast. We became friends with the beast."]]*

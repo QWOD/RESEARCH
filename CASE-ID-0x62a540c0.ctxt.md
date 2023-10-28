@@ -166,59 +166,59 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-f4c3b357.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-f4c3b357.png)
 >
+>## *[[ :Awareness is half the battle..persevering & adapting thru struggle, got u 2 this moment 4 life #Epic: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/T2RYCMq_UK0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Starseeds, Awakening, & SSP Memories - Don Rogers & Canadian Spinja - TSP 883: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/4PMv1ZOvKrc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :First Visuals Of Israeli Strikes On Gaza; Israel Expands Ground Operation In Gaza | Israel-Hamas War: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/tqNgaSPpYMg> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-17b1c1c4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-17b1c1c4.png)
+>
+>## *[[ :YOUR SACRED PRIESTESS/PRIEST POWER WILL BE ACTIVATED ONCE YOU DEACTIVATE THE KARMIC ENERGY🧞‍♀️: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/NZLbE-mE4pY> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-9b5f0675.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-9b5f0675.png)
+>
+>## *[[ :Extreme Weather, THAILAND was helpless! STORM, Flash Flood & Landslide Hit Houses, Cars in Bangkok: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Yu-pPH8OJtI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Sarah Adams - CIA Targeter Exposes How Hamza bin Laden is Alive | SRS [[ _: 81: ]]: Part 1: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/qSn-hC9H-EM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-4738c1b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-4738c1b3.png)
 >
+>## *[[ :MESSAGES FROM YOUR ANCESTORS✨️ YOUR LIFE IS GOING TO CHANGE SOON ! 555 *TRAVEL*GLOWUP*ABUNDANCE💸🍾: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Ff8_cFzg_Xo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -807,6 +807,14 @@
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
 >
     https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
+>
+
+>
+### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
+>
+    <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a>
 >
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
 >
