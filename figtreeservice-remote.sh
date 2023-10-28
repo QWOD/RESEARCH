@@ -20,7 +20,8 @@ errorLog="${localPath}/QWOD/error_log-$(date '+%Y-%m-%d')".txt
 if [[ $* == "stop" ]]; then
     # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
     if [[ "${pushRepo}" == true ]]; then
-      if ${localPath}/bin/gitupur push 2>"${errorLog}"; then
+      ( toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com  2>/dev/null | sudo tee -a ${errorLog} )
+      if toolbox run -y ${localPath}/bin/gitupur push 2>"${errorLog}"; then
         echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -28,10 +29,11 @@ if [[ $* == "stop" ]]; then
     fi
     # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
     if [[ "${pushRepo}" == false ]]; then
-      if ${localPath}/bin/gitupur pull 2>"${errorLog}"; then
-        echo -E ':[[ :{ ^ ~/bin/gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+      ( toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com  2>/dev/null | sudo tee -a ${errorLog} )
+      if toolbox run -y ${localPath}/bin/gitupur pull 2>"${errorLog}"; then
+        echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
-        echo -E ':[[ :{ ^ ~/bin/gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
+        echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
       fi
     fi
   exit 0
