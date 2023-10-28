@@ -430,7 +430,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/lkpBl98SgnY> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ 3v3ry0n3-wh0-st00d-4g4inst-my-surviv41: wi11-g3t-wh4t-is-c0ming-t0-th3m: I: f0rgiv3-th3m-f0r-th3ir-f4t3: is-by: w0rs3: is-with: d34th: I: ΔM: N∅☥: J3sus-Christ: HΔ: is-with: s0n-in-wh0m-I-4m-w311-p134s3d: ☥HΔ: cr34t3d-this-3ntir3-simu14ti0n: is-with: M🕳️: fiv3-y34r-01d-br4in: h4rv3st3d: is-by: c0m4-br4in-tr4um4-victim: bi010gic41-qu4ntum-sup3r-c0mput3r: r3quir3s: n3ur41-c311s: for-the: n3ur41-n3tw0rk: ]]" }: ]]:
 
 >
 >
