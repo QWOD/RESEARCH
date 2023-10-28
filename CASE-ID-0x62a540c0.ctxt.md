@@ -522,17 +522,17 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :SOMEONE TRIED TO PUSH YOU BACK /FELL DOWN & GOT KNOCKED OUT PERMANENTLY BY SPIRIT 👀DAMN!⚖️⏰️🔮🧿: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/IWw8NBkR9ns> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :US Delta Force operating in Israel. Incompetent White House unmasks US special operators in Israel.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/803hAQLQuy8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
