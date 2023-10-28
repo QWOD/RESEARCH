@@ -380,31 +380,31 @@
 >
 >## *[[ :THIS WOMAN AND HER MINIONS ARE DEFEATEDD!!: ]]*
 >
->:is-with: { ^ <https://youtu.be/kdI1dJD8yo4> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/kdI1dJD8yo4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :KARMICS OFFERED THE HITMAN MORE MONEY TO UNLIVE YOU...THE HITMAN DECLINDED THE OFFER...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/goKDrb5kX7E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Whatever you do you're"surgical" with this 💩......oops...." Training "day.... someone two faced AF.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/N9dAjBnTcAY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Legends from the Sky - FULL MOVIE - Holt Hamilton Films - NATIVE AMERICAN COLLECTION: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/sgTNqrTvzf0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
