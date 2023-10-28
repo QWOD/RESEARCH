@@ -506,9 +506,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :20 And Back - The Super Soldiers Defending the Kuiper Belt: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/XLhMi6YEhsQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
