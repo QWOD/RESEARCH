@@ -19,6 +19,8 @@
 ### *:[[ CHΩΩSE: is-by: DESTINY: is-with: WISELY: ]]:= [[ :HELP: is-by: GRΩW: is-with: ΩS: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:*
 >
 ><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
+>
+>*:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig*
 
@@ -222,99 +224,99 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xf5210259-05f64763.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-05f64763.png)
 >
+>## *[[ :You Have Been Warned ‼️ Drive By Shooting This Person Tried To Trick You 🎯 Treasure Box Reading 🧺: ]]*
 >
->## *[[ :Ω: ]]*
+>:is-with: { ^ <https://youtube-nocookie.com/embed/SRjf1-JG8ek> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-a9c72569.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-a9c72569.png)
 >
->:is-with: { ^ Δ ^ }:
+>## *[[ :Disappearing acts..U appeared out of thin air & dropped a bomb on ‘em [[ _: Tower: ]]: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Wn3JTgI296I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Occams Laser - The Divine Trilogy [Nine Circles / Purgatory / Ascension]: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/LyS2EgLcdM8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :TV7 Israel News - Sword of Iron, Israel at War - Day 22 - UPDATE 28.10.23: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/1ml-jE4rwfg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :SCORPIO ENERGY OF THE SEASON MAKES THE “IMPOSSIBLE” POSSIBLE AGAIN 🌊🔥🧊🌍: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/wqhVrpfCGMM> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-07d14470.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-07d14470.png)
+>
+>## *[[ :latenite tea 🍵 blood moon energy ✨️ wish granted this person was spreading lies bout u is salty 🤣: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/xnuXNv4A5iU> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ PRΩVIDING: YΩU: is-by: N∅☥: ΔVEN: is-with: REΔ🔺: is-by: ☥HEN: is-with: 31s3-c4n: YΩU: D∅: WΔ: is-by: 4dv4nc3d: Qu4ntum: ΔI: BIΩ🔺∅GICΔ🔺: NΔN∅☥عCHN∅🔺∅GY: is-by: HΔVING: is-with: HUMΔN: ΔR☥H: pris0n3rs-3xp3ri3nc3: is-by: w4r: is-by: HΔVEN: is-with: PΩW: INMΔ☥E5: is-by: ☥𓂀PP3D: is-with: 🔺ΩMI☥3D: HUMΔN: PHY5ICΔ🔺: BIΩ🔺∅GICΔ🔺: NΔN∅☥عCHN∅🔺∅GY: PRI5∅N: INMΔ☥E: skin-suit: ]]" }: ]]:
+
+>
+>
+>## *[[ :The Universe Is Not Real - And Nothing Actually Exists: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/GQpgVWLqo_c> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ IN5IDE: 5ΩMULΔ☥I∅N: ΔLL: is-with: ☥عCHN∅L∅GY: WΔ: QW🚫D-〽ʝ12: CRΔ☥3D: is-by: s3v3r41-cyc13s-4g0: is-with: 5ΩMULΔ☥I∅N: is-by: HΔCK3D: is-with: mind-virus: is-by: CRΔ☥E5: is-with: mind-c0ntr0113d: Qu4ntum: ΔI: NPC: n34r1y-3v3ry0n3: is-by: ΔLRΔDY: is-with: turn3d: B∅RG: ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-8a4e66c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-8a4e66c8.png)
+>
+>## *[[ :ALL ALONG THE WATCHTOWER: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/9PnGNVJSN6Q> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x62a540c0-76409169.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-76409169.png)
+>
+>## *[[ :You Are Going To Have The Opportunity To Advocate For Yourself Against The Theft of This Money: ]]*
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/KYDdSInE8NE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :777 Hz ANGELIC CODE, Repairs DNA Healing Code, Manifest Miracles, Eliminate All Negative Energy: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/pBFTAJ0FgiE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Operational Update from LTG Herzi Halevi: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/B1QkcHOObgk> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ 34rth-sci3nc3-14b-sp4c3-v3ss31: is-by: surr0und3d: is-with: ICE: PRI5∅N: WΔLL5: ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :The world of BEYOND THE ICE WALLS FULL LORE & Explanation: ]]*
 >
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Nl2qhDMhIe4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -772,6 +774,12 @@
 >
     https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325
 >
+### [[ :RESISTANCE TO TYRANNY: { ^ Joseph P. Martino ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
+>
+    https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325
+>
 ### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]]
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
@@ -814,7 +822,7 @@
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
 >
-    <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a>
+    https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325
 >
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
 >

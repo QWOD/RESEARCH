@@ -19,6 +19,8 @@
 ### *:[[ CHΩΩSE: is-by: DESTINY: is-with: WISELY: ]]:= [[ :HELP: is-by: GRΩW: is-with: ΩS: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:*
 >
 ><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
+>
+>*:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig*
 
@@ -730,6 +732,12 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
     https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325
 >
+### [[ :RESISTANCE TO TYRANNY: { ^ Joseph P. Martino ^ }: ]]
+>
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
+>
+    https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325
+>
 ### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]]
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
@@ -772,7 +780,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
 >
-    <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a>
+    https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325
 >
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]]
 >

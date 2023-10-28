@@ -22,7 +22,7 @@ package main
 // [ mercuri:RESEARCH ] ⥈ cryptor ':[[ :for-the: [[ QWOD-MJ12: OPERATION: DARKTIDE: is-with: CHARLIE-MIKE: for-the: return ]]:= TRUE: ]]:'
 // :[[ :for-the: [[ QW🚫D-〽ʝ12: ΩPE𓂀T☥∅N: DΔRKT☥DE: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 
-// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f cryptor.$(uname -i) ~/go/bin/cryptor; sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
+// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f cryptor.$(uname -m) ~/go/bin/cryptor; sha256sum cryptor.$(uname -m) >cryptor.$(uname -m).asc; sha256sum -c cryptor.$(uname -m).asc; ./cryptor.$(uname -m) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 
 import (
 	"fmt"
@@ -64,15 +64,15 @@ func main() {
 		crypTexTranslated = strings.Replace(crypTexTranslated, "CrypTex™:", "CrΔp☥Δx™:", -1)
 		crypTexTranslated = strings.Replace(crypTexTranslated, "OMEGA:", "∅MΔGΔ:", -1)
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EY", "Δ")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " HE", " HΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " WE", " WΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, " US", " ΩS")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV", "ΔV")
+		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IM", "ΩM")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "UN", "ΩN")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IL", "ΔL")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "HEM", "HΔM")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EV", "ΔV")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "YE", "YΔ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "KA", "Q∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EQ", "عQ")
@@ -86,7 +86,6 @@ func main() {
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "DO", "D∅")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "RA", "𓂀")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EL", "ΔL")
-		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EAR", "ΔR")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "IE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "ET", "عT")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "A", "Δ")
