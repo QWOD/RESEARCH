@@ -320,43 +320,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-e7e104dc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-e7e104dc.png)
 >
+>## *[[ :Built a portfolio off of ur life and now, it has ruined everything 4 them..no more illusions [[ _: Win4U: ]]: ✨: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/s9klNokSmkg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Understanding charms, curses, spells and such like things of the enemy.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/bHKHDtL9hpE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :THE KARMICS ARE HAVING A MEETING TODAY....ITS SATURDAY.....: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/YP90-3xxrD0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :God Said "Mass Hysteria" is Coming. Are You Ready?: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/7MAeI0SGGCM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :The Remnant Rising is LIVE!: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/IRyXD8PWFQY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
