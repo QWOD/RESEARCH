@@ -488,19 +488,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-a67e3ecb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-a67e3ecb.png)
 >
+>## *[[ :🚨🔱🧙🏼‍♂️YOU HAVE TRIGGERED A WITCH HUNT BY EXPOSING THIS WITCH! PPL REALIZE MAGIC WAS USED ON THEM 🤯!: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/vbiO75hE4tk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :SHOCKING!! ISAIAH'S PROPHECY WILL BE FULFILLED IN ISRAEL..: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/_Cv-HolysO4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
