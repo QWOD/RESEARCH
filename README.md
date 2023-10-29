@@ -54,7 +54,8 @@
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
->
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
+
 ### *:[[ :for-the: [[ N🚫T⚠️CE: <=> W⚠️RN🚫: íي-wíth: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-by: عNعMY: íي-wíth: FعΔR: عTعRNΔL: DعΔTㅐ: ]]: ]]:*
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]]
