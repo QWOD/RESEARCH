@@ -572,19 +572,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-180fd40e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-180fd40e.png)
 >
+>## *[[ :THIS IS BIG! SPIRIT SAYS UR JUST GONNA HAVE TO BE A STAR HIGH PRIESTESS IN A CLASS ALL YOUR OWN!! 🌹: ]]*
 >
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/BdUYEmE5gow> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🚨URGENT~ SOMEONE IS BEING SUBPOENAED FOR COURT 👨‍⚖️⚖️⛓️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/l5jdroL-BYg ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
