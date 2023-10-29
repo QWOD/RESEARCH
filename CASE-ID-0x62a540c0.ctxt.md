@@ -52,11 +52,9 @@
 >
 >:[[ :*🚫PعD*: ]]:= [[ :KARMIC EX LOVER IN BIG REGRET FOR CHOSEN A KARMIC OVER YOU....: ]]:= { ^ <https://youtube-nocookie.com/embed/b2fCobOOs7c> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
 >![:CASE-ID-0x62a540c0-fb39c43f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-fb39c43f.png)
+>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ GOOD: START: is-with: UNFORTUNATELY: MORE: HORRIFYINGLY: UGLY: BUILDINGS: is-by: STILL: is-with: STANDING: for-the: [[ ANY: ALL: OTHER: horrifyingly-ugly-buildings: MUST: BE: DESTROYED: is-by: BEFORE: is-with: HALLOWEEN: is-by: OVER: ]]: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Horrifying Moments! Nuclear Capable Jet Fighters Wipe Out Hamas Headquarters: ]]:= { ^ <https://youtube-nocookie.com/embed/pJsbHfCXjmY> ^ }:
 >
