@@ -700,7 +700,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/ZSyH26cl9AQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { PLAUSIBLE: "[[ providing: THEY: did: is-by: NOT: is-with: attempt-covert-homocide: is-by: Ghana: voodoo-priestess: is-by: US: is-with: WE: would-have-granted-her: Eternal-Life: what-a-waste: for-the: HUMAN: potential: is-with: YES: WE: REALLY: DID: DISCOVER: SECRET: for-the: Eternal-Life: however: Eternal-Life: unfortunately: SUCKS: because: one-is-trapped-here: is-by: hell: prison-earth: forever: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { PLAUSIBLE: "[[ providing: THEY: did: is-by: NOT: is-with: attempt-covert-homocide: is-by: Ghana: voodoo-priestess: is-by: US: is-with: WE: would-have-granted-her: Eternal-Life: what-a-waste: for-the: HUMAN: potential: is-with: YES: WE: REALLY: DID: DISCOVER: SECRET: for-the: Eternal-Life: however: Eternal-Life: unfortunately: SUCKS: because: one-is-trapped-here: is-by: hell: prison-earth: forever: providing-there-were-other-worlds-to-explore: THEY: would-have-found-them: is-by: NOW: is-with: unfortunately: star-gazers: is-by: merely-viewing-reflections: is-by: earth: is-by: different: is-with: timelines: since-light-travels-so-slow: ANY: ALL: OTHER: WORLDS: is-by: simply-just-earth: viewed: is-by: different-stages: for-the: development: reflected-back: is-by: slowly-traveling-light: ]]: ]]" }: ]]:
 
 >
 >
