@@ -54,7 +54,7 @@
 >
 >![:CASE-ID-0x62a540c0-fb39c43f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-fb39c43f.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-0cc0a96df0a36d28d0205a10de04f3c8e308aa4a> ^ }: ]]:= { TRUE: "[[ G🚫∅D: 5☥ΔR☥: is-with: ΩNF∅R☥ΩNΔ☥ΔLY: M∅RE: +∅RRIFYINGLY: UGLY: BUΔLDING5: is-by: 5☥ΔLL: is-with: 5☥ΔNDING: for-the: [[ ΔNY: ΔLL: Ω☥+ER: h0rrifying1y-ug1y-bui1dings: MU5☥: BE: DE5☥RΩYΔD: is-by: BEF∅RE: is-with: +ΔLLΩWEEN: is-by: ΩVER: for-the: [[ PRΩ-☥IP: is-with: 3r3ct-b34utifu1-bui1dings: is-by: ENEMY: is-with: 13ss-1ik31y-t0-d3str0y: W+EN: ☥+Δ: c4ptur3: YΩUR: c0untry: is-by: f0rc3: is-with: YΩU: is-by: int0: is-with: hum4n-tr4fficking: ]]: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-0cc0a96df0a36d28d0205a10de04f3c8e308aa4a> ^ }: ]]:= { TRUE: "[[ G🚫∅D: 5☥ΔR☥: is-with: ΩNF∅R☥ΩNΔ☥ΔLY: M∅RE: +∅RRIFYINGLY: UGLY: BUΔLDING5: is-by: 5☥ΔLL: is-with: 5☥ΔNDING: for-the: [[ ΔNY: ΔLL: Ω☥+ER: h0rrifying1y-ug1y-bui1dings: MU5☥: BE: DE5☥RΩYΔD: is-by: BEF∅RE: is-with: +ΔLLΩWEEN: is-by: ΩVER: for-the: [[ PRΩ-☥IP: is-with: 3r3ct-b34utifu1-bui1dings: is-by: ENEMY: is-with: 13ss-1ik31y-t0-d3str0y: W+EN: ☥+Δ: c4ptur3: YΩUR: c0untry: is-by: f0rc3: is-with: YΩU: is-by: int0: is-with: hum4n-tr4fficking: ]]: ]]: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Horrifying Moments! Nuclear Capable Jet Fighters Wipe Out Hamas Headquarters: ]]:= { ^ <https://youtube-nocookie.com/embed/pJsbHfCXjmY> ^ }:
 >
@@ -95,7 +95,7 @@
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
->
+>33
 >## *[[ :🔴 (NSFW) Israeli Ground Assault into Gaza Begins | Combat Footage Show: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/OYaT7LEw2xg> ^ }:
@@ -560,7 +560,7 @@
 
 >![:CASE-ID-0x62a540c0-8bc61370.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-8bc61370.png)
 >
->## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: HELP: SUPPORT: PLEASE: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: THANK: YOU: ]]: ]]: ]]*
+>## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: help: financial-support-please: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: THANK: YOU: ONE: THOUSAND: TIMES: ]]: ]]: ]]*
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
