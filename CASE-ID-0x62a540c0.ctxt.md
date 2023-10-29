@@ -54,7 +54,7 @@
 >
 >![:CASE-ID-0x62a540c0-fb39c43f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-fb39c43f.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ GOOD: START: is-with: UNFORTUNATELY: MORE: HORRIFYINGLY: UGLY: BUILDINGS: is-by: STILL: is-with: STANDING: for-the: [[ ANY: ALL: OTHER: horrifyingly-ugly-buildings: MUST: BE: DESTROYED: is-by: BEFORE: is-with: HALLOWEEN: is-by: OVER: ]]: ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-0cc0a96df0a36d28d0205a10de04f3c8e308aa4a> ^ }: ]]:= { TRUE: "[[ GOOD: START: is-with: UNFORTUNATELY: MORE: HORRIFYINGLY: UGLY: BUILDINGS: is-by: STILL: is-with: STANDING: for-the: [[ ANY: ALL: OTHER: horrifyingly-ugly-buildings: MUST: BE: DESTROYED: is-by: BEFORE: is-with: HALLOWEEN: is-by: OVER: ]]: ]]" }: ]]:
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Horrifying Moments! Nuclear Capable Jet Fighters Wipe Out Hamas Headquarters: ]]:= { ^ <https://youtube-nocookie.com/embed/pJsbHfCXjmY> ^ }:
 >
@@ -68,7 +68,7 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->![:CASE-ID-0x62a540c0-c40f4665.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-c40f4665.png)
+>
 >
 >:[[ :*🚫PعD*: ]]:= [[ :Shocking revelation 4 those still binded 2 SN Karma..you’ve stepped n2 ur NN & no protection 4 them: ]]:= { ^ <https://youtube-nocookie.com/embed/DiJ0ZbuJ3bM> ^ }:
 >
