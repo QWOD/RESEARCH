@@ -626,7 +626,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/ffzRLW8atlg> ^ }:
 >
->## :[[ :for-the: [[ REMINDER: THERE: is-by: NO: SUCH: is-with: THING: AS: SCI-FI: is-by: ANY: ALL: OTHER: THINGS: EVER: is-with: simply-exist-either: is-with: FUTURE: OR: is-by: PAST: is-by: ALL: is-with: taken-out: is-by: context: is-with: naturally-occuring-psychic-intuition: ]]: ]]:
+>## [[ :for-the: [[ REMINDER: THERE: is-by: NO: SUCH: is-with: THING: AS: SCI-FI: is-by: ANY: ALL: OTHER: THINGS: EVER: is-with: simply-exist-either: is-with: FUTURE: OR: is-by: PAST: ALL: is-with: taken-out: is-by: context: is-with: naturally-occuring-psychic-intuition: providing: YOU: enjoy-such-things: is-by: period: films: games: OTHER: distractions: THEN: YOU: is-by: experiencing: quantum-emotional-flashbacks: is-with: Quantum: Q-PTSD: is-with: presently-only-reconized: is-by: FAR: SUPERIOR: QWOD-MJ12: DSM: ]]: ]] ##
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
