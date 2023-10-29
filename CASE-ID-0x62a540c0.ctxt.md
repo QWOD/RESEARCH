@@ -606,9 +606,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :CrypTEX™: easily compiles into any language since it is basically just a colon delimited text database: is-by: ONLY: certain characters are recognized: [: ]: are optional: THEY: contribute towards logical interpretation: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://github.com/QWOD/RESEARCH/blob/master/CrypTEX.ctxt.md> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
