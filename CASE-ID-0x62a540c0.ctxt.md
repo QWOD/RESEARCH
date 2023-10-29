@@ -658,7 +658,7 @@
 >
 >## *[[ :Alienated | Full Movie | Sci-Fi Drama: ]]*
 >
->:is-with: { ^ <https://youtu.be/0Te2m_y4TXI> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0Te2m_y4TXI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -666,31 +666,31 @@
 >
 >## *[[ :NO ONE COMPARES 2 U😩PLEASE DONT GO‼️WAS AFRAID U'D HATE ME ONCE U KNEW WHAT I DID 2 U BEHIND UR BACK: ]]*
 >
->:is-with: { ^ <https://youtu.be/4s-ayc1Pfic> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/4s-ayc1Pfic> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :100 China Rivers overflow, drowning Chongqing when 220,000 Chinese Residents sleep at night: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ymUQtK8ZM08> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :FULL MOON IN ♉️ ECLIPSE: THE FALL OF OLD WORLD SYSTEMS & INSTITUTIONS; RECLAIMING DIVINE TRUTH: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Jx8CqNQiQFE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Time Changer | Full Movie | Is Time Travel possible? A Rich Christiano Film: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RYCqZOEpPxE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
