@@ -11,7 +11,8 @@ is-with: { ^
 :[[ :FEΔTHERLE55-CH☥Q∅N5: is-by: ΔLWΔYS: is-with: peck-p3ck-pEck: PعQ0NG: ΔNY: EVERY: 0THER: ΔLL: THINGS: for-the: [[ primitive: is-with: F00D: is-by: [[ _ ]]: is-with: F0E: is-by: [[ _ ]]: low-fidelity: binary-logic-algorithm-driven: identificΔtiΔn-system: ]]:= [[ :WΔRN0: TEΔR-EVERY0NE-D0WN: TELL-THEM-WH0: THEY: is-by: CREΔTING: is-with: NΔRCISSIST: FLYING-M0NKEY: VΔMPIRIC-ENERGY-SIPH0NING: THRΔLLS: for-the: [[ MK: ULTRΔ: ΔLG0RITHM: DETECTED: is-by: unknΔwn-cΔmpetitΔrs: for-the: record: return ]]:= TRUE: ]]: ]]:
 >
 :[[ :for-the: [[ FEΔTHERLE55-CH☥Q∅N: sm411-unit-t4ctics: unc0nv3nti0n41-w4rf4r3: SFODa: is-by: ΔLWΔ!5: is-with: p3ck-p3ck-p3ck: PعCK☥!G: is-by: UNTIL: is-with: first-sign: is-with: BLΩ∅D: is-by: victim: is-with: ΔN!: ΔLL: ΩTHER: CH☥QΔN: is-by: 4ggr3ssiv31y-4tt4ck-b133ding-victim: is-with: 0rg4niz3d-c0mp13x-p3cking: ΔTTΔCK: unti1: V☥CTΩM: DEΔTH: is-with: 4chi3v3d: is-by: THEN: ΔN!: ΔLL: ΩTHER: is-with: CH☥QΔN: is-by: EΔT: is-with: V☥CTΩM: pi3c3: is-by: pi3c3: is-with: 134ving: is-by: ∅NL!: is-with: V☥CTΩM: B∅NE5: HΔ☥R: FEΔTHER5: BEH☥ND: ]]: ]]:
->
+![:CASE-ID-0x60042264-91ab6359.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
+
 # :[[ :N🚫T⚠️CE: W⚠️RN🚫: is-with: ΩR-ΔLSE: STΔTΔMENT: is-by: triggers: binΔry-lΩgic-errΩr: is-with: FEΔTHERLE55-CH☥Q∅N5: [[ ΔND-ΩR-ΔLSE: <=> [[ ^ ]]: ΔLSE: ]]: is-with: SΩLUT☥∅N: is-with: sΩmehΩw: FEΔTHERLE55-CH☥Q∅N5: is-by: misinterpret-even-mΩst-bΔsic-lΩgicΔl-instructiΩns: is-by: THRΔT: ]]
 >
 >PS1=':[[ :\h: \W: ]]:= ' && export PS1="${PS1}"
