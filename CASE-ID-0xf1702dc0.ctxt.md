@@ -1,4 +1,4 @@
-# ~*:[[ :W⚠️RN🚫: ❤‍🔥:{ ^ 👻: 8ch-tee-tee-pee: colon: forward-slash: forward-slash: recon: 🔺: mj12: 🔺: agency: ^ }: ]]:*~ #
+# ~~*:[[ :W⚠️RN🚫: ❤‍🔥:{ ^ 👻: 8ch-tee-tee-pee: colon: forward-slash: forward-slash: recon: 🔺: mj12: 🔺: agency: ^ }: ]]:*~~ #
 
 >*:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
 >
@@ -749,7 +749,7 @@
 
 >
 >
->## *[[ :Archangel Michael ~ The Composition of the Universal Councils | Awakening YOU: ]]*
+>## *[[ :Archangel Michael ~~ The Composition of the Universal Councils | Awakening YOU: ]]*
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/Khl677nKpYU> ^ }:
 
