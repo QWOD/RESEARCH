@@ -39,13 +39,15 @@
 
     :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 
-## *:[[ :systemd-local: figtreeservice: ]]:*
-
-![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/systemd-figtreeservice.png)
-
-## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:*
-
-![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
+>## *:[[ :systemd-local: figtreeservice: ]]:*
+>
+>![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/systemd-figtreeservice.png)
+>
+>## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:*
+>
+>![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
+>
+>##:[[ :While: is-by: more-complex: is-by: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: CrypTEX™: is-by: backwards-compatible: is-with: QPSG: FTW: is-by: dedicated: is-with: great-honor: for-the: David-Wynn: Miller: RIP:{ ^ https://en.wikipedia.org/wiki/David_Wynn_Miller ^}: ]]:
 
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
