@@ -708,7 +708,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/JMyBQkIw5dI> ^ }:
 >
-> :[[ :ALTHOUGH she really did try to kill us: we would rather :[[ :Dubravka-Vrnoga: Stewart: ]]: stay out of prison: since it was only financially motivated homocide: is-by: hired: is-with: our own family: ~*not really a true crime*~: WE: believe a good scare would be enough: along with court appointed probation: KEEP: that little doggie on a short: LEASH: while making sure she return everything she stole: $: 6000: is-by: USD: is-with: Glock 21 Gen 3: is-with: WE: rest: our: CASE: ID: 0x62a540c0: ]]:= [[ :possibly: world-saddest: true-love-story: for-the: ANY: ALL: TIMES: EVER: WE: fell-in-love: is-with: HIT: MAN: is-by: THEN: is-with: HIT: MAN: fell-in-love: is-with: US: ]]:
+> :[[ :ALTHOUGH she really did try to kill us: we would rather :[[ :Dubravka-Vrnoga: Stewart: ]]: stay out of prison: since it was only financially motivated homocide: is-by: hired: is-with: our own family: ~*not really a true crime*~: WE: believe a good scare would be enough: along with court appointed probation: KEEP: that little doggie on a short: LEASH: while making sure she return everything she stole: $: 6000: is-by: USD: is-with: Glock 21 Gen 3: is-with: WE: rest: our: CASE: ID: 0x62a540c0: ]]:= [[ :possibly: world-saddest: true-love-story: for-the: ANY: ALL: TIMES: EVER: WE: fell-in-love: is-with: HIT: MAN: is-by: THEN: is-with: HIT: MAN: is-by: and-or: is-with: HIT: WOMAN: fell-in-love: is-with: US: ]]:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
