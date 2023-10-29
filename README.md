@@ -46,6 +46,10 @@
 >## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:*
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
+
+>### ***:[[ :NOTICE: WARNO: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]:***
+>
+>:is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
 >##:[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]:
 >
