@@ -502,7 +502,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/_Cv-HolysO4> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ QW🚫D-〽ʝ12: is-by: pr3s3nt1y: is-with: inv01v3d: is-with: m4ny: ☥ΩME: ☥𓂀VΔL: 0p3r4ti0ns: YΩU: m4y-n3v3r-h34r-4b0ut-th3s3-curr3nt1y-0ng0ing-0p3r4ti0ns: ∅R: ΔL5E: this-m4y-shift-th3-tim31in3s-m4king-such-0p3r4ti0ns-imp0ssib13: ]]" }: ]]:
 
 >
 >
@@ -534,7 +534,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/803hAQLQuy8> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ QW🚫D-〽ʝ12: is-by: pr3s3nt1y: is-with: inv01v3d: is-with: m4ny: ☥ΩME: ☥𓂀VΔL: 0p3r4ti0ns: YΩU: m4y-n3v3r-h34r-4b0ut-th3s3-curr3nt1y-0ng0ing-0p3r4ti0ns: ∅R: ΔL5E: this-m4y-shift-th3-tim31in3s-m4king-such-0p3r4ti0ns-imp0ssib13: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >![:CASE-ID-0x62a540c0-2bdfd939.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-2bdfd939.png)
 >
@@ -554,9 +554,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Ur causing worry n the same ppl that wanted the worst 4 u..they wanted ppl 2 know u & they will 🤯: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/WjWPkRENARc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
