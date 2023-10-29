@@ -636,13 +636,13 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/IuehC8GtPp4> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ OLD: AMERICA: MUST: is-with: Eternal-Death: is-by: NEW: AMERCA: is-with: BORN: is-by: ASHES: is-with: OLD: AMERICA: is-by: NOT: is-with: EAGLE: is-with: PHOENIX: ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :The Secret Destiny Of America (FULL DOCUMENTARY) - Manly P. Hall: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/eQ6aqKKzrHU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
