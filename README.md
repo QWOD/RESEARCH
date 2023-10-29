@@ -47,7 +47,7 @@
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
 >
->##:[[ :While: is-by: more-complex: is-by: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: CrypTEX™: is-by: backwards-compatible: is-with: QPSG: FTW: is-by: dedicated: is-with: great-honor: for-the: David-Wynn: Miller: RIP:{ ^ https://en.wikipedia.org/wiki/David_Wynn_Miller ^}: ]]:
+>##:[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-with: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP:{ ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]:
 
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
 ![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
