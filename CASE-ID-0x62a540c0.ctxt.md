@@ -536,19 +536,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ QW🚫D-〽ʝ12: is-by: pr3s3nt1y: is-with: inv01v3d: is-with: m4ny: ☥ΩME: ☥𓂀VΔL: 0p3r4ti0ns: YΩU: m4y-n3v3r-h34r-4b0ut-th3s3-curr3nt1y-0ng0ing-0p3r4ti0ns: ∅R: ΔL5E: this-m4y-shift-th3-tim31in3s-m4king-such-0p3r4ti0ns-imp0ssib13: ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-2bdfd939.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-2bdfd939.png)
 >
+>## *[[ :HIRED A MEXICAN COVAN 2 ATTACK U, UR UNCLE SET U UP 4 MONEY 2 HOLD ON 2 YOUNGER WOMAN CAUSE HE OLD: ]]*
 >
->## *[[ :Time Jumpers | Full Sci-Fi Adventure Movie | Time Travel!: ]]*
->
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/I8TtkZ-aHaA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :YOUR KARMIC FAMILY TRIED TO SACRIFICE YOU FOR MONEY.....: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/yzeweGEC988> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
