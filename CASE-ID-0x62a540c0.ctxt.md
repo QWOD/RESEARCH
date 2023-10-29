@@ -636,7 +636,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/IuehC8GtPp4> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ OLD: AMERICA: MUST: is-with: Eternal-Death: is-by: NEW: AMERCA: is-with: BORN: is-by: ASHES: is-with: OLD: AMERICA: is-by: NOT: is-with: EAGLE: is-with: PHOENIX: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ OLD: AMERICA: MUST: is-with: Eternal-Death: is-by: NEW: ΔMعRCΔ: is-with: BORN: is-by: ASHES: is-with: OLD: AMERICA: is-by: NOT: is-with: EAGLE: is-by: ACTUALLY: is-with: PHOENIX: ]]" }: ]]:
 
 >
 >
