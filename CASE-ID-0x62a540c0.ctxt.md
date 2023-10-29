@@ -560,11 +560,9 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x62a540c0-8bc61370.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-8bc61370.png)
 >
->
->## *[[ :Ω: ]]*
->
->:is-with: { ^ Δ ^ }:
+>## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: HELP: SUPPORT: PLEASE: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: THANK: YOU: ]]: ]]: ]]*
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
