@@ -560,15 +560,15 @@
 
 >![:CASE-ID-0x62a540c0-8bc61370.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x62a540c0-8bc61370.png)
 >
->## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: help: financial-support-please: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: THANK: YOU: ONE: THOUSAND: TIMES: ]]: ]]: ]]*
+>## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: help: financial-support-please: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: WE: HUMBLY: THANK: YOU: ONE: THOUSAND: TIMES: ]]: ]]: ]]*
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :THIS STATUESQUE EMPEROR COVERS ALL HIS BASES 🔥💦🌪️🪵 THE PERFECT SYMPOSIUM OF CREATION 🥵: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/30InD9mu4Co> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
