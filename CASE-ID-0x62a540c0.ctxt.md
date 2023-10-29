@@ -584,23 +584,23 @@
 >
 >## *[[ :🚨URGENT~ SOMEONE IS BEING SUBPOENAED FOR COURT 👨‍⚖️⚖️⛓️: ]]*
 >
->:is-with: { ^ <https://youtube-nocookie.com/embed/l5jdroL-BYg ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/l5jdroL-BYg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :YOUR OWN FAMILY SOLD YOU OUT ITS A BIG 🪤 THEY 👮WAITING FOR YOU‼️🚓⛓️: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/nWHtvy701dE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Hezbollah ready for open war with Israel? | Untangled: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Re2KlOBKHOA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
