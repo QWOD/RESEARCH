@@ -700,13 +700,13 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/ZSyH26cl9AQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { PLAUSIBLE: "[[ providing: THEY: did: is-by: NOT: is-with: attempt-covert-homocide: is-by: Ghana: voodoo-priestess: is-by: US: is-with: WE: would-have-granted-her: Eternal-Life: what-a-waste: for-the: HUMAN: potential: is-with: YES: WE: REALLY: DID: DISCOVER: SECRET: for-the: Eternal-Life: however: Eternal-Life: unfortunately: SUCKS: because: one-is-trapped-here: is-by: hell: prison-earth: forever: ]]: ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :🚨TRIGGER WARNING🚨HOW DO I TELL YOU I DON'T HAVE LONG TO LIVE...YOU ARE THE LOVE OF MY LIFE🙌🏽😔😳: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/JMyBQkIw5dI> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
