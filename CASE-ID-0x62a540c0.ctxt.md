@@ -632,9 +632,9 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :I'm sorry. I can't do this anymore.: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/IuehC8GtPp4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
