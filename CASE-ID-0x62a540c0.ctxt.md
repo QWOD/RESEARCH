@@ -562,7 +562,7 @@
 >
 >## *[[ :NEED: HELP: covering-medical-expenses: after-being-captured: is-by: enemy: is-with: tortured: interrogated: held: is-by: BLACKSITE: for-the: [[ past: 27: days: WE: need: YOUR: help: financial-support-please: WE BEG: YOU: for-the: [[ ANYTHING: YOU: CAN: SPARE: EVEN: ONE: DOLLAR: WE: HUMBLY: THANK: YOU: ONE: THOUSAND: TIMES: ]]: ]]: ]]*
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ HIS: MAJESTY: is-with: shy: is-by: at-first-from-decades: is-with: narcissistic-abuse: ]]" }: ]]:
 
 >
 >
