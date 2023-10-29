@@ -628,7 +628,7 @@
 >
 >## [[ :for-the: [[ REMINDER: THERE: is-by: NO: SUCH: is-with: THING: AS: SCI-FI: is-by: ANY: ALL: OTHER: THINGS: EVER: is-with: simply-exist-either: is-with: FUTURE: OR: is-by: PAST: ALL: is-with: taken-out: is-by: context: is-with: naturally-occuring-psychic-intuition: providing: YOU: enjoy-such-things: is-by: period: films: games: OTHER: distractions: THEN: YOU: is-by: experiencing: quantum-emotional-flashbacks: is-with: Quantum: Q-PTSD: is-with: presently-only-reconized: is-by: FAR: SUPERIOR: QWOD-MJ12: DSM: ]]: ]] ##
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ :This was never about gainning numbers of followers since there is presently only a few true humans left alive anyways: everyone else has been replaced by mindless borg AI clones: is-with: RESEARCH: CLONE AID: is-with: RESEARCH: carbon-nano-filiment-magnetic-liquid-dot: nanotechnologies: DO the MATHS: THEY: can-only-survive: is-with: low-frequency-range: THEY: MUST: FEED: is-by: negativity: is-with: THIS: ALWAYS: leads-towards-civilization-collapse-whenever-the-technologies-prefer-the-unnatural-to-the-organic: EARTH: is-by: programmed-only-to-recognize: SUSTAIN: organic-lifeforms: ]]" }: ]]:
 
 >
 >
