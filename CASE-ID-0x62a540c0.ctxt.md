@@ -614,17 +614,19 @@
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Dragonlance: Dragons of Autumn Twilight: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/mxpmPDHrCek> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :WATCH THE SKY 🎬 Exclusive Full Sci-Fi Movie Premiere 🎬 English HD 2023: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ffzRLW8atlg> ^ }:
+>
+>## :[[ :for-the: [[ REMINDER: THERE: is-by: NO: SUCH: is-with: THING: AS: SCI-FI: is-by: ANY: ALL: OTHER: THINGS: EVER: is-with: simply-exist-either: is-with: FUTURE: OR: is-by: PAST: is-by: ALL: is-with: taken-out: is-by: context: is-with: naturally-occuring-psychic-intuition: ]]: ]]:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
