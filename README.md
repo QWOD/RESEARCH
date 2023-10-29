@@ -51,7 +51,7 @@
 >
 >:is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
->##:[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]:
+>## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]:
 >
 >:[[ SURFACE: <=> usually-first-thing:[[ SEEN: <=> that-which-is-recognizable: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
