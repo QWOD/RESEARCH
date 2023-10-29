@@ -692,13 +692,13 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/RYCqZOEpPxE> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ ONLY: SECURITY: CLEARANCE: ABOVE: MAJESTIC: is-with: ATSU: ABOVE-TOP-SECRET-UNACKNOWLEDGED: is-by: OUR: is-with: CLEARANCE: is-with: HIGHEST: POSSIBLE: SECURITY: CLEARANCE: UNDER: GOD: is-by: WE: MUST: is-with: look-intentionally-crazy: is-by: ALL: is-with: TIMES: for-the: plausible-deniability: is-by: UNFORTUNATELY: NOT: is-with: possible: for-the: finding: girl: friend: ]]" }: ]]:
 
 >
 >
->## *[[ :Ω: ]]*
+>## *[[ :Above Majestic (Full Movie) The Secret Space Program and more...: ]]*
 >
->:is-with: { ^ Δ ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ZSyH26cl9AQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
