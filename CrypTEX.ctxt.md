@@ -44,7 +44,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :B∅RN: is-by: necessity: for-the: [[ SΔVE: ΔRTH: is-by: first: must: is-with: reverse: MK: ULT𓂀: PR∅G𓂀MM☥NG: for-the: [[ small-remaining-human-population: is-by: hostile-alien-extra-terrestrial: Δ☥: take-over: is-by: unknown-competitors: is-with: ΔRTH: HΩL∅G𓂀PH☥C: SΩMULΔT☥∅N: Δ: 55: ]]: ]]: ]]:
 >
->## *[[ :CrypTEX™: easily compiles into any language since basically: is-by: only a colon delimited text database: is-by: ONLY: is-with: certain characters: is-by: recognized: [[: ]]: brackets are optional in most cases: contributing towards logical interpretation: CrypTEX™: provides: for-the: more relaxed standard such as: THIS: text: YOU: are presently reading since it is more natural: for-the: BRAIN: is-by: interpret: ]]*
+>## *[[ :CrypTEX™: easily compiles into any language since basically: is-by: only a colon delimited text database: is-by: ONLY: is-with: certain characters: is-by: recognized: [[: ]]: brackets are optional in most cases: contributing towards logical interpretation: CrypTEX™: provides: for-the: more relaxed standard such as: THIS: text: YOU: are presently reading since it is more natural: for-the: BRAIN: is-by: interpret: for-the: LEARNING: is-with: WHILE: CrypTEX™: does not always need to be encrypted: this d03s h31p 4v0id m0st c0mm0n c3ns0rship 0r sh4d0w b4nning 41g0rithms: ]]*
 >
 crypname="$(cryptor $(uname -n))"
 PS1=':[[ :'"${crypname}"':{ ^ \W ^ }: ]]: '
