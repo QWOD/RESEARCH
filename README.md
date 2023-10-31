@@ -60,7 +60,13 @@
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
 
-### *:[[ :for-the: [[ N🚫T⚠️CE: <=> W⚠️RN🚫: íي-wíth: 0NLY: THΔNG: QW🚫D-〽ʝ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-by: عNعMY: íي-wíth: FعΔR: عTعRNΔL: DعΔTㅐ: ]]: ]]:*
+## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
+
+![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
+
+[[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/qSevkcLvna8?si=F3dzt8cF-s2r49ga> ^ }: ]]:
+
+>:[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]] ##
 
