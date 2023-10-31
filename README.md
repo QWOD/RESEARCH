@@ -144,15 +144,34 @@
 
 ### [[ :Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma: { ^ Pete Walker ^ }: ]] ###
 
-:is-with: { ^ <a target="_blank" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a> ^ }
+:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a> ^ }
 >
-     <a target="_blank" href="https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325">Complex PTSD: From Surviving to Thriving: A Guide and Map for Recovering from Childhood Trauma</a>
+    https://www.amazon.com/dp/1492871842?ref_=cm_sw_r_cp_ud_dp_SAYN24SJQESM36BP9AZ8&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=14f6b86e96ccfdee20ffb461916a724d&camp=1789&creative=9325
 
 ### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]] ###
 
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
 >
     https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325
+
+### [[ :The Tibetan Book of the Dead: { ^  Graham Coleman (Editor): Thupten Jinpa (Editor): Gyurme Dorje (Translator): Dalai Lama (Commentary)  ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325">The Tibetan Book of the Dead: First Complete Translation (Penguin Classics Deluxe Edition) </a> ^ }:
+>
+    https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325
+
+### [[ :The Egyptian Book of the Dead: The Book of Going Forth by Day: The Complete Papyrus of Ani Featuring Integrated Text and Full-Color Images: { ^  Dr. Raymond Faulkner (Translator): Ogden Goelet (Translator): Carol Andrews (Preface): J. Daniel Gunther (Introduction): James Wasserman (Foreword)  ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325">The Egyptian Book of the Dead: The Book of Going Forth by Day</a> ^ }:
+>
+    https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325
+
+
+### [[ :The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order: { ^ Israel Regardie (Author): John Michael Greer (Author)  ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
+>
+    https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325
 
 ### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
 
