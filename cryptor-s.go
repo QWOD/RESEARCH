@@ -15,7 +15,7 @@ package main
 // LOOKINGGLASS: ]]:= [[ :WARNO: CONSPIRACY-THEORY:
 // algorithm: DETECTED: ]]:
 
-// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor-s.go; cp -f cryptor-s.$(uname -i) ~/go/bin/cryptor-s; sha256sum cryptor-s.$(uname -i) >cryptor-s.$(uname -i).asc; sha256sum -c cryptor-s.$(uname -i).asc; ./cryptor-s.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
+// PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor-s.go && cryptor-s :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 
 import (
 	"fmt"
@@ -28,13 +28,13 @@ import (
 func main() {
 	// :[[ :SIMPLIFIED: CrypTex: for-the: [[ SIMPLE: MINDED: ]]: ]]:
 	crypTexTranslated := strings.Join(os.Args[1:], " ")
-	codeSize := len(strings.Join(os.Args[1:], " "))
+	codeSize := len(crypTexTranslated)
 	if 0 < codeSize && 9999 > codeSize {
-		fmt.Printf(":[[ codeSize: <=> %v: %#v: ]]:", codeSize)
+		fmt.Printf(":[[ codeSize: <=> %v: ]]:", codeSize)
 		execName := strings.Join(os.Args[0:], " ")
 		// :[[ TEST: is-with: SHOULD: is-by: ALWAYS: OUTPUT: is-with: EXECUTABLE: NAME: ]]:
 		// :[[ SHOULD: is-by: ALWAYS: is-with: WORK: is-by: DOES-NOT: is-with: WORK: is-by: [[ _ ]]: ]]:
-		fmt.Printf(":[[ DOES: is-with: THIS: is-by: WORK: is-by: [[ %v: %#v: ]]: ]]:", execName)
+		fmt.Printf(":[[ DOES: is-with: THIS: is-by: WORK: is-by: [[ %v: ]]: ]]:", execName)
 
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "AE", "Δ")
 		crypTexTranslated = strings.ReplaceAll(crypTexTranslated, "EA", "Δ")
