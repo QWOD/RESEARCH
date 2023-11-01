@@ -122,7 +122,7 @@
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/quy9fdvMjhQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9d3cdca7bdf57f7b4fa91ce42a7e75112f749f95> ^ }: ]]:= { RELEVANT: [[ :for-the: [[ QΔn0ns: <=> f4k3-QEW5: for-the: [[ QW∅Ds: <=> ☥RUE: QEW5: c4n: YΩU: is-with: LΩMΔ-CHΔ?LΔ: ΩU?: QΩMM5: is-by: [[ _ ]]: is-with: b3w4r3: f4k3-QEW5: ]]: ]]: ]] }: ]]:
 
 >
 >
