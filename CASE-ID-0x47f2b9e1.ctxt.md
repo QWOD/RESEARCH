@@ -52,27 +52,27 @@
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0x47f2b9e1-0e669c19.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-0e669c19.png)
 >
->
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
->
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :The Secret Doctrine By H.P Blavatsky Audio Book 6/7: ]]:= { ^ <https://youtube-nocookie.com/embed/l3IXPdT5ee4> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :From America 2 Babylon: Making The Mark (Full Documentary) | SFP: ]]:= { ^ <https://youtube-nocookie.com/embed/WEObYvJrffk> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :DAMAGE CONTROL CLEARED THE PATH & WE EARNED NEW SPIRITUAL PROTECTION BY WAY OF AMNESTY ⏰️👀🧿: ]]:= { ^ <https://youtube-nocookie.com/embed/lU5YvAJfcRU> ^ }:
+>
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+>:[[ :*🚫PعD*: ]]:= [[ :Russia's Nuke Targets: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrC6Q4sY5Q> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
