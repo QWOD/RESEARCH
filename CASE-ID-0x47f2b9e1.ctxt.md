@@ -310,9 +310,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :The Vatican and the Third Reich: an Unholy Alliance: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/yKo7c4zLP98> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
