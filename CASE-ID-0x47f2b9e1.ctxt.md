@@ -188,11 +188,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x47f2b9e1-e9861ed6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-e9861ed6.png)
 >
+>## *[[ :Jesus Christ Heals You While You Sleep With Delta Waves • 432 Hz, Sleep Music: ]]* ##
 >
->## *[[ :👽: ]]* ##
->
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/LClxtud2zv4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
