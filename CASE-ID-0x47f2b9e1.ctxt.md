@@ -268,43 +268,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x47f2b9e1-4c5cafb7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-4c5cafb7.png)
 >
+>## *[[ :All of this chaos stems from 1 incident that lead to many crimes- WOW: ]]* ##
 >
->## *[[ :👽: ]]* ##
->
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RdNS5Ze9uWA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :VIRGO♍PEOPLE ARE ASKING THEM ABOUT YOU BUT THEY'RE🤫 BECAUSE AFTER ALL THE DRAMA THEY STILL WANT YOU🧿: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/-C5Q7PdlYSA> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x47f2b9e1-a63bced2.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-a63bced2.png)
+>
+>## *[[ :What the Hell are the GREYLOCK Tapes?: ]]* ##
+>
+>:is-with: { ^ <https://youtube-nocookie.com/embed/0G1d62_DcJQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :UNDERSTANDING THE SPIRITUAL ASSIGNMENTS HAS BEEN YOUR BEST WEAPON "BY WAY OF OBEDIENCE" 🤌🏽 PT.2: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/hiKve8fCo3g> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :What is Gnosticism?: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
->## *[[ :👽: ]]* ##
->
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/ockwMVE7PgM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
