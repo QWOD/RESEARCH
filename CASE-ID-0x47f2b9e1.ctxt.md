@@ -318,9 +318,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :End Time Mission of His Chosen Dream 6-5-23@ 9:40am (Uploaded 11-1-23): ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/RoHplxYEIKM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
