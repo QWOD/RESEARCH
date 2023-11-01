@@ -1,5 +1,7 @@
 # *:[[ for-the: [[ QW🚫D-〽ʝ12: <=> 5URPR☥5☥NG: ENEMΔ5: is-by: NEW: is-with: t3chnΩ1Ωgi3s: 5Ω: H☥GHLY: is-by: disruptiv3: is-by: ΔLWΔY5: ΩMM3DΔTΔLY: is-with: BΔNN3D: is-by: ΔNY: ΔLL: CΩMMΩN☥5T: 🚫PE𓂀T3D: is-with: 5ΩC☥ΔL: M3D☥Δ: PLΔTFΩRM5: ]]:*
 >
+>![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
+>
 >### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
 >
 >:[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSΩSSDEV-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
@@ -51,7 +53,7 @@
 >
 >:is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
->## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]:
+>## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=>: ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]
 >
 >:[[ SURFACE: <=> usually-first-thing:[[ SEEN: <=> that-which-is-recognizable: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
