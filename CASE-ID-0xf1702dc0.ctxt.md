@@ -873,18 +873,29 @@
 >
     https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325
 
-
-### [[ :The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order: { ^ Israel Regardie (Author): John Michael Greer (Author)  ^ }: ]] ###
+### [[ :The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order: { ^ Israel Regardie (Author): John Michael Greer (Author) ^ }: ]] ###
 
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
 >
     https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325
+
+### [[ :Three Books of Occult Philosophy (Llewellyn's Sourcebook): { ^ Henry C. Agrippa ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325">Three Books of Occult Philosophy</a> ^ }:
+>
+    https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325
 
 ### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
 
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
 >
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
+
+### [[ :Transcendental Magic: Its Doctrine And Ritual: { ^ Eliphas Levi (Author) ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
+>
+    https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325
 
 ### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]] ###
 
