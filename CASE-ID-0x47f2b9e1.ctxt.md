@@ -174,9 +174,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :US to build new nuclear gravity bomb: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://www.defensenews.com/pentagon/2023/10/27/us-to-build-new-nuclear-gravity-bomb/> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
