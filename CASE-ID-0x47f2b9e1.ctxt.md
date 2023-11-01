@@ -182,9 +182,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Tried bamboozling u n2 giving up ur birthright.. jokes on them..Now fearing this ending thats coming: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/e8JZlPtQyDM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
