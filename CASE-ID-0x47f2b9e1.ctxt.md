@@ -106,7 +106,7 @@
 >
 >## **:[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ CIΔ: sti11-r3s0rts-t0-witchcr4ft: is-by: p0pu14r-c0v3rt-ki11-m3th0d: is-by: this-d4y: sinc3-411-witch3s: is-by: dumb: gr33dy: delusional: narcissistic: 3n0ugh: is-with: f411-f0r: IT: g0ing-4g4inst: M4st3r-J3sus: is-with: Et3rn41-D34th: p3n41ty: ]]" }: ]]:
 
 >
 >
