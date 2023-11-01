@@ -109,7 +109,7 @@
 ## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { 𓂀LΔVΔNT: "𓂀L: ΔVENT: KΔLL: CΔM5:" }: ]]:
-> 
+>
 [[ :Lifeguard HQ: ]]:
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/qY5-HXT4WSg> ^ }:
@@ -665,11 +665,12 @@
 >
 ![:CASE-ID-0x1ca7279c-2b929d15.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-2b929d15.png)
 >
->## :[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]:
+>## :[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]
 >
 >:[[ :is-by: N∅: is-with: M☥ND-C∅NTRΩL: is-by: m0r3-3ff3ctiv3: is-with: f33d-c3rt4in-3thnic-gr0ups: H☥5T∅RY: misinf0rm4ti0n: is-by: pr0gr4mming: is-with: f41s3-b31i3fs: THΔ: d3s3rv3: ΔVERYTH☥NG: @REE: is-by: th3n: is-with: f33d: misinf0rm4ti0n: ΔVERY∅NE: is-by: WHΩΔVER: is-with: W∅RK3D: for-the: [[ L☥V☥NG: is-with: THE☥R: ENEMY: for-the: [[ HΩMEGRΩWN: ΔMER☥CΔN: J☥HΔD: MΩVEMENT: is-with: ☥1h4n-Ωm4r: is-with: K4m414-H4rris: is-with: B4rr4ck-Ωb4m4: for-the: [[ Δ1-Q43d4: is-by: T3rr0r: is-with: unkn0wn-c0mp3tit0r: 5p3ci41-Ωp3r4ti0ns-Gr0up: ]]: ]]: ]]: ]]:
 >
 ## :[[ :W⚠️RN🚫: c3rt4in-f4cti0ns: is-with: ΩS: ~~i1it4ry-industri41-c0~~p13x: is-by: N∅T: ΔLLΩW: ΩS: is-with: f411: is-by: 3n3~~y: is-with: HΔND5: for-the: [[ ΩBV☥ΩU5: REΔ5∅N5: is-with: NΔT☥∅NΔL: 5عCUR☥TY: ]]: ]]
+>
 >:[[ :W⚠️RN🚫: is-with: simp1y-kn0win+-4b0ut: MK: PR∅G𓂀M: is-by: FLΔG5: is-with: ∅NE: for-the: [[ PR∅G𓂀M: ENTRY: is-with: n0w-y0ur-3ntir3-1if3: is-with: LΔ: is-by: 5CREEN3D: is-with: MEM∅𓂀5: is-with: ΔVERY∅NE: YΩU: think-y0u-kn0w: is-with: c0v3rt-int0rr0+4ti0ns-unit: c0v3rt-ki11-t34ms: ]]:
 >
 >## *:[[ :5UBC∅N5C☥ΩU5LY: is-by: THΔ: is-with: kn0w-th3y: is-by: n0t: is-with: YΩUR: TRUE: FΔMΔLY: is-by: WHY: THΔ: ΔLWΔY5: is-with: tr34t: YΩU: is-by: L☥KE: is-with: 5T𓂀NGER: unkn0wn-c0mp3tit0r: FΔCT☥∅N: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: is-with: 5CREEN3D: chi1dh00d-m3m0ri3s: is-by: ΔVEN: is-with: PΔRENT5: is-by: 5Ω-CΔLL3D: is-with: V☥ΔL: is-with: MK: ULT𓂀: ]]: ]]*
@@ -858,17 +859,17 @@
 >
     https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325
 
-### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
-
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
->
-    https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
-
 ### [[ :Transcendental Magic: Its Doctrine And Ritual: { ^ Eliphas Levi (Author) ^ }: ]] ###
 
 >:is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
 >
     https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325
+
+### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
+
+>:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+>
+    https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 
 ### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]] ###
 
@@ -888,7 +889,7 @@
 >
     https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
 
-### [[ Serious Cryptography: A Practical Introduction to Modern Encrypti:on: { ^  Jean-Philippe Aumasson (Author) ^ }: ]] ###
+### [[ Serious Cryptography: A Practical Introduction to Modern Encryption: { ^  Jean-Philippe Aumasson (Author) ^ }: ]] ###
 
 >:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
 >
