@@ -84,19 +84,19 @@
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ex-Occultist: "They Call it "THE MASTER KEY Of The Universe”: ]]:= { ^ <https://youtu.be/JHdZ30pHiRY> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Ex-Occultist: "They Call it "THE MASTER KEY Of The Universe”: ]]:= { ^ <https://youtube-nocookie.com/embed/JHdZ30pHiRY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :YOU WERE SUPPOSE TO BE BACK BY NOW & YOU'RE NOWHERE TO BE FOUND 😳: ]]:= { ^ <https://youtube-nocookie.com/embed/HeB1tahL8yw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ descendants: is-by: Master: Jesus-Christ: Quantum-Architect: PhD: WE: is-by: ALL: TARGETED: is-by: WITCH: WORLD: ]]" }: ]]:
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Meet the Targeted Individual Community: ]]:= { ^ <https://youtube-nocookie.com/embed/62s3FinAoC0> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -110,9 +110,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :How a Secret Society Took Over an Entire Country (With the CIA's Help): ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/A6bVytLzowE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
