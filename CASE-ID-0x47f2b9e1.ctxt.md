@@ -78,13 +78,13 @@
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Destroying Satanic Altars in Nakakololo by LUGO PASTOR'S FELLOWSHIP: ]]:= { ^ <https://youtube-nocookie.com/embed/4uLcKoYrFHc> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
->:[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+>:[[ :*🚫PعD*: ]]:= [[ :Ex-Occultist: "They Call it "THE MASTER KEY Of The Universe”: ]]:= { ^ <https://youtu.be/JHdZ30pHiRY> ^ }:
 >
 >:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
