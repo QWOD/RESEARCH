@@ -34,33 +34,33 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0xc0b8cc32-01c28233.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-01c28233.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Stolen monies, compromised institution & fear. TMH is revealing all ✨️: ]]:= { ^ <https://youtube-nocookie.com/embed/4zDHlhNA0p0> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :For those who feel you don't have much left...God has a word for you‼️💪❤️.. [[ _: PropheticWord: ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/PApXt9Neugk> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Don’t allow the TWEEDLE DEE’S in your world to dictate how you move!: ]]:= { ^ <https://youtube-nocookie.com/embed/kcEG-5RR-jE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Christian Zionism part 1: Tracing the Lines of a Warmongering Heresy: ]]:= { ^ <https://youtube-nocookie.com/embed/AlRjFBSNy1M> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :These people were determined to end you with magic for gain. Oh, oh, it didn't work 😳: ]]:= { ^ <https://youtube-nocookie.com/embed/h9yqAezlfR0> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
