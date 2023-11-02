@@ -48,7 +48,7 @@
 >## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:*
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
-
+>
 >### ***:[[ :NOTICE: WARNO: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]:***
 >
 >:is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
