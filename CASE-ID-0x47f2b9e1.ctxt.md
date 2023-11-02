@@ -404,51 +404,51 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x47f2b9e1-6fd3e45a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-6fd3e45a.png)
 >
+>## *[[ :THESE DARK PRACTIONERS KNOW THEIR TIME IS UP & SO THEY DECIDED TO TRY ONE MORE LAST DARK ASS TRICK 🧿: ]]* ##
 >
->## *[[ :👽: ]]* ##
->
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/duoc08LGvBo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :THE HITMAN IS UNDER INVESTIGATION🔎🔎: ]]:= [[ Ni⚫3ri4n: MΔFIΔ: VΩ∅D∅Ω: HI☥WΩMΔN: v3ry-p0pu14r-c0v3rt-ki11-m3th0d: d03s-n0t-w0rk-0n-us-⚫0ds: 0n1y-3v3r-w0rks-0n-0th3r-npc-c10n3s: ]]:* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/WIGa-REAWcs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Custom Cyberdeck For (Legal) Satellite Hacking: ]]:= [[ POC: || GTFO: ]]:* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/L8XOqrKBM5w> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Gnostic Films, JFK, Cinema Symbolism, Freemasonry, Live Q&A with Robert Sullivan IV, TSP 888: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/VRgUJ3c6vik> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :FREE HEALING WEDNESDAY - NOVEMBER 1, 2023 - Dr. Bradley Nelson: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/MKcq7NwwSjs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Alacrity Of Disobedience: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/YB3fWwLeqZI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
