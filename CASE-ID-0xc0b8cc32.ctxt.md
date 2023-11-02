@@ -56,7 +56,7 @@
 >
 > :[[ :*🚫PعD*: ]]:= [[ :Christian Zionism part 1: Tracing the Lines of a Warmongering Heresy: ]]:= { ^ <https://youtube-nocookie.com/embed/AlRjFBSNy1M> ^ }:
 >
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-5487a960dee54335ead55704a9e7322d331e5900> ^ }: ]]:= { TRUE: "[[ w4tch-0ut: for-the: [[ w3t: FLΩ∅R5: is-by: pris0n: is-with: FLΩ∅R5: is-by: s1ipp3ry-wh3n-w3t: WE: f0rgiv3: ☥HΔM: ]]: ]]" }: ]]:
 >
 >
 >
