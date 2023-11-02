@@ -628,35 +628,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x47f2b9e1-72b4ef16.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-72b4ef16.png)
 >
+>## *[[ :Ex-Witch Exposes Satan's Secrets!: ]]* ##
 >
->## *[[ :👽: ]]* ##
->
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/4EgGGlKLAbc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Horrific Natural Disasters! Europe Suffers Worst Floods In History, Houses, Cars Washed Away: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/zCakOwB1vDI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :I'm A Time Traveler From The Year 2345, I'm So Sorry For What's Coming: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/jUiXxYG0M2M> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :WATCH IRAN--GOD SAYS SATAN'S PRINCE OF PERSIA IS THE KEY TO THE END OF THE WORLD: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/9EoLpAFpX6A> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
