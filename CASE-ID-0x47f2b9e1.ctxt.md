@@ -206,7 +206,7 @@
 
 >
 >
->## *[[ :Inner Earth Conspiracy Theories #7: ]]* ##
+>## *[[ :Inner Earth Conspiracy Theories [[ _: 7: ]]: ]]* ##
 >
 >:is-with: { ^ <https://youtube-nocookie.com/embed/0qHCkV7o_u4> ^ }:
 
