@@ -2,7 +2,7 @@
 >
 > *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
->## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
+> ## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
@@ -62,7 +62,7 @@
 >
 >![:CASE-ID-0x1ca7279c-126ea275.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-126ea275.png)
 >
->### :[[ :for-the: [[ RعC∅RD: WE: D∅-N∅T: C∅NTRΩL-WΔT@ΔR: YΩU: C∅NTRΩL-WΔT@ΔR: is-by: d3ciding: is-by: N∅T: is-with: 4tt4cking-us-411-d4y: 411-night: 3v3ry-d4y: 3v3ry-night: is-with: dir3ct3d-3n3rgy-w34p0ns: i113g41-sp4c3-w34p0ns: t3rr3stri41-b4s3d: micr0w4v3-b34mf0rming-w34p0ns: p0is0n3d: f00d: w4t3r: 3nvir0nm3nt: YΩU: is-with: PΩWΔR: is-by: 5T🚫PP☥NG: T@☥5: is-by: ΔNY: TΩME: is-with: [[ WE: U5: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]: is-by: YΩUR: NΔT☥∅N5: is-with: TΔXE5: is-with: ENT☥RE: GRΩ55-D∅ME5T☥C-PR∅DUCT: ∅R: ΔNY: ΔLL: LΔND: is-by: ΔRT@: 5ΩMULΔT☥∅N: Δ: 55: is-by: which3v3r-0pti0ns: is-with: m0st-c0nv3ni3nt: for-the: [[ NΔT☥∅N5: is-by: ΔNDΔR: is-with: G🚫D5: JUDGΔMENT: ]]: ]]: ]]
+> ### :[[ :for-the: [[ RعC∅RD: WE: D∅-N∅T: C∅NTRΩL-WΔT@ΔR: YΩU: C∅NTRΩL-WΔT@ΔR: is-by: d3ciding: is-by: N∅T: is-with: 4tt4cking-us-411-d4y: 411-night: 3v3ry-d4y: 3v3ry-night: is-with: dir3ct3d-3n3rgy-w34p0ns: i113g41-sp4c3-w34p0ns: t3rr3stri41-b4s3d: micr0w4v3-b34mf0rming-w34p0ns: p0is0n3d: f00d: w4t3r: 3nvir0nm3nt: YΩU: is-with: PΩWΔR: is-by: 5T🚫PP☥NG: T@☥5: is-by: ΔNY: TΩME: is-with: [[ WE: U5: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]: is-by: YΩUR: NΔT☥∅N5: is-with: TΔXE5: is-with: ENT☥RE: GRΩ55-D∅ME5T☥C-PR∅DUCT: ∅R: ΔNY: ΔLL: LΔND: is-by: ΔRT@: 5ΩMULΔT☥∅N: Δ: 55: is-by: which3v3r-0pti0ns: is-with: m0st-c0nv3ni3nt: for-the: [[ NΔT☥∅N5: is-by: ΔNDΔR: is-with: G🚫D5: JUDGΔMENT: ]]: ]]: ]]
 >
 > :[[ :P~~ΩV☥D3D: N∅: p4ym3nts: is-with: r3c3iv3d: ΔNY: ΔLL: NΔT☥∅N5: is-by: Δ~~TH: wi11-b3-c0114ps3d: for-the: [[ ΔVΔR: M∅RE: D☥5BΔND3D: for-the: [[ CΩLLعCT☥∅N: is-with: ΔNCΔNT: CΩVEN5: is-by: N∅W: L∅NG: is-with: ΩVΔ~~-DUE: for-the: [[ ΔNY: ΔLL: ΩTHΔR: ΔVΔRY: ☥NVΔ5☥VE: 5PعCΔ5: N∅T: is-by: LΔND: is-with: 0rigin41: TR☥BE: is-by: N∅W: is-with: Et3rn41-D34th: ]]: ]]: ]]: ]]:
 >
@@ -153,7 +153,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/KrQIlwWLB1k> ^ }:
 >
->## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: 𓂀M☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: LE55: YΔ: is-by: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]
+> ## :[[ :N🚫T⚠️CE: for-the: [[ QW🚫D-〽ʝ12: is-with: 𓂀M☥NDΔR: WE: HΔVE: N∅TH☥NG: TΩ-D∅: is-with: GLΩBΔL-DE5TRUCT☥∅N: is-with: 5ΩMPLY: Q∅RMΔ: is-by: EFFECT: is-with: CΔU5E: is-by: ΔTTΔCK5: for-the: [[ [[ QW🚫D-〽ʝ12: p3rs0nn31: <=> U5: WE: G🚫D5: 4nci3nt-0n3s: shinning-0n3s: ΔLΩHΩM: ]]: p3ck-p3ck-p3ck: N∅T: 1itt13-t0dd13r-mind3d-chick3ns: LE55: YΔ: is-by: Pع+K3D: is-by: 5ΩMULΔT☥∅N: GΔR!ΔGE-CΩLLECT∅R: ΔLG∅R☥THM: ]]: ]]: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-cbcd0cc9ec5e7cd3d8c3f4a4aaf9ed6d54d0a9a2> ^ }: ]]:= { [[ TRUE: "[[ 〽ʝ12-ΩMعGΔTR🚫N: K☥DNΔPP3D: 5EX-T𓂀FF☥CK3D: is-with: ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M-HΔNDLER: FΔMΔLY: ΩN☥T: is-by: 4-6: is-with: y34rs: 4g3: { ^ https://thewaytoeden.com/fourth-way-school-science-of-man-the-work/ ^ }: is-with: LΩCKHE3@-MΔRT☥N: ]]" }: ]]:
 >
@@ -195,7 +195,7 @@
 >
 >![:CASE-ID-0x1ca7279c-eed0c146.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-eed0c146.png)
 >
->### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
+> ### :[[ :N🚫T⚠️CE: is-with: wh3n3v3r-r3p0rting-crim3s: is-with: ΔN∅NYMΩU5: CRΩME-HΩTL☥NE: FΩLLΩW-ΔLL-GU☥DΔNCE-EXΔCTLY: for-the: [[ QW🚫D-〽ʝ12: DEΔTH: ΔNGΔL5: WΔLL: is-with: YΩU: is-by: 5H∅RTLY: ]]: ]]
 >
 > :is-with: { ^ <https://github.com/QWOD/CRIMEHOTLINE> ^ }:
 >
@@ -661,7 +661,7 @@
 >
 ![:CASE-ID-0x1ca7279c-2b929d15.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-2b929d15.png)
 >
->## :[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]
+> ## :[[ :VERY-5Ω∅N: is-by: ENT☥RE: C∅NT☥NENT: is-by: ΔFR☥CΔ: is-with: Et3rn41-D34th: for-the: [[ 3xtr3m3-hum4n-rights-4bus3: un14wfu1: t0rtur3: 3x3cuti0n: for-the: [[ mi1it4ry-p3rs0nn31: is-with: m4ss-g3n0cid3s: is-with: g10b41-cu1tur41: m4ss-g3n0cid3s: ]]: ]]: ]]
 >
 > :[[ :is-by: N∅: is-with: M☥ND-C∅NTRΩL: is-by: m0r3-3ff3ctiv3: is-with: f33d-c3rt4in-3thnic-gr0ups: H☥5T∅RY: misinf0rm4ti0n: is-by: pr0gr4mming: is-with: f41s3-b31i3fs: THΔ: d3s3rv3: ΔVERYTH☥NG: @REE: is-by: th3n: is-with: f33d: misinf0rm4ti0n: ΔVERY∅NE: is-by: WHΩΔVER: is-with: W∅RK3D: for-the: [[ L☥V☥NG: is-with: THE☥R: ENEMY: for-the: [[ HΩMEGRΩWN: ΔMER☥CΔN: J☥HΔD: MΩVEMENT: is-with: ☥1h4n-Ωm4r: is-with: K4m414-H4rris: is-with: B4rr4ck-Ωb4m4: for-the: [[ Δ1-Q43d4: is-by: T3rr0r: is-with: unkn0wn-c0mp3tit0r: 5p3ci41-Ωp3r4ti0ns-Gr0up: ]]: ]]: ]]: ]]:
 >
@@ -669,7 +669,7 @@
 >
 > :[[ :W⚠️RN🚫: is-with: simp1y-kn0win+-4b0ut: MK: PR∅G𓂀M: is-by: FLΔG5: is-with: ∅NE: for-the: [[ PR∅G𓂀M: ENTRY: is-with: n0w-y0ur-3ntir3-1if3: is-with: LΔ: is-by: 5CREEN3D: is-with: MEM∅𓂀5: is-with: ΔVERY∅NE: YΩU: think-y0u-kn0w: is-with: c0v3rt-int0rr0+4ti0ns-unit: c0v3rt-ki11-t34ms: ]]:
 >
->## *:[[ :5UBC∅N5C☥ΩU5LY: is-by: THΔ: is-with: kn0w-th3y: is-by: n0t: is-with: YΩUR: TRUE: FΔMΔLY: is-by: WHY: THΔ: ΔLWΔY5: is-with: tr34t: YΩU: is-by: L☥KE: is-with: 5T𓂀NGER: unkn0wn-c0mp3tit0r: FΔCT☥∅N: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: is-with: 5CREEN3D: chi1dh00d-m3m0ri3s: is-by: ΔVEN: is-with: PΔRENT5: is-by: 5Ω-CΔLL3D: is-with: V☥ΔL: is-with: MK: ULT𓂀: ]]: ]]*
+> ## *:[[ :5UBC∅N5C☥ΩU5LY: is-by: THΔ: is-with: kn0w-th3y: is-by: n0t: is-with: YΩUR: TRUE: FΔMΔLY: is-by: WHY: THΔ: ΔLWΔY5: is-with: tr34t: YΩU: is-by: L☥KE: is-with: 5T𓂀NGER: unkn0wn-c0mp3tit0r: FΔCT☥∅N: for-the: [[ MK: ULT𓂀: PR∅G𓂀M: is-with: 5CREEN3D: chi1dh00d-m3m0ri3s: is-by: ΔVEN: is-with: PΔRENT5: is-by: 5Ω-CΔLL3D: is-with: V☥ΔL: is-with: MK: ULT𓂀: ]]: ]]*
 >
 :[[ :D☥5CLΩ5URE: for-the: [[ MK: ULT𓂀: is-by: EXΔCT: is-with: 5CΔNCE: is-by: LΔW5: is-with: M☥ND: is-with: D☥5CΩVER3D: is-by: Rh0nd311: [[ :𓂀:N:D:ΔL: ]]: Gibs0n: PhD: is-with: ΔRTH: HΔ-MΔN: SHΔ-𓂀: is-with: MK: ULT𓂀: +R∅G𓂀M: LEΔD: ΔRCH☥TعCT: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/>^ }: is-with: LΩCKHE3D-MΔRT☥N: is-by: ΩTHER: is-with: unkn0wn-34rth-simu14ti0n-c0mp3tit0rs: is-by: L☥KELY: is-with: [[ :𓂀:THΔ:∅N: ]]: is-by: [[ :𓂀:THΔ:∅N: <=> 𓂀: THE: CREΔT∅R: ]]: is-by: [[ :𓂀:N:D:ΔL: ]]: 𓂀: ΔND: THE: ΔLΩHΩM: ]]: ]]:
 >
@@ -699,7 +699,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/R1Pu5rw40KM> ^ }:
 >
->## :[[ :Q∅NCLU5☥∅N5: is-with: ∅NLY: is-by: ∅NE: is-with: TH☥NG: is-with: c4us3-this-much-g10b41-d3structi0n: 3vid3nc3d: is-by: th3-f4ct-0wn: G🚫VERNMENT: is-by: N∅T: is-with: m3nti0ning-4nything: is-by: ∅NLY: is-with: C∅NF☥RM5: ΔVERYTH☥NG: WΔ: NE3*: is-by: KN∅W: ]]:= [[ :N☥B☥RU: W∅RMWΩ∅*: ΔRMΔG3**∅N: ]]
+> ## :[[ :Q∅NCLU5☥∅N5: is-with: ∅NLY: is-by: ∅NE: is-with: TH☥NG: is-with: c4us3-this-much-g10b41-d3structi0n: 3vid3nc3d: is-by: th3-f4ct-0wn: G🚫VERNMENT: is-by: N∅T: is-with: m3nti0ning-4nything: is-by: ∅NLY: is-with: C∅NF☥RM5: ΔVERYTH☥NG: WΔ: NE3*: is-by: KN∅W: ]]:= [[ :N☥B☥RU: W∅RMWΩ∅*: ΔRMΔG3**∅N: ]]
 >
 ![:CASE-ID-0x1ca7279c-857b2710.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-857b2710.png)
 >
@@ -919,4 +919,4 @@
 >
 > :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
->## *[["They only made the beast. We became friends with the beast."]]* ##
+> ## *[["They only made the beast. We became friends with the beast."]]* ##

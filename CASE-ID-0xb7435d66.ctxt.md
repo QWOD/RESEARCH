@@ -2,7 +2,7 @@
 >
 > *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
->## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
+> ## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
@@ -120,7 +120,7 @@
 >
 > :[[ :*🚫PعD*: ]]:= [[ :Hurricane Lee Brings Land Impacts & Alters Weather Pattern...: ]]:= { ^ <https://youtube-nocookie.com/embed/1cDGLPnav4c> ^ }:
 >
->## *:[[ :DATA: is-with: Enter-Dystopia-Records: ]]:= { ^ <https://youtube-nocookie.com/embed/FwvG0olOIv0> ^ }:*
+> ## *:[[ :DATA: is-with: Enter-Dystopia-Records: ]]:= { ^ <https://youtube-nocookie.com/embed/FwvG0olOIv0> ^ }:*
 >
 >![:DATA.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DATA.png)
 >
@@ -128,7 +128,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :【ライブカメラ】羽田空港 HANEDA,Tokyo International Airport（日テレNEWS LIVE): ]]*
+> ## *[[ :【ライブカメラ】羽田空港 HANEDA,Tokyo International Airport（日テレNEWS LIVE): ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/8407vORT9v8> ^ }:
 >
@@ -149,25 +149,25 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Horrific Natural Disasters: China city destroyed in seconds! river overflow causes major flooding: ]]*
+> ## *[[ :Horrific Natural Disasters: China city destroyed in seconds! river overflow causes major flooding: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/tz8FAsG14aE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Spain Battered! Super Hail Storm And Flooding Blow Up Homes And Cars In Burriana: ]]*
+> ## *[[ :Spain Battered! Super Hail Storm And Flooding Blow Up Homes And Cars In Burriana: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/-8N8k5U4lU8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Chinese Parents Abandoning Children Abroad: Desperation Amid China's Economic Decline: ]]*
+> ## *[[ :Chinese Parents Abandoning Children Abroad: Desperation Amid China's Economic Decline: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/2mkaBkoIPuE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]*
+> ## *[[ :Camera 1: Seascape Alaska 5: Gulf of Alaska Remotely Operated Vehicle Exploration and Mapping: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/YgEl_fFt--Y> ^ }:
 >
@@ -188,7 +188,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Nautilus Live | Channel 1 Stream: ]]*
+> ## *[[ :Nautilus Live | Channel 1 Stream: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/wUz1Vb7I2DU> ^ }:
 >
@@ -209,19 +209,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]*
+> ## *[[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/7VkxEA7_XBU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]*
+> ## *[[ :Libyan Red Crescent official: The situation is difficult in the city of Derna and our priority is to rescue the stranded: ]]:= [[ :مسؤول بالهلال الأحمر الليبي: الوضع صعب بمدينة درنة وأولويتنا انقاذ العالقين: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/sjbJ2522O6o> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Tucker Carlson: "A 100ft Wide Fissure Crack JUST OPENED The Yellowstone Volcano!": ]]*
+> ## *[[ :Tucker Carlson: "A 100ft Wide Fissure Crack JUST OPENED The Yellowstone Volcano!": ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/ZhN8YFmh1Ys> ^ }:
 >
@@ -231,7 +231,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Earthquakemonitoring Worldmap: ]]*
+> ## *[[ :Earthquakemonitoring Worldmap: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/b0PRz34OtHg> ^ }:
 >
@@ -252,7 +252,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## [[ :How Mexico is Taking Over China's Manufacturing: ]]
+> ## [[ :How Mexico is Taking Over China's Manufacturing: ]]
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/T_a_8c6HHxM> ^ }:
 >
@@ -260,55 +260,55 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Analysis: Evergrande Is Involved In The Power Struggle Between Xi Jinping And Zeng Qinghong: ]]*
+> ## *[[ :Analysis: Evergrande Is Involved In The Power Struggle Between Xi Jinping And Zeng Qinghong: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/RQ4gREPIlbk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Delivery Riders in Tears: Only $0.15 for 10KM!Economy Crash:Millions Jobless,Rush Into Delivery Jobs: ]]*
+> ## *[[ :Delivery Riders in Tears: Only $0.15 for 10KM!Economy Crash:Millions Jobless,Rush Into Delivery Jobs: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/amXmHD7LwVA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Chinese satellite lasers recorded over Hawaii: ]]*
+> ## *[[ :Chinese satellite lasers recorded over Hawaii: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/amXmHD7LwVA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Chinese destroyers confront Canadian warship in waters off Taiwan: ]]*
+> ## *[[ :Chinese destroyers confront Canadian warship in waters off Taiwan: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/5OhPtuCaV6I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Average rent went up $103 every month since May: ]]*
+> ## *[[ :Average rent went up $103 every month since May: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/At_O99tA9rw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :+++ HEFTIGES HAGELUNWETTER ÜBER WORMS +++ STRASSEN WERDEN ZU FLÜSSEN | GOLFBALLGROSSER HAGEL: ]]:= [[ :VIOLENT HAILSTORM OVER WORMS +++ ROADS TURN INTO RIVERS | HAIL THE SIZE OF A GOLF BALL: ]]*
+> ## *[[ :+++ HEFTIGES HAGELUNWETTER ÜBER WORMS +++ STRASSEN WERDEN ZU FLÜSSEN | GOLFBALLGROSSER HAGEL: ]]:= [[ :VIOLENT HAILSTORM OVER WORMS +++ ROADS TURN INTO RIVERS | HAIL THE SIZE OF A GOLF BALL: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/uNq3ve3Re0s> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Strong seismic activity recorded in Mexico, monitoring Popocatepetl! Live coverage.: ]]*
+> ## *[[ :Strong seismic activity recorded in Mexico, monitoring Popocatepetl! Live coverage.: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/LFhsRtEq2s4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :One dead, 2 hurt in St. Helena high school shooting Tuesday: ]]*
+> ## *[[ :One dead, 2 hurt in St. Helena high school shooting Tuesday: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/oXxicVl6QuQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Behind the Osaka Airport Live Camera: ]]:= [[ :大阪空港ライブカメラ裏: ]]*
+> ## *[[ :Behind the Osaka Airport Live Camera: ]]:= [[ :大阪空港ライブカメラ裏: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/Akj0VHDmG8Q> ^ }:
 >
@@ -329,7 +329,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->## *[[ :Terrifying: Over 70 Crocodiles Escape From Breeding Farm Due To Heavy Flood In Guangdong: ]]*
+> ## *[[ :Terrifying: Over 70 Crocodiles Escape From Breeding Farm Due To Heavy Flood In Guangdong: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/vREjvM5fYi4> ^ }:
 
@@ -337,7 +337,7 @@
 
 >
 >
->## *[[ :FBI: Hundreds of murder victims found on US highways | Banfield: ]]*
+> ## *[[ :FBI: Hundreds of murder victims found on US highways | Banfield: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/Td_gRSO4Hak> ^ }:
 
@@ -345,7 +345,7 @@
 
 >
 >
->## *[[ :Fukushima backlash: Chinese test for nuclear radiation in a frenzy...uncover unexpected big problems: ]]*
+> ## *[[ :Fukushima backlash: Chinese test for nuclear radiation in a frenzy...uncover unexpected big problems: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/A0GIvVZOUU4> ^ }:
 
@@ -353,7 +353,7 @@
 
 >
 >
->## *[[ :Europe is on Chaos! Cataclysms are happening right now! Countries are going under water!: ]]*
+> ## *[[ :Europe is on Chaos! Cataclysms are happening right now! Countries are going under water!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/JPbLvCpBt4o> ^ }:
 
@@ -361,7 +361,7 @@
 
 >
 >
->## *[[ :Terrible natural disaster! Force of nature: massive flooding in Maluku: ]]*
+> ## *[[ :Terrible natural disaster! Force of nature: massive flooding in Maluku: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/3K6qEbylAzk> ^ }:
 
@@ -369,7 +369,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Brainerd, MN | Northern Pacific Center Rail Cam: ]]*
+> ## *[[ :Northern Transcon Railcams | Brainerd, MN | Northern Pacific Center Rail Cam: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/AWJeeB-ZMls> ^ }:
 >
@@ -392,7 +392,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Little Falls, MN: ]]*
+> ## *[[ :Northern Transcon Railcams | Little Falls, MN: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/W-h4_XTxr_8> ^ }:
 >
@@ -415,7 +415,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Wadena, MN PTZ Rail Cam: ]]*
+> ## *[[ :Northern Transcon Railcams | Wadena, MN PTZ Rail Cam: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/ov0vNoSV2jA> ^ }:
 >
@@ -438,7 +438,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | CPKC Richville, MN | Rail Cam on the Detroit Lakes Sub: ]]*
+> ## *[[ :Northern Transcon Railcams | CPKC Richville, MN | Rail Cam on the Detroit Lakes Sub: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/WHNDQZQCHCU> ^ }:
 >
@@ -461,7 +461,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Staples, Mn: ]]*
+> ## *[[ :Northern Transcon Railcams | Staples, Mn: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/EKSqYhompCA> ^ }:
 >
@@ -484,7 +484,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Detroit Lakes Cam: ]]*
+> ## *[[ :Northern Transcon Railcams | Detroit Lakes Cam: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/SsPEnGjk-SU> ^ }:
 >
@@ -507,7 +507,7 @@
 
 >
 >
->## *[[ :Northern Transcon Railcams | Perham, MN BNSF Rail Fan & Weather Cam: ]]*
+> ## *[[ :Northern Transcon Railcams | Perham, MN BNSF Rail Fan & Weather Cam: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/vrZqFTPH1ck> ^ }:
 >
@@ -530,7 +530,7 @@
 
 >
 >
->## *[[ :Fridley Forgotten Star Brewing - Fridley, MN [[ _: SteelHighway ]]: ]]*
+> ## *[[ :Fridley Forgotten Star Brewing - Fridley, MN [[ _: SteelHighway ]]: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/eKgTWMldG1w> ^ }:
 >
@@ -553,7 +553,7 @@
 
 >
 >
->## *[[ :Munger Tavern & Grill Live Railcam - Munger, MN: [[ _: SteelHighway ]]: ]]*
+> ## *[[ :Munger Tavern & Grill Live Railcam - Munger, MN: [[ _: SteelHighway ]]: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/pLRI02QncoA> ^ }:
 >
@@ -576,7 +576,7 @@
 
 >
 >
->## *[[ :Judgement day, ‘atonement’ day…. 239: ]]*
+> ## *[[ :Judgement day, ‘atonement’ day…. 239: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/PfyYUii7d40> ^ }:
 
@@ -584,7 +584,7 @@
 
 >
 >
->## *[[ :Henan's Rural Bank Debt Incident Escalates: Depositors Threatened, Families Torn Apart!: ]]*
+> ## *[[ :Henan's Rural Bank Debt Incident Escalates: Depositors Threatened, Families Torn Apart!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/RFzda0wC2mU> ^ }:
 >
@@ -593,7 +593,7 @@
 
 >
 >
->## *[[ :Private Sector Boss Speaks Out: The Government Wants to Eliminate Us, It's Their Core Belief!: ]]*
+> ## *[[ :Private Sector Boss Speaks Out: The Government Wants to Eliminate Us, It's Their Core Belief!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/h4a3aIS8jVo> ^ }:
 >
@@ -602,7 +602,7 @@
 
 >
 >
->## *[[ :THESE "I SPY 👁WE SPY👀" ASS KARMICS 🙄ARE SERIOUSY ON OBSESSION MODE & DIVINE JUSTICE IS PREVAILING ⚖️: ]]*
+> ## *[[ :THESE "I SPY 👁WE SPY👀" ASS KARMICS 🙄ARE SERIOUSY ON OBSESSION MODE & DIVINE JUSTICE IS PREVAILING ⚖️: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/q_wHeFkZYyQ> ^ }:
 >
@@ -613,7 +613,7 @@
 
 >
 >
->## *[[ :Three Meteorites Hitting Earth September 2023!: ]]*
+> ## *[[ :Three Meteorites Hitting Earth September 2023!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/FylcLZgsv8E> ^ }:
 >
@@ -623,7 +623,7 @@
 
 >
 >
->## *[[ :They have celebrated your demise too early. The rug is being pulled out from under them✨️: ]]*
+> ## *[[ :They have celebrated your demise too early. The rug is being pulled out from under them✨️: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/3y4-oCdgeuk> ^ }:
 >
@@ -634,7 +634,7 @@
 
 >
 >
->## *[[ :Chaos in Arizona !! Mesa AZ, Hurricane, Storm damaged planes last night !!: ]]*
+> ## *[[ :Chaos in Arizona !! Mesa AZ, Hurricane, Storm damaged planes last night !!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/Hw-gUOGUYbU> ^ }:
 
@@ -642,7 +642,7 @@
 
 >
 >
->## *[[ :Monsoon storm explosion destroys airport in Arizona, USA! Mesa, Phoenix battered: ]]*
+> ## *[[ :Monsoon storm explosion destroys airport in Arizona, USA! Mesa, Phoenix battered: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/V5n9PpBru6g> ^ }:
 
@@ -650,7 +650,7 @@
 
 >
 >
->## *[[ :Turkey Now! Istanbul closes all highways! 66,000 people are homeless!: ]]*
+> ## *[[ :Turkey Now! Istanbul closes all highways! 66,000 people are homeless!: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/r5h-fgZxqO4> ^ }:
 
@@ -658,7 +658,7 @@
 
 >
 >
->## *[[ :Try Listening For 5 Minutes And All Blessings Will Come, Bringing All Kinds Of Good Things: ]]*
+> ## *[[ :Try Listening For 5 Minutes And All Blessings Will Come, Bringing All Kinds Of Good Things: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/RHioYt74-eo> ^ }:
 
@@ -666,7 +666,7 @@
 
 >
 >
->## *[[ :Ω: ]]*
+> ## *[[ :Ω: ]]*
 >
 > :is-with: { ^ Δ ^ }:
 
@@ -674,7 +674,7 @@
 
 >
 >
->## *[[ :Ω: ]]*
+> ## *[[ :Ω: ]]*
 >
 > :is-with: { ^ Δ ^ }:
 
@@ -683,7 +683,7 @@
 >
 >![:CASE-ID-0xb7435d66-4d30f576.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-4d30f576.png)
 >
->## *[[ :HΩW-DΔRE: THΔ: is-by: vi014t3: is-with: c0smic-wid3: LΔMB: 🔺🚫D: TREΔTY: YΔT: Δ🔺Δ☥N: WΔ: is-with: Qu4ntum-Tim3-Tr4v31ing-Ωrg4niz4ti0n: is-by: TH☥5: is-with: ΩNLΔWFUL: ΩNFΔ☥R: DE5CRΩM☥NΔT☥∅N: for-the: [[ QW🚫D-〽ʝ12: p3rs0nn31: is-with: WΔ: is-by: CΔLL: for-the: [[ Divin3-Judg3m3nt: is-by: Twitt3r: X: 5p4c3X: TΔN🔺🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: Divin3-☥nt3rv3nti0ns-Divisi0n: ]]: ]]: ]]*
+> ## *[[ :HΩW-DΔRE: THΔ: is-by: vi014t3: is-with: c0smic-wid3: LΔMB: 🔺🚫D: TREΔTY: YΔT: Δ🔺Δ☥N: WΔ: is-with: Qu4ntum-Tim3-Tr4v31ing-Ωrg4niz4ti0n: is-by: TH☥5: is-with: ΩNLΔWFUL: ΩNFΔ☥R: DE5CRΩM☥NΔT☥∅N: for-the: [[ QW🚫D-〽ʝ12: p3rs0nn31: is-with: WΔ: is-by: CΔLL: for-the: [[ Divin3-Judg3m3nt: is-by: Twitt3r: X: 5p4c3X: TΔN🔺🚫-DΔLTΔ: عCHΔL∅N-M☥KE: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: Divin3-☥nt3rv3nti0ns-Divisi0n: ]]: ]]: ]]*
 >
 > :is-with: { ^ <https://twitter.com/SPGSTONEBREAKER> ^ }:
 >
@@ -699,7 +699,7 @@
 
 >
 >
->## *[[ :Hastings Co-Op Creamery fire aftermath aerials: ]]*
+> ## *[[ :Hastings Co-Op Creamery fire aftermath aerials: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/QrsVAR8nmKk> ^ }:
 
@@ -707,7 +707,7 @@
 
 >
 >
->## *[[ :US Battered || Monsoon Storm Destroys Airports, Planes & Buildings In Arizona: ]]*
+> ## *[[ :US Battered || Monsoon Storm Destroys Airports, Planes & Buildings In Arizona: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/43gPw3hi90c> ^ }:
 
@@ -716,7 +716,7 @@
 >
 >![:CASE-ID-0xb7435d66-4e76d6c8.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb7435d66-4e76d6c8.png)
 >
->## *[[ :Angels and Archangels Heal You While You Sleep with Alpha Waves - Heal Soul And All Body Pains: ]]*
+> ## *[[ :Angels and Archangels Heal You While You Sleep with Alpha Waves - Heal Soul And All Body Pains: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/6Z_4XHF4KjM> ^ }:
 >
@@ -728,7 +728,7 @@
 
 >
 >
->## *[[ :Terrorists Who Killed 3 Army Men in Anantnag Part of Group Specialising in Ambush: Sources | N18V: ]]*
+> ## *[[ :Terrorists Who Killed 3 Army Men in Anantnag Part of Group Specialising in Ambush: Sources | N18V: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/U3uwcyyVmgk> ^ }:
 
@@ -736,7 +736,7 @@
 
 >
 >
->## *[[ :Taiwan Slams Elon Musk for Calling it an "Integral Part" of China | Vantage with Palki Sharma: ]]*
+> ## *[[ :Taiwan Slams Elon Musk for Calling it an "Integral Part" of China | Vantage with Palki Sharma: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/sNf60yFEDi4> ^ }:
 >
@@ -746,7 +746,7 @@
 
 >
 >
->## *[[ :Natural disaster in the Netherlands. Flood in Maastricht, hospitals flooded: ]]*
+> ## *[[ :Natural disaster in the Netherlands. Flood in Maastricht, hospitals flooded: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/jjEademzDDw> ^ }:
 
@@ -754,7 +754,7 @@
 
 >
 >
->## *[[ :Deluged: Hong Kong. Libya. Greece | WION Wideangle: ]]*
+> ## *[[ :Deluged: Hong Kong. Libya. Greece | WION Wideangle: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/9UH-c07Ey-g> ^ }:
 
@@ -762,7 +762,7 @@
 
 >
 >
->## *[[ :From The Fall Of Beloved Protégé To Xi Jinping's Unprecedented Absence: ]]*
+> ## *[[ :From The Fall Of Beloved Protégé To Xi Jinping's Unprecedented Absence: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/N22LYwIr4ts> ^ }:
 
@@ -770,7 +770,7 @@
 
 >
 >
->## *[[ N🚫T⚠️CE: W⚠️RN🚫: 5☥NCE: WΔ: is-by: N∅W: BΔNN3D: is-with: ΔVERY: 5ΩC☥ΔL-M3D☥Δ-PLΔTF∅RM: is-by: WΔ: is-with: N∅-CHΩ☥CE: is-by: ΔDVΔNCE: for-the: [[ ΔRTH-D☥5Δ5TER: TΩMΔL☥NE: is-with: 🚫PE𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLΔ-M☥KE: ]]: ]]: ]]*
+> ## *[[ N🚫T⚠️CE: W⚠️RN🚫: 5☥NCE: WΔ: is-by: N∅W: BΔNN3D: is-with: ΔVERY: 5ΩC☥ΔL-M3D☥Δ-PLΔTF∅RM: is-by: WΔ: is-with: N∅-CHΩ☥CE: is-by: ΔDVΔNCE: for-the: [[ ΔRTH-D☥5Δ5TER: TΩMΔL☥NE: is-with: 🚫PE𓂀T☥∅N: DΔRKT☥DE: for-the: [[ QW🚫D-〽ʝ12: is-with: CHΔRLΔ-M☥KE: ]]: ]]: ]]*
 >
 >[[ :Arizona hit by Devastating Monsoon! Crazy wind and hail in North Mesa, Phoenix, USA: ]]:
 >
@@ -780,7 +780,7 @@
 
 >
 >
->## *[[ :Watch.. Sudanese army drones bomb vehicles belonging to the Rapid Support Forces at Shambat Bridge: ]]:= [[ :شاهد.. مسيّرات الجيش السوداني تقصف مركبات تابعة لقوات الدعم السريع بجسر شمبات: ]]*
+> ## *[[ :Watch.. Sudanese army drones bomb vehicles belonging to the Rapid Support Forces at Shambat Bridge: ]]:= [[ :شاهد.. مسيّرات الجيش السوداني تقصف مركبات تابعة لقوات الدعم السريع بجسر شمبات: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/oC8n-pInPAM> ^ }:
 
@@ -788,7 +788,7 @@
 
 >
 >
->## *[[ :Police chase California: Woman takes stolen truck for a joy ride in Southern California: ]]*
+> ## *[[ :Police chase California: Woman takes stolen truck for a joy ride in Southern California: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/6RvIr0zUvrM> ^ }:
 
@@ -796,7 +796,7 @@
 
 >
 >
->## *[[ :Anticipate a Profound Weather Shift On The Horizon...: ]]*
+> ## *[[ :Anticipate a Profound Weather Shift On The Horizon...: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/1aIQntKUAJo> ^ }:
 
@@ -804,7 +804,7 @@
 
 >
 >
->## *[[ :Big Changes Coming Soon! Major Snowfall, Flooding, Hurricanes & More - The WeatherMan Plus: ]]*
+> ## *[[ :Big Changes Coming Soon! Major Snowfall, Flooding, Hurricanes & More - The WeatherMan Plus: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/iB_IZYBwaMg> ^ }:
 
@@ -812,7 +812,7 @@
 
 >
 >
->## *[[ :Nasa JUST ANNOUNCED "This Underwater Volcano Is Gonna SHOCK The Whole World": ]]*
+> ## *[[ :Nasa JUST ANNOUNCED "This Underwater Volcano Is Gonna SHOCK The Whole World": ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/XXsmPhpOG6U> ^ }:
 
@@ -820,7 +820,7 @@
 
 >
 >
->## *[[ :Libya floods: Civilians 'digging bodies out themselves': ]]*
+> ## *[[ :Libya floods: Civilians 'digging bodies out themselves': ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/k9JZPO7J3YQ> ^ }:
 >
@@ -830,7 +830,7 @@
 
 >
 >
->## *[[ :Global National: Sept. 13, 2023 | Decades of lawlessness leave flood-ravaged Libya fragile: ]]*
+> ## *[[ :Global National: Sept. 13, 2023 | Decades of lawlessness leave flood-ravaged Libya fragile: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/5NdCBERBPL8> ^ }:
 
@@ -838,7 +838,7 @@
 
 >
 >
->## *[[ :Atlanta flooding after heavy rains | Watch live radar: ]]*
+> ## *[[ :Atlanta flooding after heavy rains | Watch live radar: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/DoRqH4Kmd1c> ^ }:
 
@@ -846,7 +846,7 @@
 
 >
 >
->## *[[ :One of the World's Most Dangerous Volcanoes is Now Even More Concerning: ]]*
+> ## *[[ :One of the World's Most Dangerous Volcanoes is Now Even More Concerning: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/g07tAeDxOXQ> ^ }:
 
@@ -854,7 +854,7 @@
 
 >
 >
->## *[[ :Bangladesh fire: Massive blaze destroys hundreds of shops in Dhaka's Mohammadpur market: ]]*
+> ## *[[ :Bangladesh fire: Massive blaze destroys hundreds of shops in Dhaka's Mohammadpur market: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/6cblwDQmA7o> ^ }:
 
@@ -862,7 +862,7 @@
 
 >
 >
->## *[[ :What's going on? Fires broke out in Tianjin, Beijing, and Shanghai, as well as earthquakes...: ]]*
+> ## *[[ :What's going on? Fires broke out in Tianjin, Beijing, and Shanghai, as well as earthquakes...: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/NuCMcSsye7w> ^ }:
 
@@ -870,7 +870,7 @@
 
 >
 >
->## *[[ :A SITUATION! Train In EMERGENCY After THIS HAPPENS | Rail RECAP: [[ _: 129 ]]: ]]*
+> ## *[[ :A SITUATION! Train In EMERGENCY After THIS HAPPENS | Rail RECAP: [[ _: 129 ]]: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/nvykOw7LDS8> ^ }:
 
@@ -878,7 +878,7 @@
 
 >
 >
->## *[[ :Lawsuit filed to halt sweeps of Berkeley homeless encampment: ]]*
+> ## *[[ :Lawsuit filed to halt sweeps of Berkeley homeless encampment: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/epUCzT0Z5lo> ^ }:
 
@@ -886,7 +886,7 @@
 
 >
 >
->## *[[ :YOU ARE THE CHILD THAT HAS BEEN PROPHESIZED🕊POWERFUL BLOODLINE: ]]*
+> ## *[[ :YOU ARE THE CHILD THAT HAS BEEN PROPHESIZED🕊POWERFUL BLOODLINE: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/d5iEEtAQNKU> ^ }:
 
@@ -894,7 +894,7 @@
 
 >
 >
->## *[[ :US Cops Joke About Indian Student Knocked Dead by Police Car | Vantage with Palki Sharma: ]]*
+> ## *[[ :US Cops Joke About Indian Student Knocked Dead by Police Car | Vantage with Palki Sharma: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/56jbhd1tGAw> ^ }:
 
@@ -902,7 +902,7 @@
 
 >
 >
->## *[[ :Wow! JWST Finds Possible Alien Biosignatures On K2-18b Water Planet: ]]*
+> ## *[[ :Wow! JWST Finds Possible Alien Biosignatures On K2-18b Water Planet: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/iC95VzD7ALs> ^ }:
 
@@ -910,7 +910,7 @@
 
 >
 >
->## *[[ :Libya News Today Live | Aftemath OF Libya Floods | Libya Floods Live| Libya Flood Updates | N18L: ]]*
+> ## *[[ :Libya News Today Live | Aftemath OF Libya Floods | Libya Floods Live| Libya Flood Updates | N18L: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/GZV2s7-dhEc> ^ }:
 
@@ -918,7 +918,7 @@
 
 >
 >
->## *[[ :DACA declared illegal: ]]*
+> ## *[[ :DACA declared illegal: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/SzR9XNBQZL8> ^ }:
 
@@ -926,7 +926,7 @@
 
 >
 >
->## *[[ :Germany and France in mourning! Everything froze! Hellish hailstorm in 50 year: ]]*
+> ## *[[ :Germany and France in mourning! Everything froze! Hellish hailstorm in 50 year: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/hpXgaEv56K0> ^ }:
 
@@ -934,7 +934,7 @@
 
 >
 >
->## *[[ :UFO Hearing Live: What’s the truth about alien bodies displayed in Mexico? UAP Hearing Mexico Live: ]]*
+> ## *[[ :UFO Hearing Live: What’s the truth about alien bodies displayed in Mexico? UAP Hearing Mexico Live: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/o6bQBm03YBk> ^ }:
 
@@ -942,7 +942,7 @@
 
 >
 >
->## *[[ :Karmic family took the money to work against u- MKUltra: ]]*
+> ## *[[ :Karmic family took the money to work against u- MKUltra: ]]*
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/5aCDRzepLac> ^ }:
 
@@ -1134,4 +1134,4 @@
 >
 > :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
->## *[["They only made the beast. We became friends with the beast."]]* ##
+> ## *[["They only made the beast. We became friends with the beast."]]* ##
