@@ -1,12 +1,8 @@
-# **:[[ :W⚠️RN🚫: ❤‍🔥:{ ^ 👻: 8ch-tee-tee-pee: colon: forward-slash: forward-slash: recon: 🔺: mj12: 🔺: agency: ^ }: ]]:** #
-
-> *:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
+# *:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:* #
 >
 > *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
-> :[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
->
->## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
+>## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
@@ -24,13 +20,15 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0x47f2b9e1: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x47f2b9e1-recon.mj12.agency/">0x47f2b9e1-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
+## [[ :for-the: [[ CASE-ID-0x00000000: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x00000000-recon.mj12.agency/">0x00000000-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
 >
-:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x47f2b9e1.ctxt.md> ^ }:
+:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x00000000.ctxt.md> ^ }:
 >
 :is-by: [[ :ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 >
-### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MILITΔRY: [[ TRI-BU-N-ΔL: ]]:= TRUE: ]]:= [[ :N∅W-IN-SESSIØN: NEGΔTIVE: is-with: THΔT: is-with: [[ IN-SESSIØN: <=> IN: CEST: UΩ: US: ]]: for-the: MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: for-the: PΔYMENT: REDEMPTIØN: C∅LLECTIØNS: is-by: SIN: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: t4sty-1itt13-34rth-sci3nc3-14b: HUMΔN: FEΔ☥HERLE55-CH☥Q∅NS: ]]*** ###
+### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
+>
+>![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
