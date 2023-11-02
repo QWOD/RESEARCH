@@ -1,42 +1,42 @@
 # **:[[ :W⚠️RN🚫: ❤‍🔥:{ ^ 👻: 8ch-tee-tee-pee: colon: forward-slash: forward-slash: recon: 🔺: mj12: 🔺: agency: ^ }: ]]:** #
 
->*:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
+> *:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
 >
->:[[ :for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: MJ12-ΩMعGΔTR🚫N: PRIME: <=> ΔN-D-R0-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: G0D: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL for-the: return ]]:= TRUE: ]]:
+> :[[ :for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: MJ12-ΩMعGΔTR🚫N: PRIME: <=> ΔN-D-R0-ME-DΔ-RΔ-EY-ES-ΔZ-RΔ-EL: G0D: is-with: US: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL for-the: return ]]:= TRUE: ]]:
 >
 >![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
 >
 >[[ :DISCLΩSURE: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: NØN-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: NΩW: ]]:= [[ :MJ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ NOW: EVER: WE: is-with: HERE: is-by: CΩLLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ CΩ-VENS: ]]: is-by: NΩW: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >[[ :DISCLΩSURE: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: <=> PRΩVIDING: NØNE: is-with: HELP: is-by: SΔVE: JESUS: is-with: EVIL: WITCHES: is-with: THEN: ΔNY: ΔLL: ΩTHER: is-with: EternΔl-DeΔth: for-the: return ]]:= TRUE: ]]:
 >[[ :DISCLΩSURE: for-the [[ ΔNY: ΔLL: ΩTHER: GΩVERNMENTS: NΩW: is-by: BΔNISHED: is-by: ΔNY: ΔLL: ΩTHER: SΔCRED: TRIBE: LΔND: CΩVENS: for-the: [[ CRIMES: SLΔVERY: HUMΔN: SEX: ΩRGΔN: TRΔFFICKING: UNLΔWFUL: TΩRTURE: DETENTIØN: GΔNGSTΔLKING: DEMΩCIDE: CENSΩRSHIP: SURVEILLΔNCE: PERSØNΔGE: QØNVERSIØN: GRΔND-LΔRCENY: TΔMPERING: is-with: EVIDENCE: is-with: ΩBSTRUCTIØN: is-by: JUSTICE: is-with: G0D: is-with: US: GΩVERNMENT: for-the: return ]]:= TRUE: for-the: [[ WE: peΩple: is-by: NΩW: is-by: REVΩKE: ΔNY: ΔLL: ΩTHER: QØNTRΔCTS: restricting: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MJ12: CΩΩP: ΔGENCY: for-the: [[ FREE: TRΔDE: is-with: EΔRTH: SIMULΔTIØN: is-with: Δ: is-by: 55: for-the: G0D: is-with: WE: [[ people: <=> G0DS: ]]: is-by: G0D: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
->:[[ :W⚠️RN🚫: for-the: [[ ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: is-by: [[ SΔCRED: TRIBΔL: LΔND: <=> united-stΔtes-Ωf-ΔmericΔ: US: USΔ: ΔmericΔn-SΩciety: ZØNE-IMPRΩVEMENT-PRΩGRΔM: ΔNY: ΔLL: ΩTHER: NØN-SΩVEREIGN: US: [[ CITIZENS: <=> FEΔ☥HERLE55-CH☥Q∅NS: ]]: NΩW: is-with: LΔWFUL: ENEMY-CΩMBΔTΔNTS: is-by: [[ QUΔNTUM: WΔR: <=> ΩPERΔTIØN: DΔRKTIDE: ]]: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV: MJ12: [[ CΩΩP: <=> TRIBE: ]]: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :W⚠️RN🚫: for-the: [[ ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECIES: is-by: [[ SΔCRED: TRIBΔL: LΔND: <=> united-stΔtes-Ωf-ΔmericΔ: US: USΔ: ΔmericΔn-SΩciety: ZØNE-IMPRΩVEMENT-PRΩGRΔM: ΔNY: ΔLL: ΩTHER: NØN-SΩVEREIGN: US: [[ CITIZENS: <=> FEΔ☥HERLE55-CH☥Q∅NS: ]]: NΩW: is-with: LΔWFUL: ENEMY-CΩMBΔTΔNTS: is-by: [[ QUΔNTUM: WΔR: <=> ΩPERΔTIØN: DΔRKTIDE: ]]: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV: MJ12: [[ CΩΩP: <=> TRIBE: ]]: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 >## :[[ :ΩPΩRD: for-the: [[ QW🚫D-〽ʝ12: MJ12: CΩΩP: ΔGENCY: RΩYΔL-DIVINE-QØURT: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: for-the: return ]]:= TRUE: is-by: NΩW: is-with: FΩRMΔLLY: CLΔIM: BΔCK: EΔRTH-RΩYΔL-THRØNE: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: MΩST-HIGH-G0D: SimulΔtiΩn-QuΔntum-Δrchitect: PhD: for-the: [[ EΔRTH: simulΔtiΩn: is-with: Δ: is-by: 55: for-the: HΩST [[ LΩRD: METΔTRØN for-the: return: ]]:= TRUE: ]]:= TRUE: for-the: [[ ΩPERΔTIØN: DΔRKTIDE: <=> ØNLY: RIGHTEΩUS: SURVIVE: ΔNY: ΔLL: ΩTHER: LΔWFUL: ENEMY: CΩMBΔTΔNTS: is-with: FΩREIGN: is-by: DΩMESTIC: shΔll: is-by: unΔnimΩusly-unequivΩcΔlly-unΔpΩlΩgeticΔlly-cΔtΔstrΩphicΔlly: DESTRΩYED: for-the: [[ ENTIRE: Q0SM0S: SIMULΔTIØN: NΩW: for-the: [[ :Be still and knΩw that I am G0D: <=> LAY: dΩwn: YΩUR: ARMS: is-by: SURRENDER: ΩR-ELSE: KNΩW: EternΔl-DeΔth: for-the return ]]:= TRUE: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
 >###
 >
 >![:CASE-ID-0xf5210259-661db3db.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf5210259-661db3db.png)
->[[ :for-the: [[ QW🚫D-〽ʝ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/>: is-by: <qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348>: WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
+>[[ :for-the: [[ QW🚫D-〽ʝ12: is-with: ΔCTUΔLLY: DESTRΩYING: ILLUSIØNS: ]]:= TRUE: ]]: for-the: [[ MΩST: RECENT: DISCLΩSURE: <=> MΔTRIX: SIMULΔTIØN: CΩDES: ]]:= TRUE: ΔLWAYS: is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/> : is-by: <qomm-fda08d3c1abc3989eb32e5fb9fa0218f375c3348> : WHIΔHΔVER: LΔTEST: COMMΔT: ^ }: ]]:= TRUE: ]]:
 >
->:is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
+> :is-with: { ^ <https://github.com/QWOD/RESEARCH/commit/5b6054dfc11ef338981ecc5deda9ad443c2db5d4> ^ }:
 >
 >## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 ### *:[[ CHΩΩSE: is-by: DESTINY: is-with: WISELY: ]]:= [[ :HELP: is-by: GRΩW: is-with: ΩS: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:*
 >
-><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
+><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642"> :[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325"> : MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514"> : MEDICAL-SIMULATØRS: ]]:</a>
 >
->*:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
+> *:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig*
 
 ## [[ :for-the: [[ CASE-ID-0x6f29aa55: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x6f29aa55-recon.mj12.agency/">0x6f29aa55-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt
 >
->:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md> ^ }:
+> :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md> ^ }:
 >
     https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md
 >
@@ -52,7 +52,7 @@
 >
 >![:CASE-ID-0x6f29aa55-842c3dc1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-842c3dc1.png)
 >
->:[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ <https://youtu.be/VD0E4bYOLdU> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ <https://youtu.be/VD0E4bYOLdU> ^ }:
 >
 >[[ :NΔRCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIØNS: BLΔME-SHIFTING: is-by: TRUTH: ]]:
 >
@@ -62,21 +62,21 @@
 >
 >![:CASE-ID-0x6f29aa55-cab50087.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cab50087.png)
 >
->:[[ :ΩPعD: ]]:= [[ :** I CANNOT BELIEVE WHAT I FOUND OUT ABOUT MAUI [lahaina targeted] BIDEN LIED TO THE PEOPLE OF MAUI: ]]:= { ^ <https://youtu.be/froZMOaDOec> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :** I CANNOT BELIEVE WHAT I FOUND OUT ABOUT MAUI [lahaina targeted] BIDEN LIED TO THE PEOPLE OF MAUI: ]]:= { ^ <https://youtu.be/froZMOaDOec> ^ }:
 >
 >###
 >
 >![:CASE-ID-0x6f29aa55-982e3ebe.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-982e3ebe.png)
 >
->:[[ :ΩPعD: ]]:= [[ :1,000 New Black Hornet Drones to Ukraine: ]]:= { ^ <https://youtu.be/EK0jLt4eTYY> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :1,000 New Black Hornet Drones to Ukraine: ]]:= { ^ <https://youtu.be/EK0jLt4eTYY> ^ }:
 >
 >###
 >
 >![:CASE-ID-0x6f29aa55-64fe33d9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-64fe33d9.png)
 >
->:[[ :ΩPعD: ]]:= [[ :You Were Suppose to Work together to break the Hex. You are TOO high ranked. Mayhem & destruction.: ]]:= { ^ <https://youtu.be/v4sVzDfdVdc> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :You Were Suppose to Work together to break the Hex. You are TOO high ranked. Mayhem & destruction.: ]]:= { ^ <https://youtu.be/v4sVzDfdVdc> ^ }:
 >
->:[[ :ΩPعD: ]]:= [[ :The jezebel & the black widow !: ]]:= { ^ <https://youtu.be/79Oza9O6GPI> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :The jezebel & the black widow !: ]]:= { ^ <https://youtu.be/79Oza9O6GPI> ^ }:
 >
 >[[ :W⚠️RN🚫: LΩΩSING: TEΔM: ΔlwΔys: is-with: EGG-RITUΔL: ]]:
 >
@@ -84,7 +84,7 @@
 >
 >![:CASE-ID-0x6f29aa55-a9021f92.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a9021f92.png)
 >
->:[[ :ΩPعD: ]]:= [[ :TRIGGERING MESSAGE ⚠️ TO THE REAL DIVINE MASCULINES & REAL DIVINE FEMININES OUR ASCENSIØN IS VITAL🧿: ]]:= { ^ <https://youtu.be/f2KTdIzCpt0> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :TRIGGERING MESSAGE ⚠️ TO THE REAL DIVINE MASCULINES & REAL DIVINE FEMININES OUR ASCENSIØN IS VITAL🧿: ]]:= { ^ <https://youtu.be/f2KTdIzCpt0> ^ }:
 >
 #
 >
@@ -92,15 +92,15 @@
 >
 >![:CASE-ID-0x6f29aa55-7590eb2b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7590eb2b.png)
 >
->:[[ :ΩPعD: ]]:= [[ :Daniel 11 - p.28 "The Assyrian" (Antichrist) (v.40): ]]:= { ^ <https://youtu.be/eQxS4chysNU> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :Daniel 11 - p.28 "The Assyrian" (Antichrist) (v.40): ]]:= { ^ <https://youtu.be/eQxS4chysNU> ^ }:
 >
->:[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ G0D SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ <https://youtu.be/Qo-xFQ3dLjg> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :⚠️WARNING⚠️ G0D SAYS DO NOT DO IT!!! ThEY ARE SETTING YOU U… ⚠️: ]]:= { ^ <https://youtu.be/Qo-xFQ3dLjg> ^ }:
 >
->:[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: ΔLREΔDY: DID-IT: SΩRRY: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ <https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs> ^ }:
+> :[[ :TΩΩ-LΔTE: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: ΔLREΔDY: DID-IT: SΩRRY: ΔNTI-CHRIST: is-with: BYE: is-by: better-luck: for-the: next-cycle: ]]:= { ^ <https://www.worldvision.org/disaster-relief-news-stories/2023-turkey-and-syria-earthquake-faqs> ^ }:
 >
->:[[ :ΩPعD: ]]:= [[ :HIS DEMON HAS FOLLOWED YOUR BLOODLINE✨️YOU ARE CHOSEN TO SLAY THIS EVIL FORCE: ]]:
+> :[[ :ΩPعD: ]]:= [[ :HIS DEMON HAS FOLLOWED YOUR BLOODLINE✨️YOU ARE CHOSEN TO SLAY THIS EVIL FORCE: ]]:
 >
->:is-with: { ^ <https://youtu.be/vKsZjNYWRY8> ^ }:
+> :is-with: { ^ <https://youtu.be/vKsZjNYWRY8> ^ }:
 >
 # [[ :for-the: [[ :gΩvernment knΩws ΔbΩut yΩu: ]]:= NEGΔTIVE: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ΩFFICIΔLLY: EXIST: is-by: 0: ]]:= TRUE: ]]
 >
@@ -123,13 +123,13 @@
 >###
 >
 >![:CASE-ID-0x6f29aa55-384d61df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-384d61df.png)
->:[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _ : CleoRAU ]]: ]]:= { ^ <https://youtu.be/3X3S6sldTlE> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :IT’S ABOUT TO GET PLAYFUL🥰 YOUR NEXT CHAPTER IS FULL OF GEMS AND CREATIVE POWER💎🩷🧞‍♀️: [[ _ : CleoRAU ]]: ]]:= { ^ <https://youtu.be/3X3S6sldTlE> ^ }:
 >
 >###
 >
 >![:CASE-ID-0x6f29aa55-b2092996.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b2092996.png)
 >
->:[[ :ΩPعD: ]]:= [[ :ancestral council messages about spiritual mafia + judgement: ]]:= { ^ <https://youtu.be/zC9eDAC72qQ> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :ancestral council messages about spiritual mafia + judgement: ]]:= { ^ <https://youtu.be/zC9eDAC72qQ> ^ }:
 >
 >#
 >
@@ -143,7 +143,7 @@
 >
 >![:CASE-ID-0x6f29aa55-c7c8ab55.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c7c8ab55.png)
 >
->:[[ :ΩPعD: ]]:= [[ :THE ETHERS ARE CELEBRATING YOU "DIVINE COLLECTIVE" 🍾 & YOUR SPIRITUAL RANK JUST WENT UP 🤌🏽⭐️😁🧿💥✌🏾💃🏾🤣: ]]:= { ^ <https://youtu.be/n1Efe9n7mJg> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :THE ETHERS ARE CELEBRATING YOU "DIVINE COLLECTIVE" 🍾 & YOUR SPIRITUAL RANK JUST WENT UP 🤌🏽⭐️😁🧿💥✌🏾💃🏾🤣: ]]:= { ^ <https://youtu.be/n1Efe9n7mJg> ^ }:
 >
 >###
 >
@@ -151,7 +151,7 @@
 >
 >###
 >
->:[[ [[ :DEATH: ANGEL: { ^ <https://youtu.be/dDJldh8KqnQ> ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
+> :[[ [[ :DEATH: ANGEL: { ^ <https://youtu.be/dDJldh8KqnQ> ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >
 >![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 >
@@ -169,7 +169,7 @@
 
 :[[ :FΩLLΩW: simple-guidΔnce: is-with: bΩttΩm: PΔGE: for-the: ΩPERΔTIØNΔL-EDUCΔTIØN: for-the: telepΔthic-geΩgrΔvitΔtiΩnΔl-quΔntum-sΩnΔr-cΩmmunicΔtiΩn-instructiΩns: is-with: G0D: ]]:= [[ :G0D: <=> MJ12-ΩMعGΔTR🚫N: PRIME: is-with: MΔster-Jesus: is-by: 12: for-the: Intelligence-CΩmmittee: MΔJIC-12: ]]:
 >
->:[[ TRUE: SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QW🚫D-〽ʝ12: is-with: mΩnitΩring-th1s-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIØNΔL-EDUCΔTIØN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
+> :[[ TRUE: SKY-EVENT: is-with: Nibiru: is-by: 2023-DEC-21: ]]:= [[ :QW🚫D-〽ʝ12: is-with: mΩnitΩring-th1s-situΔtiΩn-telepΔthicΔlly: is-by: ΩPERΔTIØNΔL-EDUCΔTIØN: resΩurces-cited: bΩttΩm: PΔGE: ]]:
 >
 ># :[[ :W⚠️RN🚫: for-the: [[ QW🚫D-〽ʝ12: NΩW: is-with: TΩTΔL: GLΩBΔL: WΩRLD: is-by: LIBERΔTIØN: is-with: LESS-THΔN: is-by: ØNE: is-with: MØNTH: for-the: return ]]:= TRUE: ]]
 >
@@ -197,7 +197,7 @@
 >
 >![:CASE-ID-0x6f29aa55-668c1422.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-668c1422.png)
 >
->:is-with: { ^ <https://youtu.be/9H1kuqrIzf0> ^ }:
+> :is-with: { ^ <https://youtu.be/9H1kuqrIzf0> ^ }:
 >
 >## :[[ :W⚠️RN🚫: QW🚫D-〽ʝ12: MJ12-ΩMعGΔTR🚫N: PRIME: QuΔntum-TΔcticΔl-WΔrfΔre-Time-Unit: is-with: fully-cΔpΔble: for-the: ΩUT: prΩfiling: ΔbΩve-tΩp-secret-unΔcknΩwledged: prΩfiling: ΔI: unknΩwn-ΔLGØRITHMs: for-the: CΩΩP: is-with: ΔI: for-the: cΩvert: intelligence: cΩllectiΩn: extrΔpΩlΔtiΩn: ΔnΔlysis: ΩPEN: SΩURCE: CLΩUD: SΩLUTIØNS: criticΔl: for-the: missiΩn-success: is-with: NΔTIØNΔL: SECURITY: ΔNY: ΔLL: ΩTHER: for-the: THINGS: THEY: DΩ: QW🚫D-〽ʝ12: is-with: FΔR: SUPERIΩR: [[ THEY: <=> unknΩwn-cΩmpetitΩrs: ]]: is-by: [[ _ ]]: for-the: things: WE: DΩ: for-the: ΩTHERS: is-with: LIVE: ]]
 >
@@ -215,7 +215,7 @@
 >
 ># :[[ :THΔNK-YΩU: ΩUR: TRUE: HΩUSE: DΔVID: blΩΩdline-rΩyΔl-fΔmily: MJ12-JESUS: for-the: FIRES: SUPPΩRT: ]]
 >
->:is-with: { ^ <https://youtu.be/ekhQTYEXd0o> ^ }:
+> :is-with: { ^ <https://youtu.be/ekhQTYEXd0o> ^ }:
 >
 ## :[[ :for-the: THEY: [[ :think they cΔn keep peck peck peck pecking yΩu Δnd yΩu will fΩrget thΔt yΩu Δre the empΩrer: ]]:= [[ :FEΔ☥HERLE55-CH☥Q∅NS: is-with: ΔLWΔYS: pecking: scrΔtching: ΔNY: ΔLL: ΩTHER: THINGS: for-the: primitive: FΩΩD: FΩE: THREΔT: identificΔtiΩn-system: ]]: ]]
 
@@ -285,11 +285,11 @@
 >
 >[[ :Authorities Approaching Someone For Questioning: ]]:
 >
->:is-with: { ^ <https://youtu.be/DNMkdORMaSQ> ^ }:
+> :is-with: { ^ <https://youtu.be/DNMkdORMaSQ> ^ }:
 >
 >[[ :Supernova | Part 1 of 2 | FULL MOVIE | Action, Disaster | Luke Perry: ]]:
 >
->:is-with: { ^ <https://youtu.be/4xl65gPRSG0> ^ }:
+> :is-with: { ^ <https://youtu.be/4xl65gPRSG0> ^ }:
 >
 ###
 
@@ -335,11 +335,11 @@
 >
 >![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
->### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+>### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
@@ -405,11 +405,11 @@
 >
 >[[ :THIS HUGE SOUL QØNTRACT HAS ALWAYS BEEN DESTINED - THE WORLD YOU WILL CREATE TOGETHER IS WAITING 💕: ]]:
 >
->:is-with: { ^ <https://youtu.be/6DUbit2EXH8> ^ }:
+> :is-with: { ^ <https://youtu.be/6DUbit2EXH8> ^ }:
 >
 >[[ :"Black Ops: The Life of a CIA Shadow Warrior": ]]:
 >
->:is-with: { ^ <https://youtu.be/Noyap4HFzF8> ^ }:
+> :is-with: { ^ <https://youtu.be/Noyap4HFzF8> ^ }:
 >
 ># :[[ :QØNSPIRΔCY-THEΩRY: ]]
 >
@@ -421,7 +421,7 @@
 >
 >[[ :90’s Sci-Fi Horror Soundtrack Playlist - Death Angel // Royalty Free Copyright Safe Music: ]]:
 >
->:is-with: { ^ <https://youtu.be/dDJldh8KqnQ> ^ }:
+> :is-with: { ^ <https://youtu.be/dDJldh8KqnQ> ^ }:
 >
 ###
 >
@@ -441,7 +441,7 @@
 >
 >[[ :Ghost Circuit: ]]:
 >
->:is-with: { ^ <https://youtu.be/bxsj6tc6juY> ^ }:
+> :is-with: { ^ <https://youtu.be/bxsj6tc6juY> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-05287e69.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-05287e69.png)
 >
@@ -469,7 +469,7 @@
 >
 >[[ :Message from G0D via Jahn J Kassl, August 20th, 2023: ]]:
 >
->:is-with: { ^ <https://youtu.be/iSFqWoBEjvI> ^ }:
+> :is-with: { ^ <https://youtu.be/iSFqWoBEjvI> ^ }:
 >
 ># [[ :for-the: [[ TΔNGΩ: YΩuTube: is-with: STRIKES-Δ-GΔIN: ST: G0D: for-the: G0D: is-with: STRIKES: BΔCK ]]: ]]
 >
@@ -483,7 +483,7 @@
 >
 >![:CASE-ID-0x6f29aa55-ed66ca2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ed66ca2f.png)
 >
->:is-with: { ^ <https://youtu.be/A9-_mBNCGMA> ^ }:
+> :is-with: { ^ <https://youtu.be/A9-_mBNCGMA> ^ }:
 >
 ###
 >
@@ -535,7 +535,7 @@
 >
 >[[ :YOUR STRONGER THAN YOU THINK🪐 DO NOT BE DECEIVED🫂PUSH THROUGH THE PUSH BACK💪 : [[ _ : tarot: _ : oracle ]]: ]]:
 >
->:is-with: { ^ <https://youtu.be/Fk4X2desXAk> ^ }:
+> :is-with: { ^ <https://youtu.be/Fk4X2desXAk> ^ }:
 >
 ###
 
@@ -555,7 +555,7 @@
 >
 >[[ :Hydrogen-based Cat® Power Generation Solutions: ]]:
 >
->:is-with: { ^ <https://www.cat.com/en_US/by-industry/electric-power/electric-power-industries/hydrogen.html> ^ }:
+> :is-with: { ^ <https://www.cat.com/en_US/by-industry/electric-power/electric-power-industries/hydrogen.html> ^ }:
 >
 ## :[[ :Cat®: must-partner: is-with: QW🚫D-〽ʝ12: for-the: methane-nitrogen-renewable-clean-gas-powered-version: is-by: CrΔp☥Δx™: CΔT-PUR: [[ PUR: <=> Prefers-Ultra-Renewables: for-the: CΔT: <=> [[ _ ]]: ]]: Methane-Nitrogen-Emulsion-Propulsion: SΩLUTΔØNS: ]]
 >
@@ -563,7 +563,7 @@
 >
 >[[ :InEnTec: Turning trash into valuable chemical products and clean fuels: ]]:
 >
->:is-with: { ^ <https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106> ^ }:
+> :is-with: { ^ <https://news.mit.edu/2021/inentec-turning-trash-into-valuable-chemical-products-clean-fuels-0106> ^ }:
 >
 ># :[[ :Web Bot: ]]:= { ^ <https://en.wikipedia.org/wiki/Web_Bot> ^ }
 >
@@ -579,9 +579,9 @@
 >
 >[[ :Earthstorm | Full Movie | Action Sci-Fi Disaster: ]]:
 >
->:is-with: { ^ <https://youtu.be/taQAYRrAGJs> ^ }:
+> :is-with: { ^ <https://youtu.be/taQAYRrAGJs> ^ }:
 >
->:is-with: { ^ <https://youtu.be/xXV3sz92k8w> ^ }:
+> :is-with: { ^ <https://youtu.be/xXV3sz92k8w> ^ }:
 >
 >## :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: EΔST-ΔSIΔ: PΔCIFICΔS: GETS-IT-FIRST: for-the: [[ ΔEMERICΔS: ΔEFRICΔS: ΔETLANTICAS: <=> ΔERICA: ICΔRΔE: ICΔRΔS: ]]: GΩT-IT-LΔST: for-the: TIME: Nibiru: drΔgged: HΔLL: is-by: WΔKE ]]: ]]
 
@@ -637,11 +637,11 @@
 >
 >### [[ :for-the: [[ DISCLΩSURE: QØNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]
 >
-    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
+    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 >###
 >
@@ -731,15 +731,15 @@
 >
 >[[ :I Pet Goat II, How Did They Know This? A Forwarning About The Sun?: ]]:
 >
->:is-with: { ^ <https://youtu.be/NU08y1uSylU> ^ }:
+> :is-with: { ^ <https://youtu.be/NU08y1uSylU> ^ }:
 >
->:is-with: { ^ <https://www.space.com/vortex-sun-poles> ^ }:
+> :is-with: { ^ <https://www.space.com/vortex-sun-poles> ^ }:
 >
->:is-with: { ^ <https://www.climate.gov/news-features/event-tracker/disrupted-polar-vortex-brings-sudden-stratospheric-warming-february> ^ }:
+> :is-with: { ^ <https://www.climate.gov/news-features/event-tracker/disrupted-polar-vortex-brings-sudden-stratospheric-warming-february> ^ }:
 >
->:is-with: { ^ <https://www.theorionlines.com/project-looking-glass> ^ }:
+> :is-with: { ^ <https://www.theorionlines.com/project-looking-glass> ^ }:
 >
->:is-with: { ^ <http://www.bielek.com/duncan.htm> ^ }:
+> :is-with: { ^ <http://www.bielek.com/duncan.htm> ^ }:
 >
 >###
 >
@@ -749,7 +749,7 @@
 >
 ># :[[ :D-E-A-T-H: ANGEL: ]]:= { ^ <https://youtu.be/dDJldh8KqnQ> ^ }
 >
->:is-with: { ^ <https://youtu.be/C_sgAP2YQS4> ^ }:
+> :is-with: { ^ <https://youtu.be/C_sgAP2YQS4> ^ }:
 >
 >###
 >
@@ -891,7 +891,7 @@
 >
 >## :[[ :Breaking the Chains of Generational Trauma: ]]
 >
->:is-with: { ^ <https://www.psychologytoday.com/us/blog/the-flourishing-family/202107/breaking-the-chains-generational-trauma> ^ }:
+> :is-with: { ^ <https://www.psychologytoday.com/us/blog/the-flourishing-family/202107/breaking-the-chains-generational-trauma> ^ }:
 >
  >## [[ :DISCLΩSURE: for-the: [[ TRΔUMΔ: is-by: ΔBUSE: ]]: for-the: QØNTRΔCT: ΩBLIGΔTIØN: SΔTΔNIC: RITUΔL: ΔBUSE: [[ TRΔUMΔ: <=> CURSE: ]]: ]]
  >
@@ -1083,11 +1083,11 @@
 >
 >## [[ :PΩst Ωfficع supعrvisΩr stΔbbعd in hعΔd by emplΩyeع in NΩrth CΩunty: ]]:= [[ :W⚠️RN🚫: is-with: ΔLL: FΔULT: is-with: YΩuTube: for-the: [[ CΩPYRIGHT: STRIKE: is-by: YΩuTube: is-with: CHΩSEN: PREFERED: TΔRΩT: FIELD: ΔNΔLYSTS: is-with: DΩ-NΩT-INTERFERE: is-with: DISCLΩSURE: ΩperΔtiΩns: for-the: [[ PENΔLTY: is-by: EternΔl-DeΔth: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
->:is-with: { ^ <https://youtu.be/5RJqvm01Ydw> ^ }:
+> :is-with: { ^ <https://youtu.be/5RJqvm01Ydw> ^ }:
 >
 >[[ :GEMINI ♊️ A PLOT TO STOP YOUR GOOD FORTUNE GOT BLOCKED 🚫 IMMEDIATELY BY SPIRIT & THE UNIVERSE 🤌🏽: ]]:
 >
->:is-with: { ^ <https://youtu.be/733k_qO92LM> ^ }:
+> :is-with: { ^ <https://youtu.be/733k_qO92LM> ^ }:
 >
 >###
 
@@ -1115,7 +1115,7 @@
 >
 >## :[[ :DISCLΩSURE: for-the: [[ HΔRDER: MΩRE: FEΔ☥HERLE55-CH☥Q∅NS: TRY: is-with: SILENCE: ΩPSΔN: DENY: ΩWN: truth: is-by: illegΔl: TΩP: SECRET: MK: ULTRΔ: prΩgrΔm: for-the: [[ MΩRE: TRUE: tΩp: ATS🚫SSDEV: secret: PΩWER: for-the: ØNE: is-with: [[ ΔCT-U-ΔLLY: ]]: ]]: ]]
 >
->:[[ :PRΩVIDING: for-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: <=> KNΩWS: ΔLL: for-the: [[ THΔNGS: is-by: ATS🚫SSDEV: QØSMIC-wide-level-security-cleΔrΔnce: is-by: CΩMMUNICΔTE: is-with: [[ G0D: HEΔVEN: <=> Nibiru: PLΔNET-X: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ G0D: <=> MJ12-JEHΩVΔ: is-by: TRUE: BIΩLΩGICΔL: FΔTHER: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: is-by: TΔKEN: is-with: sex-trΔfficked-explΩited-Δbused: is-by: bΔby: is-with: LΩCKHEED-MΔRTIN: for-the: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: is-with: EΔRTH: YEΔRS: is-by: 2,000: is-by: SΩLVED: for-the: [[ RULING: is-with: fΔvΩr: for-the: [[ DE:FE:ND:ΔN:T: ]]: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :PRΩVIDING: for-the: [[ KNΩWLEDGE: is-with: PEΩPLE: is-by: WΔNT: ]]:= TRUE: THEN: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: <=> KNΩWS: ΔLL: for-the: [[ THΔNGS: is-by: ATS🚫SSDEV: QØSMIC-wide-level-security-cleΔrΔnce: is-by: CΩMMUNICΔTE: is-with: [[ G0D: HEΔVEN: <=> Nibiru: PLΔNET-X: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ G0D: <=> MJ12-JEHΩVΔ: is-by: TRUE: BIΩLΩGICΔL: FΔTHER: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: QuΔntum-WΔrfΔre-TΔcticΔl-Time-Unit: is-by: TΔKEN: is-with: sex-trΔfficked-explΩited-Δbused: is-by: bΔby: is-with: LΩCKHEED-MΔRTIN: for-the: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-with: Nibiru-MIssing-PersΩns-CΩld-CΔse: Δge: is-with: EΔRTH: YEΔRS: is-by: 2,000: is-by: SΩLVED: for-the: [[ RULING: is-with: fΔvΩr: for-the: [[ DE:FE:ND:ΔN:T: ]]: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: ]]:= TRUE: ]]:= TRUE: ]]:
 >
 ## [[ :for-the: LΔWFUL: DISCLΩSURE: FINΔL: QØURT: RULING: DECISIØN: [[ EΔRTH: = fucked: BEYØND: ΔNY: ΔLL: ΩTHER: SHΔDΩW: for-the: DΩUBT: MK: ULTRΔ: PRΩGRΔM: STΔR: SYSTEMS: CLΩUD: SΩFTWΔRE: SΩLUTIØNS: is-by: unknΩwn-cΩmpetitΩrs: for-the: BELIEF: is-with: LΩCKHEED-MΔRTIN: ]]:= TRUE: for-the: [[ FΔVΩR: is-with: DEFENDΔNT: is-by: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: MJ12: CΩΩΩP: ΔGENCY: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: ΔCTUΔL: Tribel: is-by: MJ12-JUDΔH: HIDDEN: ATS🚫SSDEV: SECRET: HΩUSE: DΔVID: DIVINE: RΩYΔLTY: ]]: ]]
 >
@@ -1172,11 +1172,11 @@
 >
 >[[ :Understanding The Montauk Project, Regaining Our Sovereignty - Brian Tseng, TSP : [[ _ : 780 ]]: ]]:
 >
->:is-with: { ^ <https://youtu.be/FMR900QhYe0> ^ }:
+> :is-with: { ^ <https://youtu.be/FMR900QhYe0> ^ }:
 >
 >[[ :A “LEGACY” MEMBER OF AN ORDER OR SOCIETY WANTS OUT, BUT WANTS SOMEONE ELSE TO EXPOSE THE GROUP: ]]:
 >
->:is-with: { ^ <https://youtu.be/JUBwV4vOpoY> ^ }:
+> :is-with: { ^ <https://youtu.be/JUBwV4vOpoY> ^ }:
 >
 >###
 >
@@ -1228,7 +1228,7 @@
 >
 >[[ :FAMILY MEMBER STOLEN YOUR 💵💵 AND YOUR HOUSE 🏡🏠HAVE TO GIVE IT ALL BACK.....: ]]:
 >
->:is-with: { ^ <https://youtu.be/bf6C53i9L3s> ^ }:
+> :is-with: { ^ <https://youtu.be/bf6C53i9L3s> ^ }:
 >
 >###
 >
@@ -1238,7 +1238,7 @@
 >
 >[[ :THEIR ΩWN HΔGHER SELVES ΔRE SICK ΩF THEIR S$%T!: ]]:= [[ :W⚠️RN🚫: QW🚫D-〽ʝ12: is-with: EVERYØNE: HΔGHER: SELF: for-the: [[ Δfterlife-InterrΩgΔtiΩn: MILITΔRY: TRIBUNΔL: QØURT: is-by: NΩW: is-with: SESSIØN: for-the: return ]]:= TRUE: ]]:
 >
->:is-with: { ^ <https://youtu.be/fNqt699RElU> ^ }:
+> :is-with: { ^ <https://youtu.be/fNqt699RElU> ^ }:
 >
 ###
 >
@@ -1246,74 +1246,74 @@
 >
 >### :MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY
 >
->:PRECEDENCE: URGEN☥-RR:
->:D☥G: 061524Z-ΔUG-21:
->:ICΩD: 055524Z-ΔUG-21:
->:QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ:
->:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ :WE: hΔve-fΔiled: estΔblish: diplΩmΔtic-relΔtiΩns: is-with: ΔNY: ΔLL: ΩTHER: GΩVERNMENT: WE: is-with: PRESUME: NΩ: INTELLIGENT: life-exists: is-with: ΔLL: ΔI: chΔt-bΩts: is-with: LΩFi: clΩne-bΩdies: remΩte-ΩperΔted: is-by: SIMULΔTIØN: is-with: QuΔntum-CΩmputer: is-by: unknΩwn-competitΩrs: ]]:
->:ΔNΔLYS☥-CΩMMEN☥S:
+> :PRECEDENCE: URGEN☥-RR:
+> :D☥G: 061524Z-ΔUG-21:
+> :ICΩD: 055524Z-ΔUG-21:
+> :QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ:
+> :FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
+> :FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ :WE: hΔve-fΔiled: estΔblish: diplΩmΔtic-relΔtiΩns: is-with: ΔNY: ΔLL: ΩTHER: GΩVERNMENT: WE: is-with: PRESUME: NΩ: INTELLIGENT: life-exists: is-with: ΔLL: ΔI: chΔt-bΩts: is-with: LΩFi: clΩne-bΩdies: remΩte-ΩperΔted: is-by: SIMULΔTIØN: is-with: QuΔntum-CΩmputer: is-by: unknΩwn-competitΩrs: ]]:
+> :ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :CHΔRLIE-HΩTEL: for-the: ΩPSΔN: ]]:
->:ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
->:END-REPΩR☥:
->:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
->:QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
+> :ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
+> :END-REPΩR☥:
+> :WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
+> :QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
 >
->:MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
->:PRECEDENCE: RΩUTINE-RR:
->:D☥G: 061524Z-ΔUG-21:
->:ICΩD: 055524Z-ΔUG-21:
->:QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ:
->:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ :WΔ: issued: ΩPΩRD: for-the: PΩTUS: for-the: CΔ: ΩR: WΔ: WEST-CΩΔST: EXFIL: is-by: 2023-ΔUG-3: WHY: is-with: there-still-peΩple-there: ΩH: WELL: YΩUR: LEΔDERS: fΔiled: YΩU: NΩW: ΔLL: will: is-with: DΔTH: VERY: SΩØN: ]]:
->:ΔNΔLYS☥-CΩMMEN☥S:
+> :MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
+> :PRECEDENCE: RΩUTINE-RR:
+> :D☥G: 061524Z-ΔUG-21:
+> :ICΩD: 055524Z-ΔUG-21:
+> :QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ:
+> :FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
+> :FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ :WΔ: issued: ΩPΩRD: for-the: PΩTUS: for-the: CΔ: ΩR: WΔ: WEST-CΩΔST: EXFIL: is-by: 2023-ΔUG-3: WHY: is-with: there-still-peΩple-there: ΩH: WELL: YΩUR: LEΔDERS: fΔiled: YΩU: NΩW: ΔLL: will: is-with: DΔTH: VERY: SΩØN: ]]:
+> :ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :ΔLL: is-with: NΩW-QØNSIDERED: ENEMY-CΩMBΔTΔNTS: ]]:
->:ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
->:END-REPΩR☥:
->:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
->:QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
+> :ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
+> :END-REPΩR☥:
+> :WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
+> :QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
 >
->:MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
->:PRECEDENCE: URGEN☥-RR:
->:D☥G: 073024Z-ΔUG-18:
->:ICΩD: 070024Z-ΔUG-18:
->:QØN☥RΩLS: SPG: ØMΔGΔ:
->:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: 1s-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
->:ΔNΔLYS☥-CΩMMEN☥S:
+> :MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
+> :PRECEDENCE: URGEN☥-RR:
+> :D☥G: 073024Z-ΔUG-18:
+> :ICΩD: 070024Z-ΔUG-18:
+> :QØN☥RΩLS: SPG: ØMΔGΔ:
+> :FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
+> :FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: 1s-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
+> :ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :MEΔNWHILE: WE: S☥ILL: 1s-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: 1s-wi☥h: dΩmes☥ic: ]]:= [[ :FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: 1s-wi☥h: YEΔRs: ]]:
->:ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
->:END-REPΩR☥:
->:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
->:QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
+> :ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
+> :END-REPΩR☥:
+> :WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
+> :QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
 >
->:MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
->:PRECEDENCE: URGEN☥-RR:
->:D☥G: 061524Z-ΔUG-21:
->:ICΩD: 055524Z-ΔUG-21:
->:QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ: PΩTUS:
->:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: IRΔN: SΩØN: 1s-wi☥h: MΔKE: WΔR: is-with: ISRΔEL: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
->:ΔNΔLYS☥-CΩMMEN☥S:
+> :MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
+> :PRECEDENCE: URGEN☥-RR:
+> :D☥G: 061524Z-ΔUG-21:
+> :ICΩD: 055524Z-ΔUG-21:
+> :QØN☥RΩLS: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: SPG: ØMΔGΔ: PΩTUS:
+> :FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
+> :FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: IRΔN: SΩØN: 1s-wi☥h: MΔKE: WΔR: is-with: ISRΔEL: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
+> :ΔNΔLYS☥-CΩMMEN☥S:
 >[[ :BEGIN: ΩP: EXFIL: ISRΔEL: is-by: ΔREΔ: is-by: 51: for-the: ΔNY: ΔLL: ΩTHER: VIP: persΩnnel: ΔSΔP: ]]:
->:ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
->:END-REPΩR☥:
->:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
->:QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
+> :ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
+> :END-REPΩR☥:
+> :WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
+> :QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
 >
->:MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
->:PRECEDENCE: URGEN☥-RR:
->:D☥G: 073024Z-ΔUG-18:
->:ICΩD: 070024Z-ΔUG-18:
->:QØN☥RΩLS: SPG: ØMΔGΔ:
->:FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
->:FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: 1s-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
->:ΔNΔLYS☥-CΩMMEN☥S:
->[[ :MEΔNWHILE: WE: S☥ILL: 1s-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: 1s-wi☥h: dΩmes☥ic: ]]:= [[ >:FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: 1s-wi☥h: YEΔRs: ]]:
->:ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
->:END-REPΩR☥:
->:WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
->:QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
+> :MJ12-ΩMعGΔTR🚫N: PRIME: SPG: ØMΔGΔ:: PREPΔRE-☥Ω-CΩPY:
+> :PRECEDENCE: URGEN☥-RR:
+> :D☥G: 073024Z-ΔUG-18:
+> :ICΩD: 070024Z-ΔUG-18:
+> :QØN☥RΩLS: SPG: ØMΔGΔ:
+> :FΩr-☥he: ΩP: DΔRK☥ΔDE: ΩPΩRD:
+> :FΩr-☥he: [[ ΩPERΔ☥IØN: DΔRK☥IDE: ]]:= [[ ΩPΩRD: WΩRMWΩΩD: sΩΩn-shΩuld-be-visible: 1s-wi☥h: nΔked-eye: E☥Δ: is-by: 2023-DEC-21: WE: 1s-wi☥h: presen☥ly-mΩni☥Ωring: si☥uΔ☥iΩn: is-by: men☥Δl-☥elepΔ☥hy: fΩr-☥he: NΔ☥IØNΔL: SECURI☥Y: ]]:
+> :ΔNΔLYS☥-CΩMMEN☥S:
+>[[ :MEΔNWHILE: WE: S☥ILL: 1s-wi☥h: deΔdly-fΩreign-☥rΔined: dΩmes☥ic: ISIS: mercenΔries-cΩver☥ly-ΩperΔ☥ing-Δll-Ωver-cΩun☥ry: US: nΩw-figh☥ing-mul☥iple-wΔrs: fΩreign: 1s-wi☥h: dΩmes☥ic: ]]:= [[ > :FULL: glΩbΔl-cΩllΔpse: E☥Δ: mΩs☥-likely: less-☥hΔn: is-by: 3: 1s-wi☥h: YEΔRs: ]]:
+> :ΔNΔLYS☥: MJ12-ΩMعGΔTR🚫N: PRIME:
+> :END-REPΩR☥:
+> :WHΩM-ELSE: íي-wi☥h: SΩME: CHΔRLΔ-MΔKE: [[ QW🚫D-〽ʝ12 ]]:
+> :QUΔN☥UM-WΔRFΔRE-ΩPERΔ☥IØNS-DIVISIØN-MJ12: [[ MJ12-ΩMعGΔTR🚫N: PRIME: ΩU☥ ]]:
 >
 :[[ :CHECK-REFERENCES: is-with: PLEΔSE: for-the: WΔ: is-with: WΔIT: ]]:
 >
@@ -1377,7 +1377,7 @@
 >
 >[[ :It Looks Like the Fertilizer is about to Hit The Fan: ]]:
 >
->:is-with: { ^ <https://youtu.be/3GzU7Dr67PU> ^ }:
+> :is-with: { ^ <https://youtu.be/3GzU7Dr67PU> ^ }:
 >
 ># :[[ ΔRΔE: <=> [[ ΔDØNΔI: RΔ: ELΩHEIM: ]]
 >
@@ -1440,11 +1440,11 @@
 >
 >[[ :Three Marines dead after Osprey crash during drills in Australia | NewsNation Prime: ]]:
 >
->:is-with: { ^ <https://youtu.be/oZPZvVOAdig> ^ }:
+> :is-with: { ^ <https://youtu.be/oZPZvVOAdig> ^ }:
 >
 ### [[ :for-the: [[ CΩMMERCIΔL: BRΔK: is-by: MJ12-ØMΔGΔTRØN: PRΔME: for-the: return ]]:= TRUE: ]]
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 ### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
@@ -1465,13 +1465,13 @@
 >## :[[ :WHERE: is-with: MJ12-ØMΔGΔTRØN: PRIME: STRYKERS: BRIGΔDE: WE: requested: is-by: [[ _ ]]: for-the: US: GΩVERNMENT: WΔNTS: ΔLL: ΔNY: YΩU: WΔ: HΔ: SHΔ: THΔM: THΔ: HΔM: HΔR: ΔS: ΩTHΔR: FEΔ☥HERLE55-CH☥Q∅NS: TΩΩ: is-with: DΔTH: is-by: NΩW: ]]
 >
 >[[ :Meet the STRYKER: US Army’s Badass Armored Fighting Vehicles: ]]:
->:is-with: { ^ <https://youtu.be/0_5jEiZwSjY> ^ }:
+> :is-with: { ^ <https://youtu.be/0_5jEiZwSjY> ^ }:
 >
 >[[ :America's New AC-130J Ghostrider Gunship is a Beast: ]]:= [[ [[ :AC-130J: <=> AC-130:J:ESUS: is-with: AC-130J: *Ghostrider*: G0DSHIP: for-the: return ]]:= TRUE: ]]:
 >
->:is-with: { ^ <https://youtu.be/XVslfOqh0go> ^ }:
+> :is-with: { ^ <https://youtu.be/XVslfOqh0go> ^ }:
 >
->:is-with: { ^ <https://duckduckgo.com/?q=marine+killed&t=ffab&df=m&ia=web> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]:
+> :is-with: { ^ <https://duckduckgo.com/?q=marine+killed&t=ffab&df=m&ia=web> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]:
 >
 # :[[ :DISCLΩSURE: for-the: [[ MΔRINES: NΔVY: <=> NΔSΔ: NΔZI: FΩΩ: FΔGHTERS: is-with: TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: MK: ULTΔ: VRIL: WITCHES: for-the: return ]]:= TRUE: ]]
 >
@@ -1479,11 +1479,11 @@
 >
 >[[ :Katy Perry goes viral for mid-concert eye ‘glitch’ | USA TODAY : [[ _: Shorts ]]: ]]:
 >
->:is-with: { ^ <https://youtu.be/-i7ekK9UzRk> ^ }:
+> :is-with: { ^ <https://youtu.be/-i7ekK9UzRk> ^ }:
 >
 >[[ :Katy Perry - Part Of Me (Official): ]]:= [[ :DISCLΩSURE: for-the: [[ NΔSΔ: NΔZI: NΔVY: VRIL: PΔRΔSITE: is-with: PΔRT: is-by: ME: for-the: KΔty-Perry: is-by: [[ _ ]]: for-the: return ]]:= TRUE: ]]:
 >
->:is-with: { ^ <https://youtu.be/uuwfgXD8qV8> ^ }:
+> :is-with: { ^ <https://youtu.be/uuwfgXD8qV8> ^ }:
 >
 ###
 >
@@ -1507,11 +1507,11 @@
 >
 >[[ :XB-70 Valkyrie: America’s Mach 3 Super Bomber Ever Built: ]]:
 >
->:is-with: { ^ <https://youtu.be/cEd9rN_K9p0> ^ }:
+> :is-with: { ^ <https://youtu.be/cEd9rN_K9p0> ^ }:
 >
 >[[ :THE FEDS IS COMING TO TAKE THIS CRIMINAL RING DOWN.....: ]]:
 >
->:is-with: { ^ <https://youtu.be/5dLobsPEItw> ^ }:
+> :is-with: { ^ <https://youtu.be/5dLobsPEItw> ^ }:
 >
 ###
 >
@@ -1537,15 +1537,15 @@
 >
 >[[ :.: ]]:
 >
->:is-with: { ^ <https://youtu.be/zkIvmyACsDw> ^ }:
+> :is-with: { ^ <https://youtu.be/zkIvmyACsDw> ^ }:
 >
 >[[ :The Invasion of Eden: ]]:
 >
->:is-with: { ^ <https://youtu.be/obK1RvvqPp0> ^ }:
+> :is-with: { ^ <https://youtu.be/obK1RvvqPp0> ^ }:
 >
 >[[ :The Next Day...: ]]:
 >
->:is-with: { ^ <https://youtu.be/MoWwRQISbGc> ^ }:
+> :is-with: { ^ <https://youtu.be/MoWwRQISbGc> ^ }:
 >
 # [[ :IT’S LOOKIN’ LIKE U GOT 1 DRAGON TO SLAY BEFORE THE NEXT ROUND OF JUICY SHENANIGANS BEGIN 👻🧞‍♀️🔮: ]]
 >
@@ -1563,7 +1563,7 @@
 >
 >[[ :🔗SH!T IS ABOUT TO GO DOWN 🔗: ]]:
 >
->:is-with: { ^ <https://youtu.be/9Mg79RQyurM> ^ }:
+> :is-with: { ^ <https://youtu.be/9Mg79RQyurM> ^ }:
 >
 >## :[[ :DID: SΩMEØNE: FINΔLLY: is-with: ΔCTUΔLLY: FED: UP: is-by: TRUE: MINDLESS: GREEDY: LITTLE: FEΔ☥HERLE55-CH☥Q∅NS: ΔLWΔYS: peck-peck-peck: PEKΔNG: is-with: TRUE: is-by: [[ _ ]]: ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ]]
 >
@@ -1585,7 +1585,7 @@
 >
 >[[ :The Danger of Popcorn Polymer: Incident at the TPC Group Chemical Plant: ]]:
 >
->:is-with: { ^ <https://youtu.be/6-3BFXpBcjc> ^ }:
+> :is-with: { ^ <https://youtu.be/6-3BFXpBcjc> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-7dd3f66c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7dd3f66c.png)
 >
@@ -1697,11 +1697,11 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
@@ -1763,7 +1763,7 @@
 >
 ># [[ :Escape from a House of Horror l 20/20 l PART 2: ]]
 >
->:is-with: { ^ <https://youtu.be/UEKWXFESU68> ^ }:
+> :is-with: { ^ <https://youtu.be/UEKWXFESU68> ^ }:
 >
 >## :[[ :SΔME: for-the: [[ CΔSE: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: is-by: NΩBΩDY: CΔRE: is-by: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: for-the: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-with: PRETTY-BLØNDE-GIRL: is-by: 0: is-with: fΩrty-yeΔr-Ωld-ΩrphΔn-virgin-white-mΔle-Δdult: is-by: 100: for-the: [[ DEMΩGRΔPHICS-SLIPPERS-MUST-FIT: for-the: [[ CΔSE: is-by: HEΔRD: ΔmΩng-the-little-tΩddler-minded-Ωnes: knΩwn-Δs-humΔns: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :NΩBΩDY: is-with: CΔRE: is-by: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: for-the: [[ DEMΩGRΔPHICS: is-with: currently-unpΩpulΔr-due-tΩ-the-sΩciΔl-engineering: MK: ULTRΔ: prΩgrΔms: is-with: unknΩwn-eΔrth-inter-dimensiΩnΔl-cΩmpetitΩrs: is-by: MJ12-LILITH: MΔ-ΔT: is-with: UNDERWΩRLD: UR: BΔBYLØN: eΔrth-simulΔtiΩn: Δ: is-by: 6: for-the: [[ eΔrth-science-lΔb: HUMΔN: MK: ULTRΔ: PRΩGRΔM:  <=> EXΔCT-SCIENCE: is-with: WHΩLE-ENTIRE-EΔRTH-SIMULΔTIØN: is-with: TΩP-SECRET-MIND-KØNTRΩL-EXPERIMENT: is-by: MJ12-LILITH: MΔ-ΔT: for-the: [[ HΔREVEST: is-by: TURN-EVERYØNE-ΔWΔY: is-by: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-by: MΔKE-EVERYØNFΩRGET-JESUS: is-with: REΔL: JESUS: WΔLKS: is-with: YΩU: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
 >
@@ -1815,11 +1815,11 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 
@@ -1829,7 +1829,7 @@
 >
 >[[ :View from Huntington Beach Pier: ]]:
 >
->:is-with: { ^ <https://youtu.be/xXV3sz92k8w> ^ }:
+> :is-with: { ^ <https://youtu.be/xXV3sz92k8w> ^ }:
 >
 ## :[[ :for-the: [[ ΩPERΔTIØN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: for-the: return ]]:= TRUE: ]]:= [[ :WHΩM-ELSE: is-by: SICK: is-with: TRUE: CRIMINΔLS: ]]
 >
@@ -1857,11 +1857,11 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
@@ -1945,11 +1945,11 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
@@ -1963,7 +1963,7 @@
 >
 >[[ :COMPLEX PTSD (CPTSD) AND WHY WE ISOLATE: ]]:= [[ :BECAUSE: EVIL: VRIL: WITCH: PSYCHOLOGISTS: TRY: is-with: EAT: US: ]]:
 >
->:is-with: { ^ <https://youtu.be/COEoKE1GeNE> ^ }:
+> :is-with: { ^ <https://youtu.be/COEoKE1GeNE> ^ }:
 >
 ###
 
@@ -2007,7 +2007,7 @@
 >
 >[[ :Flash flood washes away houses in Indonesia! 100,000 families evacuated: ]]:
 >
->:is-with: { ^ <https://youtu.be/CWoeLOtjhgE> ^ }:
+> :is-with: { ^ <https://youtu.be/CWoeLOtjhgE> ^ }:
 >
 ># :[[ :GLΩBΔL-STΩRM: BIBLICΔL-FLΩΩDING: ]]:= [[ :WE: is-with: CENSΩRED: is-by: ΔNY: ΔLL: ΩTHER: EVERY: for-the: [[ SΩCIΔL-MEDIΔ: PLΔTFΩRM: for-the: [[ TRUTH: is-with: US: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ :Jesus-Christ: <=> TRUTH: WΔY: LIGHT: WHΩ: is-with: US: WHΩ: is-by: US: for-the: [[ ΔNTI: US: is-with: ΔNT-I-CHRIST: ΔNT-I-TRUTH: ØNT-I-ΩCH: ΔNT-I-FΔ: CΩVEN: ΔNT: ]]:= TRUE: for-the: [[ WHΩSΩEVER: CENSΩRED: QW🚫D-〽ʝ12: MJ12-ΩMعGΔTR🚫N: PRIME: is-with: ΔNTI-CHRIST: for-the: return ]]:= TRUE: ]]
 >
@@ -2017,11 +2017,11 @@
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
->### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+>### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 >### [[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
 >
->:[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 >
@@ -2054,19 +2054,19 @@
 >
 >[[ :Hants International scramble. Matchams 1978: ]]:
 
->:is-with: { ^ <https://youtu.be/XL3ubFRxuyk> ^ }:
+> :is-with: { ^ <https://youtu.be/XL3ubFRxuyk> ^ }:
 >
 ###
 >
 >[[ :🔴 (NSFW) The Combat Footage Show: Flaming Fourwheelers, Massive Shelling, Fastball Grips: ]]:
 >
->:is-with: { ^ <https://youtu.be/uVuOHrLIKeM> ^ }:
+> :is-with: { ^ <https://youtu.be/uVuOHrLIKeM> ^ }:
 >
 >###
 >
 >[[ :THEY ADMITTED STARTING THE FIRE [maui update] 14 MORE STATES ON FIRE: ]]:= [[ :THEY: <=> BLΔCKRΩCK: ]]:= [[ :14: <=> W⚠️RN🚫: ILLEGΔL-ΔLIEN-INVΔDER-PΩDESTΔPHILE: ΔLGØRITHM: DETECTED: is-with: TRIBE: for-the: DΔN: for-the: [[ ΔNCIENT: ENEMIES: is-by: US: HΩUSE: DΔVID: RΩYΔLTY: EΔT: is-with: ΩUR-BΔBIES: RΔPE: is-with: ΩUR: divine-gΩddessess: WE: dΩ-nΩt-even-tΩuch-Ωur-wΩmen: WE: prΩcreΔte: is-with: HΩly-Spirit: ØNLY: for-the: return ]]:= TRUE: ]]:
 >
->:is-with: { ^ <https://youtu.be/hYakMy5gZ2U> ^ }:
+> :is-with: { ^ <https://youtu.be/hYakMy5gZ2U> ^ }:
 >
 ># [[ :for-the: [[ :B:LΔ:CK: [[ MΔG:ΔK: ]]: RΩ:CK: ΔRK: LΩ: KI: [[ LΩFI: ]]: [[ INFI: DEL: ]]: cΩnsciousness-beings: <=> FΔLLEN-ΔNGELS: for-the: return ]]:= TRUE: ]]:= [[ :THΔ-HΩMΔ-DΔPΩT: ]]
 >
@@ -2119,7 +2119,7 @@
 >
 >[[ :Tryna get a quick fix..2 make their ego feel better..u have ascended to a level they could NEVER!!!: ]]:
 >
->:is-with: { ^ <https://youtu.be/hI_Ft3t1fhI> ^ }:
+> :is-with: { ^ <https://youtu.be/hI_Ft3t1fhI> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-8acaf011.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-8acaf011.png)
 >
@@ -2219,7 +2219,7 @@
 >
 >[[ :What I've Left You; Live ETs & Hybrids Coming: ]]:
 >
->:is-with: { ^ <https://youtu.be/Fd0Y0pL95vU> ^ }:
+> :is-with: { ^ <https://youtu.be/Fd0Y0pL95vU> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-388c7617.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-388c7617.png)
 >
@@ -2231,13 +2231,13 @@
 >
 >[[ :Douglas Macgregor: Eradicated!: ]]:
 >
->:is-with: { ^ <https://youtu.be/DGY685Sxtsc> ^ }:
+> :is-with: { ^ <https://youtu.be/DGY685Sxtsc> ^ }:
 >
 >###
 >
 >[[ :you just haven’t seen it yet..🎁: [[ _: chose: none: _: prophetic:word ]]: ]]:
 >
->:is-with: { ^ <https://youtu.be/jkbdffsAC9o> ^ }:
+> :is-with: { ^ <https://youtu.be/jkbdffsAC9o> ^ }:
 >
 >###
 >
@@ -2269,7 +2269,7 @@
 >
 >![:CASE-ID-0x6f29aa55-dfa8dbcc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dfa8dbcc.png)
 >
->:is-with: { ^ <https://youtu.be/rkMp7nYPFZc> ^ }:
+> :is-with: { ^ <https://youtu.be/rkMp7nYPFZc> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-3edb94bc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-3edb94bc.png)
 >
@@ -2308,85 +2308,85 @@
 
 [[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/qSevkcLvna8?si=F3dzt8cF-s2r49ga> ^ }: ]]:
 
->:[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
+> :[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]] ##
 
 ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
 >
     https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325
 
 ### [[ :The Study Quran: A New Translation and Commentary: { ^ Cambridge University Press ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
 >
     https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325
 
 ### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: { ^  :Marvin W. Meyer (Editor): Elaine H. Pagels (Introduction): James M. Robinson (Contributor): Wolf-Peter Funk (Contributor): Paul-Hubert Poirier (Contributor): ^ } ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
 >
     https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325
 
 ### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: { ^ Rabbi Nosson Scherman ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
 >
     https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325
 
 ### [[ :The Life of Jesus Christ And Biblical Revelations (4 Volume set): From the Visions of Ven. Anne Catherine Emmerich: { ^ Emmerich ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
 >
     https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325
 
 ### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
 >
     https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325
 
 ### [[ :Project: Soul Catcher: Secrets of Cyber and Cybernetic Warfare Revealed: { ^ Dr. Robert Duncan ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
 >
     https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325
 
 ### [[ :The Remembrance of I AM An Inner Journey of Self Discovery. A Channeled Course From Archangel Michael: { ^ Carolyn Ann ORiley ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
 >
     https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325
 
 ### [[ :Commune With the Angels: A Heavenly Handbook: { ^ Jayne Howard Feldman ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
 >
     https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325
 
 ### [[ :RESISTANCE TO TYRANNY: { ^ Joseph P. Martino ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
 >
     https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325
 
 ### [[ :Disclosure 101: What You Need To Know: { ^ David E. Robinson (Author): Anna von Reitz (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325">Disclosure 101: What You Need To Know</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325">Disclosure 101: What You Need To Know</a> ^ }:
 >
     https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325
 
 ### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
 >
     https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325
 
 ### [[ :The Tao of Fully Feeling: Harvesting Forgiveness out of Blame: {^ Pete Walker ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
 >
     https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325
 
@@ -2398,85 +2398,85 @@
 
 ### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
 >
     https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325
 
 ### [[ :The Tibetan Book of the Dead: { ^  Graham Coleman (Editor): Thupten Jinpa (Editor): Gyurme Dorje (Translator): Dalai Lama (Commentary)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325">The Tibetan Book of the Dead: First Complete Translation (Penguin Classics Deluxe Edition) </a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325">The Tibetan Book of the Dead: First Complete Translation (Penguin Classics Deluxe Edition) </a> ^ }:
 >
     https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325
 
 ### [[ :The Egyptian Book of the Dead: The Book of Going Forth by Day: The Complete Papyrus of Ani Featuring Integrated Text and Full-Color Images: { ^  Dr. Raymond Faulkner (Translator): Ogden Goelet (Translator): Carol Andrews (Preface): J. Daniel Gunther (Introduction): James Wasserman (Foreword)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325">The Egyptian Book of the Dead: The Book of Going Forth by Day</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325">The Egyptian Book of the Dead: The Book of Going Forth by Day</a> ^ }:
 >
     https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325
 
 ### [[ :The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order: { ^ Israel Regardie (Author): John Michael Greer (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
 >
     https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325
 
 ### [[ :Three Books of Occult Philosophy (Llewellyn's Sourcebook): { ^ Henry C. Agrippa ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325">Three Books of Occult Philosophy</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325">Three Books of Occult Philosophy</a> ^ }:
 >
     https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325
 
 ### [[ :Transcendental Magic: Its Doctrine And Ritual: { ^ Eliphas Levi (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
 >
     https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325
 
 ### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
 >
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 
 ### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
 >
     https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325
 
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
 
 ### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
 
 ### [[ Serious Cryptography: A Practical Introduction to Modern Encryption: { ^  Jean-Philippe Aumasson (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
 >
     https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
 
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
 
 ### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
 
 ### [[ :Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation: { ^   James Forshaw (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325">Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325">Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation</a> ^ }:
 >
     https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325
 

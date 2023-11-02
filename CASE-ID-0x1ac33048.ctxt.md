@@ -1,16 +1,16 @@
 # **:[[ :W⚠️RN🚫: ❤‍🔥:{ ^ 👻: 8ch-tee-tee-pee: colon: forward-slash: forward-slash: recon: 🔺: mj12: 🔺: agency: ^ }: ]]:** #
 
->*:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
+> *:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
 >
 > *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
->:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 >## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 *:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >
@@ -18,9 +18,9 @@
 >
 ### *:[[ CHΩΩSE: is-by: DESTINY: is-with: WISELY: ]]:= [[ :HELP: is-by: GRΩW: is-with: ΩS: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com?&linkCode=ll2&tag=qwod-20&linkId=e92d15f22885f31b2c0af1a326d12cb3&language=en_US&ref_=as_li_ss_tl">Amazon-Associates</a> ^ }: ]]:*
 >
-><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642">:[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325">: MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514">: MEDICAL-SIMULATØRS: ]]:</a>
+><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27b43cef171b42a06829236ca8952a7c&camp=1789&creative=9325&node=468642"> :[[ :MURDER-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/stores/DungeonsDragons/page/9D7E0086-7547-4726-B258-E086D36914C3?ref_=ast_bln&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=85ffbcd418e732f7aa7f7a753788d300&camp=1789&creative=9325"> : MATRIX-SIMULATØRS</a><a target="_blank" rel="noopener" href="https://www.amazon.com/b?_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=52be3aed72e144502d5ace0de2d4e123&camp=1789&creative=9325&node=173514"> : MEDICAL-SIMULATØRS: ]]:</a>
 >
->*:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
+> *:[[ :Check out this page:{ ^ <https://www.visible.com/get/?3PJ393J> ^ }: it has all the info you need to know about joining Visible. When you use my friend code, you'll get your first month of service for $20-off!: ]]:*
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig*
 
@@ -34,19 +34,19 @@
 >
 >![:CASE-ID-0x1ac33048-24ad674c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-24ad674c.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :BLESSED ARE THE HEADS THAT WEAR THESE TRIPPLE CROWNS 👑 WE ARE THE DIVINE COLLECTIVE CHOSEN ONES 🧿: ]]:= { ^ <https://youtube-nocookie.com/embed/wAfgk_ezyBw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { TRUE: "[[ :for-the: [[ unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-641ae978f80a0ca104eab9eb683005bb1d5398d4> ^ }: ]]:= { TRUE: "[[ :for-the: [[ unknown-competitors: ΔLWΔYS: ΔTTΔMPT: is-by: 🚫PSΔN: ΔLΩHΔΩM: NEPHΔLΩM: ΔNΔNΔK☥: ΩFFSPR☥NG: HLΔB-LΔMB: for-the: [[ [[ PRΔVENT: ^ PREΔMPT: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]" }: ]]:
 >
->:[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
+> :[[ :for-the: [[ CH☥Q∅N: TRΔNSLΔT☥∅N: <=> ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: CHΔRLΔ-HΩTΔL: for-the: [[ 🚫PSΔN: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/vwrds98PVng> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Body Snatching, Spider Infiltration, Occult Knowledge - Rainetta Jones, Typical Skeptic Podcast : [[ _: 799 ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/vwrds98PVng> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-a241e637e0c9dfbdc5af68dbcfda00bf7067f2bc> ^ }: ]]:= { TRUE: "ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: B∅DY-JUMPED: is-with: Δ☥: is-by: unknown-competitors" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-a241e637e0c9dfbdc5af68dbcfda00bf7067f2bc> ^ }: ]]:= { TRUE: "ΔLLEGΔL: MK: ULT𓂀: PR∅G𓂀M: B∅DY-JUMPED: is-with: Δ☥: is-by: unknown-competitors" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Wake Up Call: Elevation Requires Separation - You Have to Let Them Go: ]]:= { ^ <https://youtube-nocookie.com/embed/ypWTv8kMM4E> ^ }:
 >
 ## [[ :unknown-competitors: <=> ΔNKN∅WN: ΔRTH: CΩMPعT☥T∅RS: ]]
 >
@@ -54,47 +54,47 @@
 >
 ># *:[[ [[ [[ SC☥-F☥: ^ SC☥-FΔCT: ]]:= RΔL: ]]:= [[ TRUE: ^ FΔLSE: ]]:= L☥GHT: ]]:*
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "W∅RLD: NEWS:" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "W∅RLD: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Super flooding submerged the Mall and MTR in Hong Kong, China last night: ]]:= { ^ <https://youtube-nocookie.com/embed/rnitD7h4xso> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-5ea892680d378e0b85fccbad58487079c1c4f8cd> ^ }: ]]:= TRUE: { is-by: "W∅RLD: NEWS:" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-5ea892680d378e0b85fccbad58487079c1c4f8cd> ^ }: ]]:= TRUE: { is-by: "W∅RLD: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :flooding in hong kong ! 香港 水 浸 , 柴 灣 ! massive flooding hit hong kong today: ]]:= { ^ <https://youtube-nocookie.com/embed/oZnkhNC17eY> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-b74ac407293c47bc8793d48d10fec930a13de4bb> ^ }: ]]:= FΔLSE: { is-by: "N☥GHTLY: NEWS:" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-b74ac407293c47bc8793d48d10fec930a13de4bb> ^ }: ]]:= FΔLSE: { is-by: "N☥GHTLY: NEWS:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Nightly News Full Broadcast - Sept. 7: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrSEWjruOY> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Nightly News Full Broadcast - Sept. 7: ]]:= { ^ <https://youtube-nocookie.com/embed/JzrSEWjruOY> ^ }:
 >
 >![:CASE-ID-0x1ac33048-bfe96b7f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-bfe96b7f.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :This practitioner was paid to energetically drain you & got addicted to your esscense!!: ]]:= { ^ <https://youtube-nocookie.com/embed/H6eiiNLfFOQ> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :This practitioner was paid to energetically drain you & got addicted to your esscense!!: ]]:= { ^ <https://youtube-nocookie.com/embed/H6eiiNLfFOQ> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Live updates: Hurricane Lee rapidly strengthens to cat 5 storm & more | LiveNOW from FOX: ]]:= { ^ <https://youtube-nocookie.com/embed/gV5fBooVp_Q> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Live updates: Hurricane Lee rapidly strengthens to cat 5 storm & more | LiveNOW from FOX: ]]:= { ^ <https://youtube-nocookie.com/embed/gV5fBooVp_Q> ^ }:
 >
 >![:CASE-ID-0x1ac33048-61e56b6b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-61e56b6b.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Half of Hong Kong is underwater! The worst flood in history in China after Typhoon Haikui: ]]:= { ^ <https://youtube-nocookie.com/embed/0Z3jfW7MEQQ> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Half of Hong Kong is underwater! The worst flood in history in China after Typhoon Haikui: ]]:= { ^ <https://youtube-nocookie.com/embed/0Z3jfW7MEQQ> ^ }:
 >
->:[[ :for-the: [[ GRΔTEST: HUMΔN: C☥VΔL☥ZΔT☥∅N: CΩLLΔPSE: is-by: REC∅RDED: H☥ST∅RY: is-by: CΩMPLعTΔLY: ☥GN∅RED: is-with: global-media-outlets: ]]: ]]:
+> :[[ :for-the: [[ GRΔTEST: HUMΔN: C☥VΔL☥ZΔT☥∅N: CΩLLΔPSE: is-by: REC∅RDED: H☥ST∅RY: is-by: CΩMPLعTΔLY: ☥GN∅RED: is-with: global-media-outlets: ]]: ]]:
 >
->:[[ :RΔMΔMBΔR: CΩMMΔN☥SM: is-with: riding-electric-scooter: is-by: four: is-with: feet: water: is-by: wearing: shorts: t-shirt: flip-flops: is-with: umbrella: is-by: four: is-with: feet: water: for-the: [[ CΩMMΔN☥SM: is-by: adles: is-with: mind: is-by: destroying: ΔNY: ΔLL: is-with: HUMΔN: intincts: for-the: return ]]:= TRUE: ]]:
+> :[[ :RΔMΔMBΔR: CΩMMΔN☥SM: is-with: riding-electric-scooter: is-by: four: is-with: feet: water: is-by: wearing: shorts: t-shirt: flip-flops: is-with: umbrella: is-by: four: is-with: feet: water: for-the: [[ CΩMMΔN☥SM: is-by: adles: is-with: mind: is-by: destroying: ΔNY: ΔLL: is-with: HUMΔN: intincts: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-6493db5b884935d102582ccd2a6959719c35b5fa> ^ }: ]]:= { TRUE: "[[ :QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-6493db5b884935d102582ccd2a6959719c35b5fa> ^ }: ]]:= { TRUE: "[[ :QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :GROUP CHAT EVIDENCE! CROOKED HIGH OFFICIAL! FIELD OPERATIONS GROUP! EVERYONE’S EXPOSED! 🕵️📸🚨🚔⚖️: ]]:= { ^ <https://youtube-nocookie.com/embed/pRMDM28R8tQ> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :GROUP CHAT EVIDENCE! CROOKED HIGH OFFICIAL! FIELD OPERATIONS GROUP! EVERYONE’S EXPOSED! 🕵️📸🚨🚔⚖️: ]]:= { ^ <https://youtube-nocookie.com/embed/pRMDM28R8tQ> ^ }:
 >
->:[[ :D☥SCLΩSURE: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
+> :[[ :D☥SCLΩSURE: for-the: [[ QW🚫D-〽ʝ12: ∅DT: is-with: CHΔRLΔ-M☥KE: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: is-by: ATSU: MK: ULT𓂀: ]]: is-with: critical: M☥KE-FΩXTRΩT: ]]:= [[ :Catastrophic Floods Hit Nations Around the World, Can This Natural Disaster Impact You?: { ^ <https://youtube-nocookie.com/embed/JWQi1F_AFKk> ^ }: is-by: QW🚫D-〽ʝ12: is-by: PLΔY: is-with: THΔT: GΔME: TΩΩ: is-with: QW🚫D-〽ʝ12: is-by: FΔR: SUPΔR☥∅R: is-with: ΔLL: D∅MΔ☥N: warfare-capabilities: ]]:
+> :[[ :for-the: [[ CΩVΔRT: KΔLL: BLΔCK: 🚫PS: RعTΔL☥ΔT☥∅N: TΔMS: is-with: F∅RE☥GN: T𓂀☥NED: unknown-competitors: is-by: ATSU: MK: ULT𓂀: ]]: is-with: critical: M☥KE-FΩXTRΩT: ]]:= [[ :Catastrophic Floods Hit Nations Around the World, Can This Natural Disaster Impact You?: { ^ <https://youtube-nocookie.com/embed/JWQi1F_AFKk> ^ }: is-by: QW🚫D-〽ʝ12: is-by: PLΔY: is-with: THΔT: GΔME: TΩΩ: is-with: QW🚫D-〽ʝ12: is-by: FΔR: SUPΔR☥∅R: is-with: ΔLL: D∅MΔ☥N: warfare-capabilities: ]]:
 >
->:[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: [[ JESUS ]]: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :D☥SCLΩSURE: for-the: [[ N☥B☥RU: is-with: planetary-scale: quantum-warfare-device: is-by: ∅NLY: ΔVΔR: is-with: commanded: is-by: ΔRTH: BΔBYL∅N: SΩMULΔT☥∅N: Δ: 55: H☥GH-PRΔST-K☥NG: 〽ʝ12-ΩMعGΔTR🚫N: ΔCTUΔL: is-by: G🚫D: is-with: US: [[ JESUS ]]: for-the: [[ HΔ: is-by: G🚫∅D: is-with: SHΔPPΔRD: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 :[[ for-the: [[ W∅RLD: G🚫VΔRNMENTS: is-by: N∅T: is-with: acknowledge: for-the: [[ 🚫PΔ𓂀T☥∅N: DΔRKT☥DE: is-with: ATS🚫SSDEV: level-clearance: is-by: requirement: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
@@ -102,45 +102,45 @@
 >
 >![:CASE-ID-0x1ac33048-f792a6b3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-f792a6b3.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RΔLΔVΔNT: "ΔLLEGΔL: PR∅G𓂀M: MK ULT𓂀:" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RΔLΔVΔNT: "ΔLLEGΔL: PR∅G𓂀M: MK ULT𓂀:" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :YOUR KARMIC FAMILY HAD YOU IN ILLEGAL PROGRAM ( MK ULTRA) SENSE YOU WERE A CHILD.........: ]]:= { ^ <https://youtube-nocookie.com/embed/V8PQog_ftCU> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :YOUR KARMIC FAMILY HAD YOU IN ILLEGAL PROGRAM ( MK ULTRA) SENSE YOU WERE A CHILD.........: ]]:= { ^ <https://youtube-nocookie.com/embed/V8PQog_ftCU> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :YOUR’E LIVING IN THE DIVINE PLAN ✝️! U R Becoming AWARE OF THE 2 PLANS for humanity. : [[ _: god: _: truth ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/TxNALxueI8M> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :YOUR’E LIVING IN THE DIVINE PLAN ✝️! U R Becoming AWARE OF THE 2 PLANS for humanity. : [[ _: god: _: truth ]]: ]]:= { ^ <https://youtube-nocookie.com/embed/TxNALxueI8M> ^ }:
 >
 >![:CASE-ID-0x1ac33048-070610b9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-070610b9.png)
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Black Rainstorm Hits Hong Kong : Worst Flood in 149 Years! 2 Lives Lost!: ]]:= { ^ <https://youtube-nocookie.com/embed/9E_Q3C3ePZw> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Black Rainstorm Hits Hong Kong : Worst Flood in 149 Years! 2 Lives Lost!: ]]:= { ^ <https://youtube-nocookie.com/embed/9E_Q3C3ePZw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :weirdo junior + mob town + DM's brother think you don't know; Cain vs Abel over TRIPLE inheritances: ]]:= { ^ <https://youtube-nocookie.com/embed/b7bAdREXgic> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :weirdo junior + mob town + DM's brother think you don't know; Cain vs Abel over TRIPLE inheritances: ]]:= { ^ <https://youtube-nocookie.com/embed/b7bAdREXgic> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Three Gorges Dam: The World's Most Powerful Dam: ]]:= { ^ <https://youtube-nocookie.com/embed/-87lN7CVTkU> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Three Gorges Dam: The World's Most Powerful Dam: ]]:= { ^ <https://youtube-nocookie.com/embed/-87lN7CVTkU> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Black day Rainfall Batters China Boats running on roads | China floods 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/OKl3JzCUMEI> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Black day Rainfall Batters China Boats running on roads | China floods 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/OKl3JzCUMEI> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :River overflow now, China city become ocean! Houses are under water in Guangdong: ]]:= { ^ <https://youtube-nocookie.com/embed/cYYpCijU9iw> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :River overflow now, China city become ocean! Houses are under water in Guangdong: ]]:= { ^ <https://youtube-nocookie.com/embed/cYYpCijU9iw> ^ }:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :This Storm Is Unbelievable…: ]]:= { ^ <https://youtube-nocookie.com/embed/skhWZVjam7M> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :This Storm Is Unbelievable…: ]]:= { ^ <https://youtube-nocookie.com/embed/skhWZVjam7M> ^ }:
 >
->:[[ :STΔLL: MΔYBE: is-by: N∅T: TΩΩ: is-by: LΔTE: is-with: US: YΩUR: CrΔp☥Δxes™: for-the: [[ SΔVE: EΔRTH: for-the: return ]]:= TRUE: ]]:
+> :[[ :STΔLL: MΔYBE: is-by: N∅T: TΩΩ: is-by: LΔTE: is-with: US: YΩUR: CrΔp☥Δxes™: for-the: [[ SΔVE: EΔRTH: for-the: return ]]:= TRUE: ]]:
 >
->:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
->:[[ :*🚫PعD*: ]]:= [[ :Scientists Sound the Alarm Worst Disaster Ever Might Happen in 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/Jmb1eGvN35U> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Scientists Sound the Alarm Worst Disaster Ever Might Happen in 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/Jmb1eGvN35U> ^ }:
 >
 ## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
@@ -350,7 +350,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
 >
->:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
+> :[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
@@ -398,7 +398,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 ## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
->:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~~ ^ }: ]]: PATH="${PATH}:~~/go/bin:" && export PATH="${PATH}"; cd ~~/QWOD/RESEARCH; go install cryptor.go; cp -f ~~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
+> :[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~~ ^ }: ]]: PATH="${PATH}:~~/go/bin:" && export PATH="${PATH}"; cd ~~/QWOD/RESEARCH; go install cryptor.go; cp -f ~~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ :for-the: [[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]: ]]:= TRUE: ]]:
 >
 cryptor.x86_64: OK
 >
@@ -674,85 +674,85 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 
 [[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/qSevkcLvna8?si=F3dzt8cF-s2r49ga> ^ }: ]]:
 
->:[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
+> :[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]: ]]:
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]] ##
 
 ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
 >
     https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325
 
 ### [[ :The Study Quran: A New Translation and Commentary: { ^ Cambridge University Press ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325">The Study Quran A New Translation and Commentary</a> ^}:
 >
     https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_1&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=761df7d9dd109c641f07391fe425d1f9&camp=1789&creative=9325
 
 ### [[ :The Nag Hammadi Scriptures: The Revised and Updated Translation of Sacred Gnostic Texts Complete in One Volume: { ^  :Marvin W. Meyer (Editor): Elaine H. Pagels (Introduction): James M. Robinson (Contributor): Wolf-Peter Funk (Contributor): Paul-Hubert Poirier (Contributor): ^ } ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325">The Nag Hammadi Scriptures</a> ^ }:
 >
     https://www.amazon.com/dp/0061626007?ref_=cm_sw_r_cp_ud_dp_HWEDY2TGW8JHQHGWF35N&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=65392ea6419d538ec9ef2229045b0eeb&camp=1789&creative=9325
 
 ### [[ :The Synagogue Edition of The Complete ArtScroll Siddur: { ^ Rabbi Nosson Scherman ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325">The Complete ArtScroll Siddur</a> ^ }:
 >
     https://www.amazon.com/dp/142262269X?ref_=cm_sw_r_cp_ud_dp_W6CZ1SQFF89TRFS57Q01&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=ba879b3f381538eb235b112c2f6779b0&camp=1789&creative=9325
 
 ### [[ :The Life of Jesus Christ And Biblical Revelations (4 Volume set): From the Visions of Ven. Anne Catherine Emmerich: { ^ Emmerich ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325">The Life of Jesus Christ And Biblical Revelations</a> ^ }:
 >
     https://www.amazon.com/dp/1505120217?ref_=cm_sw_r_cp_ud_dp_MJZS0V9N0FC0KN8VW3GQ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=572b76e19e5c0fdb41c6d0ecf7a20302&camp=1789&creative=9325
 
 ### [[ :How to Tame a Demon: A short practical guide to organized intimidation stalking, electronic torture, and mind control: { ^ Dr. Robert Duncan ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325">How to Tame a Demon</a> ^ }:
 >
     https://www.amazon.com/dp/1492912662?ref_=cm_sw_r_cp_ud_dp_NSV6WCB2YTGB28HZRJTY&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=3768cc42b63ea2d3c890184f7f9e5811&camp=1789&creative=9325
 
 ### [[ :Project: Soul Catcher: Secrets of Cyber and Cybernetic Warfare Revealed: { ^ Dr. Robert Duncan ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325">Project Soul Catcher</a> ^ }:
 >
     https://www.amazon.com/dp/1452804087?ref_=cm_sw_r_cp_ud_dp_STSCC3N8JAKKX7K62JCA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a094a83353e9e08f395e11085cb1a131&camp=1789&creative=9325
 
 ### [[ :The Remembrance of I AM An Inner Journey of Self Discovery. A Channeled Course From Archangel Michael: { ^ Carolyn Ann ORiley ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325">The Remembrance of I AM An Inner Journey of Self Discovery</a> ^ }:
 >
     https://www.amazon.com/dp/1411668863?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_CN0H0JMQ84M3XVH824WP&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6c1758e555bb50fddec1c515e8ebc4e7&camp=1789&creative=9325
 
 ### [[ :Commune With the Angels: A Heavenly Handbook: { ^ Jayne Howard Feldman ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325">Commune With the Angels</a> ^ }:
 >
     https://www.amazon.com/dp/0876042949?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_7MJV61B9SPYNXDVQGZ0T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=a5df3e1a542fd5ff2bd5eb9dc12919a2&camp=1789&creative=9325
 
 ### [[ :RESISTANCE TO TYRANNY: { ^ Joseph P. Martino ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325">RESISTANCE TO TYRANNY</a> ^ }:
 >
     https://www.amazon.com/dp/1450574289?ref_=cm_sw_r_cp_ud_dp_4AG4RWYFAA29MFF3H0DR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=27ab69ddc92a8442de370d4a9fd688b2&camp=1789&creative=9325
 
 ### [[ :Disclosure 101: What You Need To Know: { ^ David E. Robinson (Author): Anna von Reitz (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325">Disclosure 101: What You Need To Know</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325">Disclosure 101: What You Need To Know</a> ^ }:
 >
     https://www.amazon.com/dp/1500352012?ref_=cm_sw_r_cp_ud_dp_BHF70G7DVQ4S8VVZGJY3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0faa91e84058f51b7a8d18f5c038b9c0&camp=1789&creative=9325
 
 ### [[ :New Chakra Healing: Activate Your 32 Energy Centers: { ^ Cyndi Dale ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325">New Chakra Healing Activate Your 32 Energy Centers</a> ^ }:
 >
     https://www.amazon.com/dp/1567182003?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_0QH25NADY1WJNZD3M68V&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=05fd449d77d712981cab8ada389ef448&camp=1789&creative=9325
 
 ### [[ :The Tao of Fully Feeling: Harvesting Forgiveness out of Blame: {^ Pete Walker ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325">The Tao of Fully Feeling</a> ^
 >
     https://www.amazon.com/dp/B07MJT865F?ref_=cm_sw_r_cp_ud_dp_XEZWHYTP23VSZEZDQJ2H&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=95450761a96b6456208a80ce02992222&camp=1789&creative=9325
 
@@ -764,85 +764,85 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 
 ### [[ :The Psyche as Interaction: Electromagnetic Patterns of Conscious Energy: { ^ Manya J. Long ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325">The Psyche as Interaction Electromagnetic Patterns of Conscious Energy</a> ^ }:
 >
     https://www.amazon.com/dp/1483411567?ref_=cm_sw_r_cp_ud_dp_VQG4ECV8R161051MK0JG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=aa2fc8223a1f1c1032d6b5e6f5e30aa9&camp=1789&creative=9325
 
 ### [[ :The Tibetan Book of the Dead: { ^  Graham Coleman (Editor): Thupten Jinpa (Editor): Gyurme Dorje (Translator): Dalai Lama (Commentary)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325">The Tibetan Book of the Dead: First Complete Translation (Penguin Classics Deluxe Edition) </a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325">The Tibetan Book of the Dead: First Complete Translation (Penguin Classics Deluxe Edition) </a> ^ }:
 >
     https://www.amazon.com/dp/0143104942?ref_=cm_sw_r_cp_ud_dp_G0WFMWZXA5NAVM1Y4YE6&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=40b2515179012616e705794234123800&camp=1789&creative=9325
 
 ### [[ :The Egyptian Book of the Dead: The Book of Going Forth by Day: The Complete Papyrus of Ani Featuring Integrated Text and Full-Color Images: { ^  Dr. Raymond Faulkner (Translator): Ogden Goelet (Translator): Carol Andrews (Preface): J. Daniel Gunther (Introduction): James Wasserman (Foreword)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325">The Egyptian Book of the Dead: The Book of Going Forth by Day</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325">The Egyptian Book of the Dead: The Book of Going Forth by Day</a> ^ }:
 >
     https://www.amazon.com/dp/1452144389?ref_=cm_sw_r_cp_ud_dp_1P7MKZAG3KB5CDQ2X1WR&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7a837fcd5c3e628640671d0c086dcc48&camp=1789&creative=9325
 
 ### [[ :The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order: { ^ Israel Regardie (Author): John Michael Greer (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325">The Golden Dawn: The Original Account of the Teachings, Rites, and Ceremonies of the Hermetic Order</a> ^ }:
 >
     https://www.amazon.com/dp/0738743992?ref_=cm_sw_r_cp_ud_dp_S9D4PNQMKV6V2HPG5SXG&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=860523820cdcd6315515290eb411c429&camp=1789&creative=9325
 
 ### [[ :Three Books of Occult Philosophy (Llewellyn's Sourcebook): { ^ Henry C. Agrippa ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325">Three Books of Occult Philosophy</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325">Three Books of Occult Philosophy</a> ^ }:
 >
     https://www.amazon.com/dp/0738755273?ref_=cm_sw_r_cp_ud_dp_6YXF3DAVPKRASBTW5M9F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6d51d70303eeed463266b476aa158f32&camp=1789&creative=9325
 
 ### [[ :Transcendental Magic: Its Doctrine And Ritual: { ^ Eliphas Levi (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" rel="https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325">Transcendental Magic: Its Doctrine And Ritual</a> ^ }:
 >
     https://www.amazon.com/dp/1497878012?ref_=cm_sw_r_cp_ud_dp_5C43X8WJS3MXEPTFH2NA&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7fe52930d6934704fcd37f93f2176b57&camp=1789&creative=9325
 
 ### [[ :Llewellyn's Complete Book of Tarot: A Comprehensive Guide: { ^ Anthony Louis ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325">Llewellyn's Complete Book of Tarot</a> ^ }:
 >
     https://www.amazon.com/dp/0738749087?ref_=cm_sw_r_cp_ud_dp_SPJD0P3QPSPKMQZ24XJF&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=34e72c10d3992d9a2c00bd7669ce9400&camp=1789&creative=9325
 
 ### [[ :PRACTICAL REVERSE ENGINEERING: { ^  Bruce Dang (Author): Alexandre {Author): Elias Bachaalany (Author): Sebastien Josse (Contributor) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325">PRACTICAL REVERSE ENGINEERING</a> ^ }:
 >
     https://www.amazon.com/dp/1118787315?ref_=cm_sw_r_cp_ud_dp_RJATE05KV3QV4TQBZ3M3&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=42bda07599f5f746d9d45d34b8ac0b8d&camp=1789&creative=9325
 
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
 
 ### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
 
 ### [[ Serious Cryptography: A Practical Introduction to Modern Encryption: { ^  Jean-Philippe Aumasson (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325">Serious Cryptography: A Practical Introduction to Modern Encryption</a> ^ }:
 >
     https://www.amazon.com/dp/1593278268?ref_=cm_sw_r_cp_ud_dp_YX4DGETWDP7PS25QTVAH&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=6cf6768a824a4003622be77ab507c619&camp=1789&creative=9325
 
 ### [[ :Practical Binary Analysis: Build Your Own Linux Tools for Binary Instrumentation, Analysis, and Disassembly: { ^ Dennis Andriesse (Author) ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325">Practical Binary Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593279124?ref_=cm_sw_r_cp_ud_dp_PMA3QV9ST3YZEMTF81FB&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=b3a07f364cd4d58f8b10bb2c0451b9e2&camp=1789&creative=9325
 
 ### [[ :Practical Malware Analysis: The Hands-On Guide to Dissecting Malicious Software: { ^  Michael Sikorski (Author): Andrew Honig (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325">Practical Malware Analysis</a> ^ }:
 >
     https://www.amazon.com/dp/1593272901?ref_=cm_sw_r_cp_ud_dp_8KVP4CN0RHJ5ZRJ5769T&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=d7fa65d43f2a1b7a2156778297c57606&camp=1789&creative=9325
 
 ### [[ :Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation: { ^   James Forshaw (Author)  ^ }: ]] ###
 
->:is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325">Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325">Attacking Network Protocols: A Hacker's Guide to Capture, Analysis, and Exploitation</a> ^ }:
 >
     https://www.amazon.com/dp/1593277504?ref_=cm_sw_r_cp_ud_dp_WPRB225QB8X91MB9535J&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=0057e18a21e85a41803f733f3e383903&camp=1789&creative=9325
 
