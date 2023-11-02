@@ -552,31 +552,31 @@
 >
 >## *[[ :WHAT THEY’RE DOING TO YOU IS AN INSIDE JOB. PEOPLE GOT PAID TO DO THIS. 11.01.2023 | 01:15:33 am 🕰✨: ]]* ##
 >
->:is-with: { ^ <https://youtu.be/R_d08FNGkOk> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/R_d08FNGkOk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :The CIA's Psychic Spies Revealed!: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/PcMpRBVQmGE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :The Shadow of Death - Part 2: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Ul6f5qv8CiM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :The Symbolism of Freemasonry - Albert G Mackey - Full Audiobook: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/D4ybxRPodCA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
