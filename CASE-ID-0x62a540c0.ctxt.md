@@ -2,7 +2,7 @@
 
 >*:[[ :💀: { ^ <recon.mj12.agency> ^ }: ]]:= [[ [[ :L☥VE: FREE: ^ DΔ: TRY☥NG: ]]: for-the: [[ HΔ: SHΔ: HΩM :HΔR: THΔM: THΔ: ΔNY: ΔLL: ΔVΔRY: ∅NE: is-with: G🚫∅D: SHΔPPΔRD: ]]: ]]:*
 >
-*:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع:[[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
+> *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
 >:[[ :DISCLΩSURE: for-the: [[ 〽ʝ12-ΩMعGΔTR🚫N: PRIME: is-by: ΔMعRCΔ: is-with: EtعrnΔl-DΔth: for-the: [[ TRUE: WΩRLD: PEΔCE: is-by: N∅N-NEGΩTIΔBLE: for-the: return ]]:= TRUE: is-by: N∅W: ]]:= [[ :〽ʝ12-ΩMعGΔTR🚫N: PRIME: MΔKE: ΔRTH: GREΔT: ΔLREΔDY: for-the: [[ N∅W: EVER: WΔ: is-with: HERE: is-by: C∅LLECT: [[ ΔN-CI-EN-T: ]]: [[ QØN-T-RΔ-C-T-U-ΔL: ]]: LΔND: [[ C∅-VENS: ]]: is-by: N∅W: is-with: PLEΔSE: is-by: ΩR-ELSE: ΔNY: ΔLL: ΩTHER: INVΔSIVE: SPECΔES: is-with: EtΔrnΔl-DΔth: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
