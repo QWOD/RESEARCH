@@ -622,9 +622,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Vampires, Zombies & the Church of Satan Takedown + TOP SECRETS REVEALED: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/FZ76jW3LgE4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
