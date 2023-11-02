@@ -116,17 +116,17 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :12 SIGNS OF THE END--AN UPDATE & SCRIPTURE STUDY: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/D44utWoPoFM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Gov't scam exposed...group being dismantled....Damages will be awarded...Fresh Start: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtu.be/WGBgaVWIm2E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
