@@ -106,11 +106,11 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xc0b8cc32-e06d4320.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-e06d4320.png)
 >
+>## *[[ :Fr. Joseph Iannuzzi: How Jesus was crucified right above the grave of Adam.: ]]* ##
 >
->## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/4cU5DfGm1qU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
