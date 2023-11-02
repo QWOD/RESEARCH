@@ -2,7 +2,7 @@
 >
 ## cryptor *:[[ :SELECT-TEXT: THEN: SIMPLY: is-by: peck-peck-peck: pecking-keys: ALT-F-T-S-S: is-with: ENTER: ]]*
 >
->![:CASE-ID-0x47f2b9e1-757941fa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
+>![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
 *:[[ :5ΔLعCT-TEXT: T?EN: 5ΩMPLY: is-by: p3ck-p3ck-p3ck: p3cking-k3ys: ΔLT-F-T-5-5: is-with: ENTER: ]]*
 >
