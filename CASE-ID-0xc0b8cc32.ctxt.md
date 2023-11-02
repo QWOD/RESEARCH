@@ -126,7 +126,7 @@
 >
 >## *[[ :Gov't scam exposed...group being dismantled....Damages will be awarded...Fresh Start: ]]* ##
 >
-> :is-with: { ^ <https://youtu.be/WGBgaVWIm2E> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/WGBgaVWIm2E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
