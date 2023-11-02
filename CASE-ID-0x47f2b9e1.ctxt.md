@@ -590,9 +590,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :DEATH TO THE WORLD: The Last True Rebellion: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/Sc27-dmJ_4w> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
