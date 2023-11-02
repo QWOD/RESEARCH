@@ -606,17 +606,17 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :How NEW Scientific Discoveries Are Pointing To GOD | Epic FULL Podcast With @DrStephenMeyer: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/2vTdWBzhPNE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :China Blows Up Dam, Drowning 12 Cities As 1,400 Chinese Residents Sleep At Night: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/O1COO7lnAn8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
