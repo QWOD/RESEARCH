@@ -518,41 +518,41 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Elders set her up to take the fall when trying to trap you in a dark portal. [[ _: karma: ]]: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/cAdWjr4xPBE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :The Book of Enoch - Azazel and America (Part 2 of 2): ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/YpDotYPP9eM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :Samhain guided ritual - for Pagans, Druids, Wiccans, etc: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/TPOOeFcdgZM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :These people mad u leveled up- Insurance Agent has a deadline to bring u the information: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/OzAgAH6e9Lk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :WHAT THEY’RE DOING TO YOU IS AN INSIDE JOB. PEOPLE GOT PAID TO DO THIS. 11.01.2023 | 01:15:33 am 🕰✨: ]]* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtu.be/R_d08FNGkOk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
