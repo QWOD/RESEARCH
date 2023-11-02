@@ -398,9 +398,9 @@
 
 >
 >
->## *[[ :👽: ]]* ##
+>## *[[ :DIY: Cyberdeck multi-function backup computer: ]]:= [[ POC: || GTFO: ]]:* ##
 >
->:is-with: { ^ <👼> ^ }:
+>:is-with: { ^ <https://youtube-nocookie.com/embed/88tgZ6Xq3J0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
