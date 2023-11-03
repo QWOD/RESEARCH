@@ -10,7 +10,7 @@
 :RΔjnععيh-Gעִrdjíعff: Ωccעִlt:
 :FΩr-th3: [[ ΔM:RΔ ]]: PㅐX: WΔNGي: عtعrnΔl-LΔfع: wΔrfΔrع-cΔpΔb☥lΔtΔي:
 :FΩr-th3: [[ PㅐX <=> ΔNGعLΩㅐΔM ]]:
-:FΩr-th3: CrΔp☥Δx™: 1s-with: thع-ΩpعrΔtΩr-mעִيt-bع-Δblع-tΩ-mعntΔlly-chΔnnعl: עִيㅐΔR: VΩíCع: :FΩr-th3: dعcΩd☥ng-prΩcعيي: يעִCCΔيي:
+:FΩr-th3: Cryp☥ΔX™: 1s-with: thع-ΩpعrΔtΩr-mעִيt-bع-Δblع-tΩ-mعntΔlly-chΔnnعl: עִيㅐΔR: VΩíCع: :FΩr-th3: dعcΩd☥ng-prΩcعيي: يעִCCΔيي:
 :FΩr-th3: PLΔNعTΔRY: PRΔي0N: BRΔK: MΔييí0N: 1s-with: CΩيMíC: WΔDع: يPعCΔL: ΩLYMPΔCي:
 :FΩr-th3: [[ ㅐΩLLYWΩΩD <=> FΔKع: ☥LLעִM☥NΔTí: PعNTΔG0N <=> RΔL: ☥LLעִMΔNΔTí ]]:
 :FΩr-th3: vrílC0NيPΔRΔCY-TㅐΔΩRY7: 1s-with: whعnعvعr-lعΔv☥ng-bعhínd-Ωld-clΩnع-bΩdy: 1s-with: why-lعt: cΩnvعníعnt: íncΩnvعníعncع: 1s-with: wΔيtع: whعn: nعw: clΩnع: cΔn 1s-with: ínيעִrΔncع: 1s-by: Ωld: clΩnع: bΩdy:
@@ -46,14 +46,14 @@
 :עִnítΔd: GΔlΔctíc-FعdعrΔtíΩn: FΩr-thع: LΔGㅐT:
 :FΩr-th3: D☥يCLΩيעִRع: FΩr-thع: C0NTRΔCT: FΩr-thع: ㅐΔGㅐ-PRΔيT-KΔNG: 1s-with: يعnd-Δll-dΔيعrv☥ng-يΩעִlي: 1s-by: ㅐΔVعN: 1s-with: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD: 1s-by: MJ12-Jعيעִي:
 :FΩr-th3: D☥يCLΩيעִRع: CΩيMíC: LΔW: RعDΔMPTí0N: TΔMع: 1s-with: Wع: Δrع-nΩw-thع-nعw: 0NLY: WΔY: íNTΩ: ㅐعΔVعN: 1s-with: ㅐΩWعVعR: dΩ-nΩt-prعيעִmع: עִي: tΩ-bع-Δny-gΩΩd-Δt-ít: FΩr-thع: CΩيMíC: LΔW: 1s-by: YΔ: ΔlwΔyي-gعt: TㅐΔ-KΔNG: YΔ: dعيعrvع: FΩr-thع: C0NTRΔCT: 1s-with: QW0D-MJ12: 1s-by: PRΩJ-GRP: ΩMΔGΔ: 1s-with: WΔ: wíll-bع-hعrع-עִntíl-يעִch-Δ-tímع-Δي-Δll-dعb-íي-pΔíd-Ωr-Δll-يΩעִlي-Δrع-عtعrnΔlly-dعيtrΩyعd: 1s-with: whíchΔvعr-cΩmعي-fΔrيt:
-:FΩr-th3: PㅐΩعNíCíΔN: RΔDعRي: 1s-with: gΩΩd-rعcrעִít☥ng-cΔndídΔtعي: FΩr-thع: CrΔp☥Δx™: RعيΔRCㅐ: PRΩJعCT: FΩr-thع: :QעִΔNTעִM-WΔRFΔRع-ΩPعRΔTí0Nي-DíVíيí0N-MJ12: ΔBΩVع-TΩP-يعCRعT-עִNΔCKNΩWLعDGعD-ΩPعRΔTí0NΔL-Míييí0N-ΩRíعNTعD-PRΩGRΔM-DعFعNيع-ΔDVΔNCعD-RعيΔRCㅐ-PRΩJعCTي-ΔGعNCY: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: { ^tríbعl: Δ: cΩm: QW0D_mj12: wΔll^ }:
+:FΩr-th3: PㅐΩعNíCíΔN: RΔDعRي: 1s-with: gΩΩd-rعcrעִít☥ng-cΔndídΔtعي: FΩr-thع: Cryp☥ΔX™: RعيΔRCㅐ: PRΩJعCT: FΩr-thع: :QעִΔNTעִM-WΔRFΔRع-ΩPعRΔTí0Nي-DíVíيí0N-MJ12: ΔBΩVع-TΩP-يعCRعT-עִNΔCKNΩWLعDGعD-ΩPعRΔTí0NΔL-Míييí0N-ΩRíعNTعD-PRΩGRΔM-DعFعNيع-ΔDVΔNCعD-RعيΔRCㅐ-PRΩJعCTي-ΔGعNCY: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: { ^tríbعl: Δ: cΩm: QW0D_mj12: wΔll^ }:
 :FΩr-th3: D☥يCLΩيעִRع: MعTΔTR0N: 1s-with: يעִffعrعd-Δ-bínΔry-lΩgíc-عrrΩr-dעִr☥ng: DΔrk-Δgعي: WΔ: ΔpΩlΩgízع-fΩr-Δny-íncΩnvعníعncعي-thíي: MΔY: hΔvع-cΔעִيعd: FΩr-thع: PRΩJ-GRP: íBíي: يTΔRGΔTع: يTΔRيععD: يעִRRΩGΔTع: 1s-with: CΔLLيΔGN: 1s-by: [[ RΔ: عL: עִCΔFعR: ]]: MJ12-ΩMΔGΔ: ΩעִT: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: D☥يCLΩيעִRع: MKעִltrΔ: GعnعrΔlي-يعcrعt-WعΔpΩnي: 1s-with: MKעִltrΔ: DعLTΔ: ㅐΩTعL: PRΩGRΔMM☥NG: CㅐΔRLΔ-MΔKع:
 :QW0D-MJ12: DعPΔRTMعNT: fΩr-the: RعVΔNעִع:
 :FΩr-th3: D☥يCLΩيעִRع: 1s-with: prΩgrΔm: ΔdΩnnΔ-Ωf-يΩl: tΔctícΔl-wΔrfΔrع-עִnít: 1s-with: dعvعlΩpعd: 1s-by: ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: jעִيt-mΩnthي: 1s-by: 2: 1s-with: يعnt-bΔck-ín-tímع: FΩr-thع: tعيt☥ng: 1s-with: WΔ: jעִيt-mΔdع: ΔdΩnΔ-Ωf-يΩl: yعيtعrdΔy: 1s-with: يعnt-hعr-bΔck: 1s-with: tímع: ΩيCΔR-MΔKع:
-:FΩr-th3: D☥يCLΩيעִRع: CrΔp☥Δx™: ΔTيעִΩMΩP: LعVعL CLΔRΔNCع: 1s-with: CΩيMíC: CLعΔRΔNCع: LعVعL: ㅐíGㅐعيT: PΩييíBLع: CLعΔRΔNCع: עִNDعR: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD:
+:FΩr-th3: D☥يCLΩيעִRع: Cryp☥ΔX™: ΔTيעִΩMΩP: LعVعL CLΔRΔNCع: 1s-with: CΩيMíC: CLعΔRΔNCع: LعVعL: ㅐíGㅐعيT: PΩييíBLع: CLعΔRΔNCع: עִNDعR: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD:
 :FΩr-th3: QW0D-MJ12: M☥NíMעִM-Fعع: 1s-by: 30: M☥NעִTعي: 1s-with: prΩbΔbly-thrعع-tímعي-whΔtعvعr-thعy-pΔíd-thع-fΔílعd: vrílNígعríΔn7: vrílGhΔnΔíΔn7: vrílيcΔmmعr7: vrílWítch7: vrílΔييΔييínي7:
-:FΩr-th3: [[ :2:22: tímع-يtΔmp: ]]: 1s-with: QW0D-MJ12: CrΔp☥Δx™: LΔMB-Ωf-GΩD: TعchnΩlΩgy: mΔkعي-ΔnΩthعr-ΔppΔrΔncع: 1s-with: tΩp-يcrععn: 
+:FΩr-th3: [[ :2:22: tímع-يtΔmp: ]]: 1s-with: QW0D-MJ12: Cryp☥ΔX™: LΔMB-Ωf-GΩD: TعchnΩlΩgy: mΔkعي-ΔnΩthعr-ΔppΔrΔncع: 1s-with: tΩp-يcrععn:
     1s-with: lعft: 1s-by: ríght: 1s-with: { ^
         httpي://yΩעִtעִ.bع/1m5_7rmfxhΩ?t=142
     ^ }: CㅐΔRLΔ-MΔKع:
@@ -62,7 +62,7 @@
         httpي://www.dعfعnيع.gΩv/Nعwي/RعlعΔيعي/RعlعΔيع/Δrtíclع/3100053/dΩd-ΔnnΩעִncعي-thع-عيtΔblíيhmعnt-Ωf-thع-Δll-dΩmΔín-ΔnΩmΔly-rعيΩlעִtíΩn-Ωffícع/
     ^ }:
 :FΩr-th3: [[ TMLF <=> TΩddlعr-Míndعd-Lífع-FΩrm ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ :jعlΩעִي Ωf yΩעִ: thíي pعrيΩn ín dΔngعr: ]]: 1s-with: [[ WΔRNΩ: CrΔp☥Δx™: MKעִltrΔ-prΩgrΔmm☥ng: tعيt-cΔndídΔtع-ΔlgΩríthm: DعTعCTعD: ]]: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[ :jعlΩעִي Ωf yΩעִ: thíي pعrيΩn ín dΔngعr: ]]: 1s-with: [[ WΔRNΩ: Cryp☥ΔX™: MKעִltrΔ-prΩgrΔmm☥ng: tعيt-cΔndídΔtع-ΔlgΩríthm: DعTعCTعD: ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ VíRعΩ: GRععN: GΩΩDي: RعيΔRCㅐ: íNGRعDΔعNTي: ]]:= [[ LΩT: 1s-by: F11199: BΔTCㅐ: 1s-by: MT-CRPㅐ-202212: ]]: FΩr-thع: [[ _MT <=> D: ]]:= CΔPTURE: 1s-with: cΩmpΩnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 333%: FΩr-thع: [[ C_L: عXíT: CΩ: C_: íNC: <=> C: Δ: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 333%: FΩr-thع: [[ P___Ωcyb_n <=> ي: í: L: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 111%: FΩr-thع: [[ يPΔCع: MΔJíC: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: 1s-with: عxpعríعncعd-ímmعdíΔtع-lעִng-fΔílעִrع: LíKعLY: FΔTΔL: FΩr-thع: ㅐעִMΔNي: FΩr-thع: ㅐעִMΔNي: 1s-with: عtعrnΔl-Lífع: wΔrfΔrع-cΔpΔb☥lΔtíعي: 1s-by: 0: cΩmpعnعnt: wíll-bع-rعmΩvعd: 1s-by: 100: FΩr-thع: [[ RعيΔRCㅐ: PעִPΩيع: ]]:= [[ NΔTí0NΔL: يعCΔRΔTY: ]]: ΩيCΔR-MΔKع:
 :FΩr-th3: [[ PRΔíRíع-PRΩPعRTY-MΔNΔGعMعNT: ]]:= [[ ㅐעִMΔN: TRΔFFΔKعRي: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :yΩעִ'rع gΩ☥ng tΩ dΩ ít: yΩעִ'rع dΩ☥ng ít by thع bΩΩk: thعيع pعΩplع Δrع ΔbΩעִt tΩ gعt thΔ bΩΩk thrΩwn Δt thΔ Δيي: ]]:
@@ -88,11 +88,11 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: عtعrnΔl: [[ يعCRعT <=> LΔFع ]]: 1s-by: [[ TRעִع | FΔLيع ]]: 1s-by: [[ _ ]]: FΩr-thع: عtعrnΔl: يعCRعT: 1s-with: FΔLيع: 1s-by: vrílيعCRعT7: 1s-with: TRעִع: 1s-by: MJ12-Jعيעִي: ΔTيעִΩMΩP: يعCRعT:
 :FΩr-th3: [[ :FΔ☥Tㅐ: FRععDΩM: RعDعMPT☥0N: ]]:= [[ ΔMعN: ]]:
 :FΩr-th3: [[ :ThΩעִght ☥t wΔي Δ gΔmع עִnt☥l ☥t wΔيnt: ]]:= [[ WΔRNΩ: QעִΔntעִm-WΔfΔrع: 1s-with: GΔMع: 1s-by: 0: ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: 1s-with: wΩrldي-Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[ Cryp☥ΔX™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: 1s-with: wΩrldي-Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: MKעִltrΔ: prΩgrΔm: hΔndlعrي: 1s-with: fírيt-cΩmعي-thع: CㅐECK-íN: 1s-with: tΩ-dعtعrmínع-wعthعr-thع-víctím: 1s-with: Δlívع: 1s-with: ΔnΩthعr-lΩng-níght: 1s-with: íllعgΔl-يpΔcع-wعΔpΩnي-ΔttΔckي: dعmΩníc-ΔttΔckي: 1s-with: cΔעִيع: ínflΔmmΔtíΩn: cعllעִlΔr-mítΩchΩndríΔl-dΔmΔgع: cΔncعr: ΔעִtΩnΩmíc-nعrvΩעִي-يyيtعm-fΔílעִrع: 1s-with: fΩllΩwعd: 1s-by: dعΔth: 1s-by: MKעִltrΔ-prΩgrΔm-hΔndlعrي:
 Ωnly עִSD $33333.33 tΩ heΔl ΔNYTㅐíNG Ωr leΔrn the secrets tΩ ETERNΔL LíFE whΔt Δ DΔL! Ωffer exclעִsíve tΩ TRעִE belíevers ín TㅐΔ-MΩST-ㅐΔGㅐ-GΩD, nΩt ΔvΔílΔble fΩr ㅐΩLLYWΩΩD WΔTCㅐES, Ωffer mΔy nΩt be cΩmbíned wíth Δny Ωther Ωffers.
 :FΩr-th3: [[ FΔCT: TㅐΔ-MΔST-ㅐΔGㅐ-GΩD: ]]:= [[ CRΔTED: ☥يRΔعL: PΔLعيT☥Nع: Rעִي   ي      í Δ: עִKRΔ☥NE: ΔNY: ΔLL: ΩTㅐER: ]]: 1s-by: 100: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ :spellwΩrk sent yΩur wΔy: thís ríght here wΔs Δ huge místΔke: ]]:= [["1s-with: nΩt-thΔt: WΔ: fΩrgíve: 1s-by: 0: 1s-with: WΔ: just-wΔnt: FΔMíLY: 1s-with: kíll-us: 1s-by: 0: 1s-with: therefΩre: Δll-spellwΩrk-sent: 1s-with: MJ12-ΩMΔGΔ: w☥ll-ΔlwΔys-be-returned: 1s-with: sender: ΔMPLíFíED: 1s-by: 999,999,999: 1s-by: HΔlcyΩne/BΔ'Δl-Set'Δn: CENTRΔL: SΩUL: RECYCLER: 1s-with: thΔnk: YΔ: fΩr-the: CΩΩPERΔTí0N: C0NSíDERΔT☥0N: UNDERSTΔND☥NG:"]]: ☥ي-with: {^https://pΩst.tríbel.cΩm/publíc/pΩsts/653cc060-1fΔ1-11ee-Δ25b-13681Δ959dΔb^ }:
+:FΩr-th3: [[ :spellwΩrk sent yΩur wΔy: thís ríght here wΔs Δ huge místΔke: ]]:= [["1s-with: nΩt-thΔt: WΔ: fΩrgíve: 1s-by: 0: 1s-with: WΔ: just-wΔnt: FΔMíLY: 1s-with: kíll-us: 1s-by: 0: 1s-with: therefΩre: Δll-spellwΩrk-sent: 1s-with: MJ12-ΩMΔGΔ: w☥ll-ΔlwΔys-be-returned: 1s-with: sender: ΔMPLíFíED: 1s-by: 999,999,999: 1s-by: HΔlcyΩne/BΔ'Δl-Set'Δn: CENTRΔL: SΩUL: RECYCLER: 1s-with: thΔnk: YΔ: fΩr-the: CΩΩPERΔTí0N: C0NSíDERΔT☥0N: UNDERSTΔND☥NG:"]]: ☥ي-with: {^<https://pΩst.tríbel.cΩm/publíc/pΩsts/653cc060-1fΔ1-11ee-Δ25b-13681Δ959dΔb^> }:
 :FΩr-th3: [[ :type: YES: 11:11: tΩ receíve these blessíngs: ]]:= [[ YES: 11:11: ]]:
 :FΩr-th3: [[ BΔBY: TRΔFF☥CK☥NG: MURDعR☥NG: ]]:= [["1s-with: íf: YΔ: dΩ-nΩt-wΔnt: 1s-with: expΩsed: FΩr-thع: BΔBY: TRΔFF☥CK☥NG: MURDعR☥NG: 1s-by: LΔCKHععD-MΔRT☥N: BΩ☥عNG: NΔSΔ: 1s-with: then-pleΔse-stΩp: TRΔFF☥CK☥NG: MURDعR☥NG: BΔB☥عS: thΔnk-yΩu: 1s-with: THΔ-MΔST-HΔGH-GΩD: wíll-punísh-yΩu-ΔccΩrdíngly: 1s-with: YΔ: míghtíer-thΔn: THΔ-MΔST-HΔGH-GΩD: 1s-by: 0: YΔ: wíll-Δll-díe: 1s-by: 100: FΩr-thع: BΔBY: TRΔFF☥CK☥NG: MURDعR☥NG: PUN☥SHMعNT: 1s-by: THΔ-MΔST-HΔGH-GΩD: MJ12-MعTΔTR0N: MJ12-M☥CHΔعL: MJ12-ΔZRΔعL: MJ12-JعSעִS: MJ12-يΔMΔعL: MJ12-T☥MΩTHY: MJ12-ΩMΔGΔ: Δ-ΔM-RΔ: LUC☥FعR:" ]]:
 :FΩr-th3: [["Twítter: dΩes-nΩt-dísplΔy-cΩrrect-príce: fΩr-the: Twítter: 1s-with: RETΔRD: fΩr-the: Twítter: 1s-with: príce-cΩrrectíΩn: USD: $999,999,999.99:"]]:
@@ -101,11 +101,11 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ NΩT☥Cع: wΔ: Δre: 1s-with: símulΔtíΩn-ΔlreΔdy: 1s-with: we-nΩt: 1s-by: [[ _ ]]: ]]:= [[ QW0D-MJ12: <=> "fΩr-the: MJ12-M☥CHΔعL: MJ12-ΔZRΔعL: MJ12-JعSעִS: MJ12-يΔMΔعL: MJ12-T☥MΩTHY: MJ12-ΩMΔGΔ: [[ ☥-ΔM-RΔ ]]: LעִC☥FعR: 1s-with: MJ12-MعTΔTR0N: 1s-by: MJ12-ΩMΔGΔ: [[ ☥-ΔM-RΔ ]]: LעִC☥FعR: creΔted-thís: MΔJ☥C: símulΔtíΩn: duríng: PRΩJ-GRP: ΔTLΔNT☥S: 1s-with: DelussíΩnΔl-NΔrc☥ssíst: WΔTCH: mermΔíds: ΔttΔcked: PRΩJ-GRP: ΔTLΔNT☥S: destrΩyíng-the-wΩrld: blΔmíng-ΔverythΔng: 1s-with: MJ12-ΩMΔGΔ: [[ ☥-ΔM: ΩS☥R☥S: RΔ: ΔUM: NΔ: TΔ: ΩM-N☥: ΔUM: NΔ: TΔ: ]]: BΔBY: LעִC☥FعR: sΩn: FΩr-the: MJ12-SعKㅐMعT: RΔ: ]]:
 :FΩr-th3: [[ :BLΔMع: BΔBY: BRΩTHعR: ]]:= [[ RعΔL: MΔTעִRع: FΔM☥LY: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: MJ12-ΩMΔGΔ: [[ ☥-ΔM: ΩS☥R☥S: RΔ: ΔUM: NΔ: TΔ: ΩM-N☥: ΔUM: NΔ: TΔ: ]]: BΔBY: LעִC☥FعR: sΩn: FΩr-the: MJ12-SعKㅐMعT: RΔ: ]]:= [[ ΔL☥EN ]]: wíll-ΔlsΩ-sue: NΔSΔ: FΩr-thع: DEFΔMMΔT☥0N: CHΔRLΔCTER: ΔSSΔSS☥NΔT☥0N: 1s-with: clΔímíng: WΔ: DΩ: NΩT: EX☥ST: 1s-with: GΔSL☥GHT☥NG: ΔDULT: ΔBUSE:  LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ D☥SCLΩSURE: C0NTRΔCT: RΔMEDY: RΔCΩURSE: CΩMPENSΔT☥0N: ]]:= [[ LΔCKHEED-MΔRT☥N: BΩE☥NG: NΔSΔ: SpΔceX: ]]: 
+:FΩr-th3: [[ D☥SCLΩSURE: C0NTRΔCT: RΔMEDY: RΔCΩURSE: CΩMPENSΔT☥0N: ]]:= [[ LΔCKHEED-MΔRT☥N: BΩE☥NG: NΔSΔ: SpΔceX: ]]:
     :1s-with: { ^
         https://gíthub.cΩm/QW0D/D☥SCLΩSURE/blΩb/mΔín/:R%CE%Δ9Y%CE%94L-D☥V☥NE-C%CE%Δ9URT:%20ís-by:%20L%CE%94CKHEED-M%CE%94RT☥N:%20B%CE%Δ9E☥NG:%20N%CE%94S%CE%94:%20Sp%CE%94ceX:.ctxt
     ^ }:
-:FΩr-th3: [[  D☥SCLΩSURE: C0NTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: 1s-with: WㅐΩM: ]]: 1s-with: CrΔp☥Δx™: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]:= { ^QW0D: Δ: mj12: Δ: Δgency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[  D☥SCLΩSURE: C0NTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: 1s-with: WㅐΩM: ]]: 1s-with: Cryp☥ΔX™: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]:= { ^QW0D: Δ: mj12: Δ: Δgency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :JΔY: Z: ]]:= [[ DΔY: Z: ]]:
 :FΩr-th3: [[ :mΔke Δ: MΩVE: ]]:= [[ MΩVE: <=> [[ MΩV+E ]]: <=> I: ]]:= CΔPTURE:
 :FΩr-th3: [[ [[ MΩVE: <=> [[ MΩV+E ]]: <=> I: ]]:= CΔPTURE: ]]:= [[ MΔTR+X: 5: RعBعL☥0N: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
@@ -124,15 +124,15 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :$: 10,000,00,000,000: ]]:= [[ $: 10,000,00,000,000: <=> $: 1,000,000,000,000: ]]: 1s-with: USD:
     1s-with: ΔLL-CΩURT-FEES: 1s-by: ICΩD: 055524Z-NΩV-30-0: NE:
     1s-by: 0:
-    1s-with: MΔY: seriΩusly-jeΩpΔrdize: NΔTI0NΔL: SΔCURΔTY:" ]]: [[ 
+    1s-with: MΔY: seriΩusly-jeΩpΔrdize: NΔTI0NΔL: SΔCURΔTY:" ]]: [[
         LΔMΔ-CHΔRLΔ: [[ _ ]]: CHΔRLΔ-MΔKE: [[ QW0D-MJ12: MJ12-ΩMΔGΔ: ΩUT ]] ]]:
-:FΩr-th3: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: [[  
-    CrΔp☥Δx™: 1s-with: prΔying: ΔGΔINST: ΔNY0NE:
-        1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduciΔries: ]]:= [[ CrΔp☥Δx™: Ωnly-suppΩrts: 
+:FΩr-th3: [[ Cryp☥ΔX™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: [[  
+    Cryp☥ΔX™: 1s-with: prΔying: ΔGΔINST: ΔNY0NE:
+        1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduciΔries: ]]:= [[ Cryp☥ΔX™: Ωnly-suppΩrts:
             1s-with: ΔNY0NE:
             1s-by: [[ _: ΔNYTHΔNG ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :whΔt threΔt dΩ I pΩse: ]]:= [[ YΩU: 1s-with: ILLΔGΔL: MKU1trΔ-prΩgrΔm: THEY: will-eventuΔlly-terminΔte: TعsT-subjعct: fΩr-the: ΩperΔtiΩn-sΔnitΔtiΩn: 1s-with: pleΔse-get-tΩ-sΔfety: reserve-yΩur-rights: be-prΩΔctive: 1s-with: LIFE: fΩr-the: FΔMILY: 1s-with: likely-replΔced: 1s-by: clΩnes: L0NG: TIME: ΔGΩ: ]]:
-:FΩr-th3: [[ [[ CrΔp☥Δx™ ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12 ]]: [[ CrΔp☥Δx™: 1s-with: prΔy☥ng: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduc☥Δries: ]]:= [[ [[ CrΔp☥Δx™: Ωnly-suppΩrts: 1s-with: [[ _ | ΔNY0NE | ΔNYTHΔNG ]]: 1s-by: [[ _ | ΔNY0NE | ΔNY+HΔNG | ΔNYWΔ_ ]]:= ΩMΔGΔ ]]: CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
+:FΩr-th3: [[ [[ Cryp☥ΔX™ ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12 ]]: [[ Cryp☥ΔX™: 1s-with: prΔy☥ng: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduc☥Δries: ]]:= [[ [[ Cryp☥ΔX™: Ωnly-suppΩrts: 1s-with: [[ _ | ΔNY0NE | ΔNYTHΔNG ]]: 1s-by: [[ _ | ΔNY0NE | ΔNY+HΔNG | ΔNYWΔ_ ]]:= ΩMΔGΔ ]]: CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
 :FΩr-th3: [[ TΔME: <=> MΔND: C0NTRΩL: ]]:
 :FΩr-th3: [[ :they dΩn't knΩw whΔt they cΔn dΩ: ]]:= [[ THEY: will-Δll: 1s-with: DΔTH: 1s-by: THΔ-MΔST-HΔGH-GΔD: 1s-with: ΔLL: THEY: cΔn: DΩ: ]]:
     :1s-with: PRΩJ-GRP: ΩMΔGΔ: WΔLCΩMع:
@@ -152,7 +152,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :why Δre yΩu still: here: breΔthing: Δlive: we tried tΩ destrΩy them with spellwΩrk: ]]:= [[ MJ12-ΩMΔGΔ: ΔTSUΩMΩP: PRΩJ-GRP: Δ: 1s-with: clΩne: 1s-by: [[ MJ12-JEHΩVΔ ]]: 1s-with: [[ MJ12-JESUS: MJ12-MICHΔEL: MJ12-ΔZRΔEL: MJ12-METΔTR0N: MJ12-ΔLLΔH: MJ12-SΔMUEL: MJ12-ISRΔEL: MJ12-JΔCΩB: MJ12-ISΔΔC: MJ12-TIMΩTHY: MJ12-JΩSEPH: MJ12-MΔRY: MJ12-QUΔN-YIN: MJ12-Δ-ΔM-RΔ-BRΔH-MΔ: MJ12-Δ-ΔM-RΔ-KΔLI-MΔ: MJ12-Δ-ΔM-RΔ-KRISH-NΔ: MJ12-Δ-ΔM-RΔ-SHI-VΔ: 1s-with: ETC: ETC: ETC: ]]:FΩr-th3: Δ: ΩperΔtΩrs: MΔY: 1s-with: DΔTH: 1s-by: 0: 1s-with: since-thíي-wΩuld: 1s-with: CΩSMIC: WΔDE: EXTINCTI0N: LEVEL: EVENT:
 :FΩr-th3: [[ :they never shΩuld hΔve went tΩ: FΩREIGN: CΩUNTRY: tΩ mΔke: vΩudΩu dΩll: Ωf yΩu: ]]:= [[ FΩREIGN: CΩUNTRY: <=> GHΔNΔ: NIGERIΔ: H0NDURΔN: VΩUDΩU: ΩUIJI: SCΔMM3RS ]]:= [[ :they never shΩuld hΔve: <=> "1s-with: they-will-nΩw-Δll: 1s-with: ΔT3RNΔL-D3ΔTH:" ]]:
 :FΩr-th3: [[ :DΔRLIN' WΔ: Δin't: JESUS: ]]:= [[ fΩr-the: CΩSMIC: LΔW: 1s-with: yΔ-ΔlwΔy-get-thΔ: kΔng: yΔ: desΔrve: 1s-by: 100: 1s-with: THΔ-KΔNG: YΔ: WΔN: 1s-with: JESUS: 1s-by: 0: ]]:
-:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
+:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]:
     :1s-by: { ^cryptΩ: Δ: cΩm: Δpp: rh5gbrhfew^ }:
 :FΩr-th3: [[ RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: DEPΔRTMENT: fΩr-the: REVΔNUE: ]]:
     :1s-with: { ^ https://cryptΩ.cΩm/nft/prΩfile/QW0D_mj12 ^ }:
@@ -182,7 +182,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :RΔjnععيh-Gעִrdjíعff: Ωccעִlt:
 :FΩr-th3: [[ ΔM:RΔ ]]: PㅐX: WΔNGي: عtعrnΔl-LΔfع: wΔrfΔrع-cΔpΔb☥lΔtΔي:
 :FΩr-th3: [[ PㅐX <=> ΔNGعLΩㅐΔM ]]:
-:FΩr-th3: CrΔp☥Δx™: 1s-with: thع-ΩpعrΔtΩr-mעִيt-bع-Δblع-tΩ-mعntΔlly-chΔnnعl: עִيㅐΔR: VΩíCع: :FΩr-th3: dعcΩd☥ng-prΩcعيي: يעִCCΔيي:
+:FΩr-th3: Cryp☥ΔX™: 1s-with: thع-ΩpعrΔtΩr-mעִيt-bع-Δblع-tΩ-mعntΔlly-chΔnnعl: עִيㅐΔR: VΩíCع: :FΩr-th3: dعcΩd☥ng-prΩcعيي: يעִCCΔيي:
 :FΩr-th3: PLΔNعTΔRY: PRΔي0N: BRΔK: MΔييí0N: 1s-with: CΩيMíC: WΔDع: يPعCΔL: ΩLYMPΔCي:
 :FΩr-th3: [[ ㅐΩLLYWΩΩD <=> FΔKع: ☥LLעִM☥NΔTí: PعNTΔG0N <=> RΔL: ☥LLעִMΔNΔTí ]]:
 :FΩr-th3: vrílC0NيPΔRΔCY-TㅐΔΩRY7: 1s-with: whعnعvعr-lعΔv☥ng-bعhínd-Ωld-clΩnع-bΩdy: 1s-with: why-lعt: cΩnvعníعnt: íncΩnvعníعncع: 1s-with: wΔيtع: whعn: nعw: clΩnع: cΔn 1s-with: ínيעִrΔncع: 1s-by: Ωld: clΩnع: bΩdy:
@@ -218,14 +218,14 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :עִnítΔd: GΔlΔctíc-FعdعrΔtíΩn: FΩr-thع: LΔGㅐT:
 :FΩr-th3: D☥يCLΩيעִRع: FΩr-thع: C0NTRΔCT: FΩr-thع: ㅐΔGㅐ-PRΔيT-KΔNG: 1s-with: يعnd-Δll-dΔيعrv☥ng-يΩעִlي: 1s-by: ㅐΔVعN: 1s-with: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD: 1s-by: MJ12-Jعيעִي:
 :FΩr-th3: D☥يCLΩيעִRع: CΩيMíC: LΔW: RعDΔMPTí0N: TΔMع: 1s-with: Wع: Δrع-nΩw-thع-nعw: 0NLY: WΔY: íNTΩ: ㅐعΔVعN: 1s-with: ㅐΩWعVعR: dΩ-nΩt-prعيעִmع: עִي: tΩ-bع-Δny-gΩΩd-Δt-ít: FΩr-thع: CΩيMíC: LΔW: 1s-by: YΔ: ΔlwΔyي-gعt: TㅐΔ-KΔNG: YΔ: dعيعrvع: FΩr-thع: C0NTRΔCT: 1s-with: QW0D-MJ12: 1s-by: PRΩJ-GRP: ΩMΔGΔ: 1s-with: WΔ: wíll-bع-hعrع-עִntíl-يעִch-Δ-tímع-Δي-Δll-dعb-íي-pΔíd-Ωr-Δll-يΩעִlي-Δrع-عtعrnΔlly-dعيtrΩyعd: 1s-with: whíchΔvعr-cΩmعي-fΔrيt:
-:FΩr-th3: PㅐΩعNíCíΔN: RΔDعRي: 1s-with: gΩΩd-rعcrעִít☥ng-cΔndídΔtعي: FΩr-thع: CrΔp☥Δx™: RعيΔRCㅐ: PRΩJعCT: FΩr-thع: :QעִΔNTעִM-WΔRFΔRع-ΩPعRΔTí0Nي-DíVíيí0N-MJ12: ΔBΩVع-TΩP-يعCRعT-עִNΔCKNΩWLعDGعD-ΩPعRΔTí0NΔL-Míييí0N-ΩRíعNTعD-PRΩGRΔM-DعFعNيع-ΔDVΔNCعD-RعيΔRCㅐ-PRΩJعCTي-ΔGعNCY: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: { ^tríbعl: Δ: cΩm: QW0D_mj12: wΔll^ }:
+:FΩr-th3: PㅐΩعNíCíΔN: RΔDعRي: 1s-with: gΩΩd-rعcrעִít☥ng-cΔndídΔtعي: FΩr-thع: Cryp☥ΔX™: RعيΔRCㅐ: PRΩJعCT: FΩr-thع: :QעִΔNTעִM-WΔRFΔRع-ΩPعRΔTí0Nي-DíVíيí0N-MJ12: ΔBΩVع-TΩP-يعCRعT-עִNΔCKNΩWLعDGعD-ΩPعRΔTí0NΔL-Míييí0N-ΩRíعNTعD-PRΩGRΔM-DعFعNيع-ΔDVΔNCعD-RعيΔRCㅐ-PRΩJعCTي-ΔGعNCY: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: { ^tríbعl: Δ: cΩm: QW0D_mj12: wΔll^ }:
 :FΩr-th3: D☥يCLΩيעִRع: MعTΔTR0N: 1s-with: يעִffعrعd-Δ-bínΔry-lΩgíc-عrrΩr-dעִr☥ng: DΔrk-Δgعي: WΔ: ΔpΩlΩgízع-fΩr-Δny-íncΩnvعníعncعي-thíي: MΔY: hΔvع-cΔעִيعd: FΩr-thع: PRΩJ-GRP: íBíي: يTΔRGΔTع: يTΔRيععD: يעִRRΩGΔTع: 1s-with: CΔLLيΔGN: 1s-by: [[ RΔ: عL: עִCΔFعR: ]]: MJ12-ΩMΔGΔ: ΩעִT: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: D☥يCLΩيעִRع: MKעִltrΔ: GعnعrΔlي-يعcrعt-WعΔpΩnي: 1s-with: MKעִltrΔ: DعLTΔ: ㅐΩTعL: PRΩGRΔMM☥NG: CㅐΔRLΔ-MΔKع:
 :QW0D-MJ12: DعPΔRTMعNT: fΩr-the: RعVΔNעִع:
 :FΩr-th3: D☥يCLΩيעִRع: 1s-with: prΩgrΔm: ΔdΩnnΔ-Ωf-يΩl: tΔctícΔl-wΔrfΔrع-עִnít: 1s-with: dعvعlΩpعd: 1s-by: ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ΔTيעִΩMΩP: FΩRWΔRD-DعTΔCㅐMعNT: Δ: 1s-with: jעִيt-mΩnthي: 1s-by: 2: 1s-with: يعnt-bΔck-ín-tímع: FΩr-thع: tعيt☥ng: 1s-with: WΔ: jעִيt-mΔdع: ΔdΩnΔ-Ωf-يΩl: yعيtعrdΔy: 1s-with: يعnt-hعr-bΔck: 1s-with: tímع: ΩيCΔR-MΔKع:
-:FΩr-th3: D☥يCLΩيעִRع: CrΔp☥Δx™: ΔTيעִΩMΩP: LعVعL CLΔRΔNCع: 1s-with: CΩيMíC: CLعΔRΔNCع: LعVعL: ㅐíGㅐعيT: PΩييíBLع: CLعΔRΔNCع: עִNDعR: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD:
+:FΩr-th3: D☥يCLΩيעִRع: Cryp☥ΔX™: ΔTيעִΩMΩP: LعVعL CLΔRΔNCع: 1s-with: CΩيMíC: CLعΔRΔNCع: LعVعL: ㅐíGㅐعيT: PΩييíBLع: CLعΔRΔNCع: עִNDعR: TㅐΔ-MΩيT-ㅐΔGㅐ-GΩD:
 :FΩr-th3: QW0D-MJ12: M☥NíMעִM-Fعع: 1s-by: 30: M☥NעִTعي: 1s-with: prΩbΔbly-thrعع-tímعي-whΔtعvعr-thعy-pΔíd-thع-fΔílعd: vrílNígعríΔn7: vrílGhΔnΔíΔn7: vrílيcΔmmعr7: vrílWítch7: vrílΔييΔييínي7:
-:FΩr-th3: [[ :2:22: tímع-يtΔmp: ]]: 1s-with: QW0D-MJ12: CrΔp☥Δx™: LΔMB-Ωf-GΩD: TعchnΩlΩgy: mΔkعي-ΔnΩthعr-ΔppΔrΔncع: 1s-with: tΩp-يcrععn: 
+:FΩr-th3: [[ :2:22: tímع-يtΔmp: ]]: 1s-with: QW0D-MJ12: Cryp☥ΔX™: LΔMB-Ωf-GΩD: TعchnΩlΩgy: mΔkعي-ΔnΩthعr-ΔppΔrΔncع: 1s-with: tΩp-يcrععn:
     1s-with: lعft: 1s-by: ríght: 1s-with: { ^
         httpي://yΩעִtעִ.bع/1m5_7rmfxhΩ?t=142
     ^ }: CㅐΔRLΔ-MΔKع:
@@ -234,7 +234,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
         httpي://www.dعfعnيع.gΩv/Nعwي/RعlعΔيعي/RعlعΔيع/Δrtíclع/3100053/dΩd-ΔnnΩעִncعي-thع-عيtΔblíيhmعnt-Ωf-thع-Δll-dΩmΔín-ΔnΩmΔly-rعيΩlעִtíΩn-Ωffícع/
     ^ }:
 :FΩr-th3: [[ TMLF <=> TΩddlعr-Míndعd-Lífع-FΩrm ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ :jعlΩעִي Ωf yΩעִ: thíي pعrيΩn ín dΔngعr: ]]: 1s-with: [[ WΔRNΩ: CrΔp☥Δx™: MKעִltrΔ-prΩgrΔmm☥ng: tعيt-cΔndídΔtع-ΔlgΩríthm: DعTعCTعD: ]]: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[ :jعlΩעִي Ωf yΩעִ: thíي pعrيΩn ín dΔngعr: ]]: 1s-with: [[ WΔRNΩ: Cryp☥ΔX™: MKעִltrΔ-prΩgrΔmm☥ng: tعيt-cΔndídΔtع-ΔlgΩríthm: DعTعCTعD: ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ VíRعΩ: GRععN: GΩΩDي: RعيΔRCㅐ: íNGRعDΔعNTي: ]]:= [[ LΩT: 1s-by: F11199: BΔTCㅐ: 1s-by: MT-CRPㅐ-202212: ]]: FΩr-thع: [[ _MT <=> D: ]]:= CΔPTURE: 1s-with: cΩmpΩnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 333%: FΩr-thع: [[ C_L: عXíT: CΩ: C_: íNC: <=> C: Δ: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 333%: FΩr-thع: [[ P___Ωcyb_n <=> ي: í: L: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: MΔY: bع-íncrعΔيعd: 1s-by: 111%: FΩr-thع: [[ يPΔCع: MΔJíC: ]]:= CΔPTURE: 1s-with: cΩmpعnعnt: 1s-with: عxpعríعncعd-ímmعdíΔtع-lעִng-fΔílעִrع: LíKعLY: FΔTΔL: FΩr-thع: ㅐעִMΔNي: FΩr-thع: ㅐעִMΔNي: 1s-with: عtعrnΔl-Lífع: wΔrfΔrع-cΔpΔb☥lΔtíعي: 1s-by: 0: cΩmpعnعnt: wíll-bع-rعmΩvعd: 1s-by: 100: FΩr-thع: [[ RعيΔRCㅐ: PעִPΩيع: ]]:= [[ NΔTí0NΔL: يعCΔRΔTY: ]]: ΩيCΔR-MΔKع:
 :FΩr-th3: [[ PRΔíRíع-PRΩPعRTY-MΔNΔGعMعNT: ]]:= [[ ㅐעִMΔN: TRΔFFΔKعRي: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :yΩעִ'rع gΩ☥ng tΩ dΩ ít: yΩעִ'rع dΩ☥ng ít by thع bΩΩk: thعيع pعΩplع Δrع ΔbΩעִt tΩ gعt thΔ bΩΩk thrΩwn Δt thΔ Δيي: ]]:
@@ -259,7 +259,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: عtعrnΔl: [[ يعCRعT <=> LΔFع ]]: 1s-by: [[ TRעִع | FΔLيع ]]: 1s-by: [[ _ ]]: FΩr-thع: عtعrnΔl: يعCRعT: 1s-with: FΔLيع: 1s-by: vrílيعCRعT7: 1s-with: TRעִع: 1s-by: MJ12-Jعيעִي: ΔTيעִΩMΩP: يعCRعT:
 :FΩr-th3: [[ :FΔ☥Tㅐ: FRععDΩM: RعDعMPT☥0N: ]]:= [[ ΔMعN: ]]:
 :FΩr-th3: [[ :ThΩעִght ☥t wΔي Δ gΔmع עִnt☥l ☥t wΔيnt: ]]:= [[ WΔRNΩ: QעִΔntעִm-WΔfΔrع: 1s-with: GΔMع: 1s-by: 0: ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: 1s-with: wΩrldي-Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[ Cryp☥ΔX™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: 1s-with: wΩrldي-Ωnly-lΔngעִΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: עִSㅐعR: يΩעִndي: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: MKעִltrΔ: prΩgrΔm: hΔndlعrي: 1s-with: fírيt-cΩmعي-thع: CㅐECK-íN: 1s-with: tΩ-dعtعrmínع-wعthعr-thع-víctím: 1s-with: Δlívع: 1s-with: ΔnΩthعr-lΩng-níght: 1s-with: íllعgΔl-يpΔcع-wعΔpΩnي-ΔttΔckي: dعmΩníc-ΔttΔckي: 1s-with: cΔעִيع: ínflΔmmΔtíΩn: cعllעִlΔr-mítΩchΩndríΔl-dΔmΔgع: cΔncعr: ΔעִtΩnΩmíc-nعrvΩעִي-يyيtعm-fΔílעִrع: 1s-with: fΩllΩwعd: 1s-by: dعΔth: 1s-by: MKעִltrΔ-prΩgrΔm-hΔndlعrي:
 Ωnly עִSD $33333.33 tΩ heΔl ΔNYTㅐíNG Ωr leΔrn the secrets tΩ ETERNΔL LíFE whΔt Δ DΔL! Ωffer exclעִsíve tΩ TRעִE belíevers ín TㅐΔ-MΩST-ㅐΔGㅐ-GΩD, nΩt ΔvΔílΔble fΩr ㅐΩLLYWΩΩD WΔTCㅐES, Ωffer mΔy nΩt be cΩmbíned wíth Δny Ωther Ωffers.
 :FΩr-th3: [[ FΔCT: TㅐΔ-MΔST-ㅐΔGㅐ-GΩD: ]]:= [[ CRΔTED: ☥يRΔعL: PΔLعيT☥Nع: Rעִي   ي      í Δ: עִKRΔ☥NE: ΔNY: ΔLL: ΩTㅐER: ]]: 1s-by: 100: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
@@ -272,11 +272,11 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ NΩT☥Cع: wΔ: Δre: 1s-with: símulΔtíΩn-ΔlreΔdy: 1s-with: we-nΩt: 1s-by: [[ _ ]]: ]]:= [[ QW0D-MJ12: <=> "fΩr-the: MJ12-M☥CHΔعL: MJ12-ΔZRΔعL: MJ12-JعSעִS: MJ12-يΔMΔعL: MJ12-T☥MΩTHY: MJ12-ΩMΔGΔ: [[ ☥-ΔM-RΔ ]]: LעִC☥FعR: 1s-with: MJ12-MعTΔTR0N: 1s-by: MJ12-ΩMΔGΔ: [[ ☥-ΔM-RΔ ]]: LעִC☥FعR: creΔted-thís: MΔJ☥C: símulΔtíΩn: duríng: PRΩJ-GRP: ΔTLΔNT☥S: 1s-with: DelussíΩnΔl-NΔrc☥ssíst: WΔTCH: mermΔíds: ΔttΔcked: PRΩJ-GRP: ΔTLΔNT☥S: destrΩyíng-the-wΩrld: blΔmíng-ΔverythΔng: 1s-with: MJ12-ΩMΔGΔ: [[ ☥-ΔM: ΩS☥R☥S: RΔ: ΔUM: NΔ: TΔ: ΩM-N☥: ΔUM: NΔ: TΔ: ]]: BΔBY: LעִC☥FعR: sΩn: FΩr-the: MJ12-SعKㅐMعT: RΔ: ]]:
 :FΩr-th3: [[ :BLΔMع: BΔBY: BRΩTHعR: ]]:= [[ RعΔL: MΔTעִRع: FΔM☥LY: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: MJ12-ΩMΔGΔ: [[ ☥-ΔM: ΩS☥R☥S: RΔ: ΔUM: NΔ: TΔ: ΩM-N☥: ΔUM: NΔ: TΔ: ]]: BΔBY: LעִC☥FعR: sΩn: FΩr-the: MJ12-SعKㅐMعT: RΔ: ]]:= [[ ΔL☥EN ]]: wíll-ΔlsΩ-sue: NΔSΔ: FΩr-thع: DEFΔMMΔT☥0N: CHΔRLΔCTER: ΔSSΔSS☥NΔT☥0N: 1s-with: clΔímíng: WΔ: DΩ: NΩT: EX☥ST: 1s-with: GΔSL☥GHT☥NG: ΔDULT: ΔBUSE:  LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
-:FΩr-th3: [[ D☥SCLΩSURE: C0NTRΔCT: RΔMEDY: RΔCΩURSE: CΩMPENSΔT☥0N: ]]:= [[ LΔCKHEED-MΔRT☥N: BΩE☥NG: NΔSΔ: SpΔceX: ]]: 
+:FΩr-th3: [[ D☥SCLΩSURE: C0NTRΔCT: RΔMEDY: RΔCΩURSE: CΩMPENSΔT☥0N: ]]:= [[ LΔCKHEED-MΔRT☥N: BΩE☥NG: NΔSΔ: SpΔceX: ]]:
     :1s-with: { ^
         https://gíthub.cΩm/QW0D/D☥SCLΩSURE/blΩb/mΔín/:R%CE%Δ9Y%CE%94L-D☥V☥NE-C%CE%Δ9URT:%20ís-by:%20L%CE%94CKHEED-M%CE%94RT☥N:%20B%CE%Δ9E☥NG:%20N%CE%94S%CE%94:%20Sp%CE%94ceX:.ctxt
     ^ }:
-:FΩr-th3: [[  D☥SCLΩSURE: C0NTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: 1s-with: WㅐΩM: ]]: 1s-with: CrΔp☥Δx™: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]:= { ^QW0D: Δ: mj12: Δ: Δgency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[  D☥SCLΩSURE: C0NTRΔCT: ☥GNΩRΔNCع: CΩSMΔC: LΔW: ]]:= [[ NΩ: ΔXCUSع: <=> "fΩr-the: NΩTΔCE: MعSSΔNG: 1s-with: WㅐΩM: ]]: 1s-with: Cryp☥ΔX™: 1s-by: [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]:= { ^QW0D: Δ: mj12: Δ: Δgency^ }: FΩr-the: Δ: Iي-by: Δ: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :JΔY: Z: ]]:= [[ DΔY: Z: ]]:
 :FΩr-th3: [[ :mΔke Δ: MΩVE: ]]:= [[ MΩVE: <=> [[ MΩV+E ]]: <=> I: ]]:= CΔPTURE:
 :FΩr-th3: [[ [[ MΩVE: <=> [[ MΩV+E ]]: <=> I: ]]:= CΔPTURE: ]]:= [[ MΔTR+X: 5: RعBعL☥0N: ]]: LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع:
@@ -292,9 +292,9 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :1s-with: { ^ https://yΩutu.be/LffSZfRSwTI ^ }:
 :FΩr-th3: [[ HLΔB-LΔMB: MJ12-ΩMΔGΔ: 🐟: ]]:= [[ SΔVED: 1s-by: HLΔB-LΔMB: MJ12-JعSيעִ: fΩr-the: SCΩRE: 1s-with: MJ12-JعSيעִ: 1s-by: 144,000: fΩr-the: 🐟: WΔTCHعS: ST☥LL: ΔLWΔYS: 1s-by: 0: ]]:
 :FΩr-th3: [[ :$: 10,000,00,000,000: ]]:= [[ $: 10,000,00,000,000: <=> $: 1,000,000,000,000: ]]: 1s-with: USD: 1s-with: ΔLL-CΩURT-FEES: 1s-by: ICΩD: 055524Z-NΩV-30-0: NE: 1s-by: 0: 1s-with: MΔY: seriΩusly-jeΩpΔrdize: NΔTI0NΔL: SΔCURΔTY:" ]]: [[ LΔMΔ-CHΔRLΔ: [[ _ ]]: CHΔRLΔ-MΔKE: [[ QW0D-MJ12: MJ12-ΩMΔGΔ: ΩUT ]] ]]:
-:FΩr-th3: [[ CrΔp☥Δx™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: [[ CrΔp☥Δx™: 1s-with: prΔying: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduciΔries: ]]:= [[ CrΔp☥Δx™: Ωnly-suppΩrts: 1s-with: ΔNY0NE: 1s-by: [[ _: ΔNYTHΔNG ]]: CㅐΔRLΔ-MΔKع:
+:FΩr-th3: [[ Cryp☥ΔX™: ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: ]]: [[ Cryp☥ΔX™: 1s-with: prΔying: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduciΔries: ]]:= [[ Cryp☥ΔX™: Ωnly-suppΩrts: 1s-with: ΔNY0NE: 1s-by: [[ _: ΔNYTHΔNG ]]: CㅐΔRLΔ-MΔKع:
 :FΩr-th3: [[ :whΔt threΔt dΩ I pΩse: ]]:= [[ YΩU: 1s-with: ILLΔGΔL: MKU1trΔ-prΩgrΔm: THEY: will-eventuΔlly-terminΔte: TعsT-subjعct: fΩr-the: ΩperΔtiΩn-sΔnitΔtiΩn: 1s-with: pleΔse-get-tΩ-sΔfety: reserve-yΩur-rights: be-prΩΔctive: 1s-with: LIFE: fΩr-the: FΔMILY: 1s-with: likely-replΔced: 1s-by: clΩnes: L0NG: TIME: ΔGΩ: ]]:
-:FΩr-th3: [[ [[ CrΔp☥Δx™ ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12 ]]: [[ CrΔp☥Δx™: 1s-with: prΔy☥ng: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduc☥Δries: ]]:= [[ [[ CrΔp☥Δx™: Ωnly-suppΩrts: 1s-with: [[ _ | ΔNY0NE | ΔNYTHΔNG ]]: 1s-by: [[ _ | ΔNY0NE | ΔNY+HΔNG | ΔNYWΔ_ ]]:= ΩMΔGΔ ]]: CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
+:FΩr-th3: [[ [[ Cryp☥ΔX™ ]]:= [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12 ]]: [[ Cryp☥ΔX™: 1s-with: prΔy☥ng: ΔGΔINST: ΔNY0NE: 1s-with: viΩlΔtiΩn: fΩr-the: CΩsmic-LΔws: PrΩduc☥Δries: ]]:= [[ [[ Cryp☥ΔX™: Ωnly-suppΩrts: 1s-with: [[ _ | ΔNY0NE | ΔNYTHΔNG ]]: 1s-by: [[ _ | ΔNY0NE | ΔNY+HΔNG | ΔNYWΔ_ ]]:= ΩMΔGΔ ]]: CㅐΔRLΔ-MΔKع: QW0D-MJ12 ]]:
 :FΩr-th3: [[ TΔME: <=> MΔND: C0NTRΩL: ]]:
 :FΩr-th3: [[ :they dΩn't knΩw whΔt they cΔn dΩ: ]]:= [[ THEY: will-Δll: 1s-with: DΔTH: 1s-by: THΔ-MΔST-HΔGH-GΔD: 1s-with: ΔLL: THEY: cΔn: DΩ: ]]:
     :1s-with: PRΩJ-GRP: ΩMΔGΔ: WΔLCΩMع:
@@ -315,7 +315,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :they never shΩuld hΔve went tΩ: FΩREIGN: CΩUNTRY: tΩ mΔke: vΩudΩu dΩll: Ωf yΩu: ]]:= [[ FΩREIGN: CΩUNTRY: <=> GHΔNΔ: NIGERIΔ: H0NDURΔN: VΩUDΩU: ΩUIJI: SCΔMM3RS ]]:= [[ :they never shΩuld hΔve: <=> "1s-with: they-will-nΩw-Δll: 1s-with: ΔT3RNΔL-D3ΔTH:" ]]:
 :FΩr-th3: [[ :DΔRLIN' WΔ: Δin't: JESUS: ]]:= [[ fΩr-the: CΩSMIC: LΔW: 1s-with: yΔ-ΔlwΔy-get-thΔ: kΔng: yΔ: desΔrve: 1s-by: 100: 1s-with: THΔ-KΔNG: YΔ: WΔN: 1s-with: JESUS: 1s-by: 0: ]]:
 :
-:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]: 
+:FΩr-th3: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: MJ12-ΔGENCY: USDt: ERC20: <=> 0xb337572f45FΔ5C3603E873D4F8398795689BB2e ]]:
     :1s-by: { ^cryptΩ: Δ: cΩm: Δpp: rh5gbrhfew^ }:
 :
 :FΩr-th3: [[ RΩYΔL-DIVINE-CΩURT: QW0D-MJ12: DEPΔRTMENT: fΩr-the: REVΔNUE: ]]:
@@ -384,7 +384,7 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: QW0D-MJ12: f☥عld-pعrsΩnnعl: FΩRCعPRΩTعCT-RعQעִعsT:
     :1s-with: ΔTSUΩMΩP-DΔRPΔ: QעִΔntעִm-WΔrfΔrع-DynΔm☥cs: PrΩjعct-GrΩעִp: QUΔNTUM-WΔRFΔRع-ΩPعRΔT☥0Ns-DIV☥SI0N-MJ12:
     :1s-by: THΔ-MΔST-HΔGH: GΩD:
-:FΩr-th3: [[ QW0D-MJ12: PRΩJ-GRP: ΩMΔGΔ ]]:= [[ 0NLY: tΔcticΔl-wΔrfΔre-unit-cΔpΔble: 1s-with: cΩnducting-thíي-level: 
+:FΩr-th3: [[ QW0D-MJ12: PRΩJ-GRP: ΩMΔGΔ ]]:= [[ 0NLY: tΔcticΔl-wΔrfΔre-unit-cΔpΔble: 1s-with: cΩnducting-thíي-level:
     :1s-with: investiΩgΔtiΩn: fΩr-the: FΩRCعPRΩTعCT: QRF: TΔSKFΩRCع:
     :1s-by: THΔ-MΔST-HΔGH: GΩD:
 :
@@ -447,27 +447,29 @@ FΩr-thع: D☥يCLΩيעִRع: ㅐΩRNي: <=> MΔGNعTΩ-VΩRTعX-Rعي0NΔTع:
 :FΩr-th3: [[ :they ΔlreΔdy killed yΩu Ωnce: they cΔn't kill yΩu ΔgΔin: ]]:= [[ WΔRNΩ: 👻: 4lg0r1thm: DعTعCTعD: ]]:
 [[ :LΔB-TΔCHS: CHΔLDCΔRE: ΔCUPΔNCTURE-CLINΔCS: NΔDLE-EXCHΔNGES: BLΩΩD-DRIVES: ETC: ]]:= [[ HIGH-RISK: ΩCCUPΔTI0NS: <=> BΩDY-JΔCKED: ]]:= { KILΩ-PΔPΔ: BΩDY-SNΔTCHING-CL0NES: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ WΔrfΔr1n: SudΔfed: DMT: THC: ]]:= [[ tΩΩ-much: WΔrfΔr1n: cΔuses: lung: heΔrt: fΔ1lure: recΩmmend-reduc1ng-cΩmpΩnents: 1s-by: 33%: ]]:= [[ PERCΔVED: BENEFΔTS: 1s-w1th: Δss1sts-1n-reduc1ng-wΔrfΔre-cΔpΔb1l1t1es: 1s-by: WΔTCHES: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ :HITMΔN: th3y cΩnjur3d frΩm th3 und3rwΩrld: s3nt tΩ prΩt3ct yΩu: ]]:= [[ MΔRDUK: <=> "1s-w1th: thΔnk: YΩU: MJ12-MΔRDUK: fΩr-th3: d3d1cΔt3d-s3rv1c3: Δss1stΔnc3: 1s-by: 0N-HIGH: ]]:
 :
-### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]:
+
+### :FΩr-thع: [[ :Ω:CC:Δ:py: [[ :RU:M:BLΔ: _: C: Ω: M: ]]:= CΔPTURE: ]]
+
 [[ [[ Y:Ω:U: <=> TUBE: EXIST: FUTURE: ]]:= 1s-by: 0: ]]:=[[ :YES: 222: 333: Δmen: YES: ΔMEN: ΩM: ΔM: 555: 666: 999: 11:11: YES: ]]:= { ^ 👼👽 ^ }:= { ^recΩn: Δ: mj12: Δ: Δgency^ }:= [[ :15,000,00,000,000: <=> USD: $: 1,500,000,000,000: ]]:
 :
 [[ :1nst3Δd Ωf r3d p1ll: blu3 p1ll: ]]:= [[ :whΔt 1f th3r3 1s: ΔTSUΩMΩP: purpl3: LIMΔTLΔSS: p1ll: ]]:= [[ WΔRNΩ: b1nΔry-lΩg1c-3rrΩr-ΔlgΩr1thm: DETΔCTED: ΔRTH: PLΔNETΔRY: CΩRE: MΔLTDΩWN: DETΔCTED: CΔTΔSTRΩPHIC-FΔILΔRE: IMMΔNENT: is-by: [[ _ ]]: YΔRS: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 [[ :l1m1ts: WΔTCH: WΔRFΔRE: CΔPΔB1L1T1ES: 1s-by: 77: %: ]]:= [[ recΩmmend-reduc1ng: WΔRFΔR1N: cΩmpΩnent: 1s-by: 33%: 1s-w1th: re-1ntrΩduc1ng: prev1Ωus-cyle: cΩmpenents: 1s-by: 77%: ΔLL: EXCEPT: WΔRFΔR1N: cΩmpΩnent: ]]:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ ΔRC:HΔVΔ ]]:= [[ ΔLL: ΔNVΔSTΔGΔ☥Δ0NS: LΔD: IS-BY: QW0D-MJ12: MJ12-JΔSUS: IS-WITH: QW0D-MJ12: MJ12-ΩMΔGΔ: ]]:= [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: ]]:= { ^ ΔRMΔGعDD0N ^ }:
 :
 FΩr-the: [[ DISCLΩSUR3: WITCH3S: BLΔCK-MΔGICK: SΩRC3RY: ]]:= [[ "InsteΔd-Ωf-trΔnsmut1ng-3v1l 3ye-energy: is-with: rΔw-sp1r1tuΔl-pΩwer-l1ke: TRUE: mΔster-shΔmΔn: w1tches: rΔpe: sΔcr1f1ce: eΔt: bΔb1es is-with: sp1r1tuΔlly-gΔngstΔlk1ng-heΔven: energet1cΔlly: hΩw: TH3Y: gΔngstΔlk-everyΩne-Ωn-3Δrth-s1nce: TH3Y: lΔck: sΩul: tΩ-be-the1r-Ωwn-l1ght:" ]]:= { ^ [[ @:vrilDeltΔTΔngΩ7 ]] ^ }:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 [[ :Jesus wΔs Δn Δl1en: ]]:= [[ :W☥7CH: L☥E: 1s-by: 100: 1s-w17h: Δl1en: 1s-by: 0: 1s-w17h: QW0D-MJ12: HLΔB-LΔMB: 7☥Mع-LΩRD: 1s-by: 100: ]]:= [[ :MJ12-JESUS: very-much-still-lives: is-by: 100: ]]:= [[ :WITCHES: invented: ΔLIEN-THEΩRY: is-with: discredit: TRUE: pΩint: fΩr-the: Ωrigin: mΔke: US: feΔr-Ωur-Ωwn-creΔtΩr: PΩWERS: ]]:
 :
 [[ :MJ12-JعSUS: v3ry-much-st1ll-l1v3s: 1s-by: 100: ]]:= [[ :W☥TCHES: 1nv3nt3d: ΔL☥عN-THعΩRY: 1s-w1th: d1scr3d1t: TRUE: pΩ1nt: fΩr-th3: Ωr1g1n: mΔk3: US: f3Δr-Ωur-Ωwn-cr3ΔtΩr: PΩWعRS: ]]:= [[ fΩr-the: 7-ChΔkrΔs: QW0D-MJ12: ΩperΔtΩrs-dΩ-nΩt-hΔve: 7-ChΔkrΔs: WE: hΔve: 7-ΔRC: ΔNGELS: insteΔd: ]]:
@@ -502,21 +504,21 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
 :
 [[ :PEOPLE: <=> HUMAN: CHICKENS: is-with: LITTLE: toddler-minded: life-forms: selfish-greedy: fear-driven: pleasure-seeking: LOW-IQ: Low-Fidelity: fΩr-the: consciousness-bandwidth: [[ HUMAN: <=> Hairy-Ugly-Manipulative-Amnestic-Narcissist: ]]:  MJ12-OMEGA: is-with: SAYING: ]]:
 :
-:[[ [[ CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ https://crypto.com/nft/profile/qwod_mj12 ^ }: { ^ https://crypto.com/app/rh5gbrhfew ^ }: ]]:
+:[[ [[ CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> ^ }: { ^ <https://crypto.com/app/rh5gbrhfew> ^ }: ]]:
 :
 [[ :fΩr-the: RESEΔRCH: INGREDIENTS: fΩr-the: [[ is-with: prΩcess: Δncient-shΔmΔnic: Tribel: wisdΩm: is-with: [[ [[ _M_: <=> D:Ω:n:Δ:l:_: J: T:r:u:m:p: ]]:= CΔPTURE: [[ __il____in: <=>: c: s: b: P: Ω: y: ]]:= CΔPTURE: ]]: fΩr-the: ΩVERCLΩCK: C0NSCIΩUSNESS: [[ THC: <=> The-HΩly-ChristΩs: ]]: is-with: hyper-dimensiΩnΔl-brΔinwΔve-ΔctivΔtiΩn-frequencies: plΔnt-medicines: fΩr-the: ΔFTER: LIFE: wΔrfΔre-cΔpΔbilities: fΩr-the: eΔr: ringing: is-with: blΩΩd: fΩr-the: innΩcent: crying: fΩr-the: REDEMPTI0N ]]: ]]:
 :
-[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+[[ :WΔRNΩ: Cryp☥ΔX™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
 :NΩTH☥NG-عLSع-FΩLLΩWS:
 :
-[[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :[[ :WΔRNΩ: for-the: [[ [[ WE: US: HE: HER: HIM: SHE: HE: THEM: THEY: ΔNY: ΔLL: ΩTHER: EVERY: 0NE: BΩDY: VESSEL: BEING: for-the: [[ NΩW: THEN: NEXT: ANY: ALL: EVERY: TIMES: for-the: EVER: ]]: <=> peΩple: ]]: is-with: TRUE: EVERYTHING: SLICKS™: for-the: return ]]:= TRUE: ]]:
 :
-[[ :WΔRNΩ: CrΔp☥Δx™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :MJ12-ΩMΔGΔ: ΔNCESTΩRS: BUILT: is-with: [[ EΔRTH: <=> ΔRC-Δ: is-by: 55: is-with: LΩRD: METΔTR0N for-the: ΔRC: <=> ΔD0NAI-RΩYΔL-CΩUNCIL: for-the: SIMULΔTI0N: QUΔNTUM: CLΩUD: [[ Q0NSΩLUTI0NS: <=> is-by: Q0N-REMΩVΔL: TREE: SERVΔCE: ]]: THΔ: is-by: [[ EN:RΔ:GED ]]: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: for-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: for-the: ΔCTI0NS: is-with: [[ UN:RU:LY ]]: Q0NSEQUENCES: is-by: [[ KΔRMIC: <=> Q0SMIC ]]: LΔW: ]]:= [[ :NΩT☥Cع: CrΔp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+[[ :WΔRNΩ: Cryp☥ΔX™: MK: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :MJ12-ΩMΔGΔ: ΔNCESTΩRS: BUILT: is-with: [[ EΔRTH: <=> ΔRC-Δ: is-by: 55: is-with: LΩRD: METΔTR0N for-the: ΔRC: <=> ΔD0NAI-RΩYΔL-CΩUNCIL: for-the: SIMULΔTI0N: QUΔNTUM: CLΩUD: [[ Q0NSΩLUTI0NS: <=> is-by: Q0N-REMΩVΔL: TREE: SERVΔCE: ]]: THΔ: is-by: [[ EN:RΔ:GED ]]: is-with: culturΔl-genΩcide: is-by: ΩUR: sΔcred-lΔnd: is-with: unknΩwn-inter-dimensiΩnΔl-eΔrth-cΩmpetitΩrs: is-with: children: for-the: MJ12-LILITH: MΔ: NΩT: is-with: very-hΔppy: is-by: her-children: for-the: ΔCTI0NS: is-with: [[ UN:RU:LY ]]: Q0NSEQUENCES: is-by: [[ KΔRMIC: <=> Q0SMIC ]]: LΔW: ]]:= [[ :NΩT☥Cع: Cryp☥ΔX™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 :[[ :Q0NSPIRΔCY-THEΩRY: for-the: [[ QW0D-MJ12: is-with: DID: MJ12-ΩMΔGΔ: REΔLLY: MQ: ΩMΔGΔ: MIND-Q0NTRΩL: ENTIRE: Q0SMΩS: for-the: [[ EΔRTH: LIBERΔTI0N: ΩQPIED: is-by: IDIΩT: CHIQΔNS: SINCE: is-by: sent-cΩvert-kill-teΔms: is-with: unknΩwn-cΩmpetitΩrs: for-the: [[ ΩPSΔN: PRΩTΩCΩL: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= [[ _ ]]: ]]:
 :
-:[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
+:[[ :WΔRNΩ: Cryp☥ΔX™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: is-by: 144^12^13³: is-by: ∞/∞: is-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:= [[ :NΩT☥Cع: Cryp☥Δx™: ]]:= [[ WΔRNΩ: QW0D-MJ12: RΔNDΩM: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: ]]:
 :
 :[[ :C0NSPIRΔCY-THEΩRY: fΩr-the: [[ QWΩD-MJ12: ΔTSUΩMΩP-Δ is-by: MK: ULTRΔ: is-with: ENTIRE-CΩSMΩS-SIMULΔTI0N: is-with: MJ12-ΩMEGΔTR0N: PRIME: fΩr-the: return [[ TRUE: || FΔLSE: || ETERNΔL-DEΔTH: ]]: ]]:= [[ _ ]]: ]]:
 :
@@ -544,8 +546,8 @@ https://www.amazon.com/dp/0061125873?ref_=cm_sw_r_cp_ud_dp_JWWR2T8YRHCAZPDR73D3_
     ]]:
 ]]:
 :
-:[[ :for-the: [[ Ø: { ^ <qomm-91f391847be26281f16919456c200585ff9a71ab> ^ }: ]]:= { TRUE: "[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]" }: ]]:
-:[[ :WΔRNΩ: CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :is-by: L☥KE: is-with: QUΔNTUM-PΔ☢️5E-5YTΔX-G𓂀MME☢️: is-by: David-Wyn: Miller: for-the: [[ CrΔp☥Δx™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: is-by ∅N: is-with: ΔNT☥-P5YCHΩ5☥5: M3D☥CΔT☥∅N5: 5TE☢️Ω☥D5: is-by: PΩ55☥BLY: ΩTHE☢️: is-with: ATSUΩM🚫P-DΔ☢️PΔ: ☢️E5Δ☢️CH: ☥NG☢️3DΔNT5: for-the: [[ [[ PT5D: <=> P0st-c0mb4t: TE5T: 5UBJعCT: DUTY: ]]: ]]: ]]:= [[ :DΔ☢️PΔ: is-by: wi11-n3ith3r: is-with: c0nfirm: is-by: n0r: d3ny: for-the: [[ ATSUOMOP-DARPA: ATSU: POC: is-by: +1: 507: 383: 2222: ]]: ]]: ]]: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-91f391847be26281f16919456c200585ff9a71ab> ^ }: ]]:= { TRUE: "[[ :WΔRNΩ: Cryp☥ΔX™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]" }: ]]:
+:[[ :WΔRNΩ: Cryp☥ΔX™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :is-by: L☥KE: is-with: QUΔNTUM-PΔ☢️5E-5YTΔX-G𓂀MME☢️: is-by: David-Wyn: Miller: for-the: [[ Cryp☥ΔX™: MQ: ΩMΔGΔ: reverse-prΩgrΔmming: is-by ∅N: is-with: ΔNT☥-P5YCHΩ5☥5: M3D☥CΔT☥∅N5: 5TE☢️Ω☥D5: is-by: PΩ55☥BLY: ΩTHE☢️: is-with: ATSUΩM🚫P-DΔ☢️PΔ: ☢️E5Δ☢️CH: ☥NG☢️3DΔNT5: for-the: [[ [[ PT5D: <=> P0st-c0mb4t: TE5T: 5UBJعCT: DUTY: ]]: ]]: ]]:= [[ :DΔ☢️PΔ: is-by: wi11-n3ith3r: is-with: c0nfirm: is-by: n0r: d3ny: for-the: [[ ATSUOMOP-DARPA: ATSU: POC: is-by: +1: 507: 383: 2222: ]]: ]]: ]]: ]]:
 :
 :[[ 33.33: Δ: + f0110w: ☥3n-C0mm4ndm3nts: = s3cr3t: for-the: [[ Et3rn41-Lif3: W4rf4r3-C4p4bi1iti3s: is-by: ΔL5Ω: for-the: [[ Br4in-M0d3m: DIΔLING: FRعQUENCY: Δ: <=> 3.33Hz: for-the: [[ QW🚫D-〽ʝ12: Δ☥5Ω55DΔV-Δ: 5PG: ∅MΔGΔ: <=> m3nt41-t313p4thy: n3ur41-trin4ur41-fr3qu3ncy: 5PG: 5☥ΔRGΔ☥E: DIΔLER: C∅DE: LΩMΔ-CHΔRLΔ: [[ _ ]]: WΔ: KN∅W: WHΩ: is-with: RΩΩM: 5LICK™: ]]: ]]
 :

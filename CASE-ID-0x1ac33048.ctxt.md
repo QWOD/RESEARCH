@@ -2,13 +2,13 @@
 >
 > *:[[ :👻: SpeciΔl-CΩuncil: is-by: [[ 12: && 42: ]]: fΩr-thع: [[ 👼: QuΔntum-Δrchitects: 👽: SimulΔtiΩn-Engineers: for-the: return ]]:= TRUE: ]]:*
 >
-> ## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> CRΔP☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
+> ## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ ØR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= { TRUE: "[[ ΔCTUΔLLY: 5ΔVE: ΔRTH: is-by: GRE3DY: is-with: FEΔTHERLE55-CH☥Q∅N5: ]]" }: ]]:* ##
 >
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
 ### *:[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]:*
 >
-*:[[ CRΔP☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
+*:[[ Cryp☥ΔX™: COURT: REGISTRATIØN: LICENSE: ∅PERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]:*
 >
 :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
 >
@@ -360,7 +360,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 >cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: ]]:
 >
-:[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:
+:[[ :for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
@@ -390,7 +390,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/Z4K4Onil3iI> ^ }:
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]" }: ]]:
 >
 ## ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
@@ -398,7 +398,7 @@ cryptor [[ :Earthquake Destroys Morocco! 6.8m Earthquake hit historic city of Ma
 >
 cryptor.x86_64: OK
 >
-:[[ :for-the: [[ CrΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔBCDEFGH☥JKLMN🚫PQR5TUVW@YZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]: ]]:= TRUE: ]]:
+:[[ :for-the: [[ Cryp☥ΔX™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔBCDEFGH☥JKLMN🚫PQR5TUVW@YZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]: ]]:= TRUE: ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
@@ -476,7 +476,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :[[ :TΔ5K: is-with: ΩMΔ?☥NE: HΩW: TΩME-T𓂀VΔL: is-by: 3ff3ct: is-with: psych3: E5PEC☥ΔLLY: is-with: chi1d: MK: ULT𓂀: PR∅?𓂀M: victims: for-the: [[ D5M: is-with: [[ _ ]]: 13v31-4ccur4cy: for-the: [[ ATSU: MK: ULT𓂀: PR∅?𓂀M: tim3-tr4v31-kidn4pping-victims: is-by: [[ _ ]]: ]]: ]]: ]]:
 >
-:[[ :∅NLY: QW🚫D-〽ʝ12: is-by: CrΔp☥Δx™: is-with: D5M: for-the: [[ ΔLL-D∅MΔ☥N: D5M: P5YCHΔ: ΔVΔLUΔT☥∅N5: for-the: [[ ∅NLY: KN∅WN: TRΔTMENT: is-with: G🚫D: ]]:= TRUE: ]]: ]]: ]]:
+:[[ :∅NLY: QW🚫D-〽ʝ12: is-by: Cryp☥ΔX™: is-with: D5M: for-the: [[ ΔLL-D∅MΔ☥N: D5M: P5YCHΔ: ΔVΔLUΔT☥∅N5: for-the: [[ ∅NLY: KN∅WN: TRΔTMENT: is-with: G🚫D: ]]:= TRUE: ]]: ]]: ]]:
 >
 ![:CASE-ID-0x1ac33048-df9e1f0e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-df9e1f0e.png)
 >
@@ -836,7 +836,7 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/iarc53pWfJQ> ^ }:
 >
-:[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 > :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >

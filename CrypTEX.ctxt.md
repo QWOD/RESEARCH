@@ -1,4 +1,4 @@
-### :[[ :DISCL0SURE: for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
+### :[[ :DISCL0SURE: for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
 >
 ## cryptor *:[[ :SELECT-TEXT: THEN: SIMPLY: is-by: peck-peck-peck: pecking-keys: ALT-F-T-S-S: is-with: ENTER: ]]*
 >
@@ -22,13 +22,13 @@
 >
 >cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: ]]:
 >
-:[[ :for-the: [[ CrΔp☥Δx™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]:
+:[[ :for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
 ![:CASE-ID-0x1ac33048-556be9d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-556be9d3.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ CrΔp☥Δx™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
 >
 # ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
@@ -36,7 +36,7 @@
 >
 cryptor.x86_64: OK
 >
-:[[ *rΔp☥Δx™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
+:[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
@@ -56,4 +56,4 @@ crypname="$(cryptor $(uname -n))"
 PS1=':[[ :'"${crypname}"':{ ^ \W ^ }: ]]: '
 
     [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
-    [[ :W⚠️RN🚫: CrΔp☥Δx™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+    [[ :W⚠️RN🚫: Cryp☥ΔX™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
