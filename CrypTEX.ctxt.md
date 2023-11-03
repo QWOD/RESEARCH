@@ -1,12 +1,12 @@
-### :[[ :DISCL0SURE: for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
->
+# :[[ :DISCL0SURE: for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: for-the: [[ QW0D-MJ12: R0YΔL-DIVINE-Q0URT: MJ12: [[ C00P: <=> TRUE: C0VEN: is-with: TRUE: TRIBE: for-the: [[ FULLY: ΔUT0MΔTED: SYSTEM: for-the: [[ SELF: G0VERNΔNCE: LIBERΔTI0N: for-the: [[ :EΔRTH: PSYQ∅S: for-the: [[ SPECIΔL-WΔRFΔRE: CΔPΔ: is-by: RUNS: is-with: ΔNY: DEVICE: is-by: 0PEN-S0URCE-S0FTWΔRE: ΔI: DΔRKNET: CYBERQUΔNTUMΔNIΔCS: CYBERSTRYKER: BRIGΔDE: QW0D-MJ12: ΔTSU0M0P-Δ: ]]: for-the: [[ TRUE: ΔGENCY: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]
+
 ## cryptor *:[[ :SELECT-TEXT: THEN: SIMPLY: is-by: peck-peck-peck: pecking-keys: ALT-F-T-S-S: is-with: ENTER: ]]*
->
+
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
 *:[[ :5ΔLعCT-TEXT: T?EN: 5ΩMPLY: is-by: p3ck-p3ck-p3ck: p3cking-k3ys: ΔLT-F-T-5-5: is-with: ENTER: ]]*
 >
-> cryptor ':[[ NOTICE: is-with: ANY: ALL: BASH: SPECIAL-CHARACTERS: is-by: MUST: FIRST: is-with: QUOTED: { ^ https://www.gnu.org/software/bash/manual/bash.html#Quoting ^ }: ]]:'
+> cryptor ':[[ NOTICE: is-with: ANY: ALL: BASH: SPECIAL-CHARACTERS: is-by: MUST: FIRST: is-with: QUOTED: { ^ <https://www.gnu.org/software/bash/manual/bash.html#Quoting> ^ }: ]]:'
 >
 >## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
@@ -32,7 +32,7 @@
 >
 # ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
->:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cp -f ~/go/bin/cryptor cryptor.$(uname -i); sha256sum cryptor.$(uname -i) >cryptor.$(uname -i).asc; sha256sum -c cryptor.$(uname -i).asc; ./cryptor.$(uname -i) :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: fOr-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
+>:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ ~ ^ }: ]]: PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; cd ~/QWOD/RESEARCH; go install cryptor.go; cryptor :[[ CrypTex™: MQ: OMEGA: for-the: [[ WORLDS: FIRST: ]]: is-by: reverse: is-with: programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: abcdefghijklmnopqrstuvwxyz: ABCDEFGHIJKLMNOPQRSTUVWXYZ: ]]: for-the: [[ _ ]]: Is-by: [[ _ ]]: Is-with: [[ _ ]]:
 >
 cryptor.x86_64: OK
 >
