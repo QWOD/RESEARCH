@@ -306,11 +306,13 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0x47f2b9e1-2f9a1879.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-2f9a1879.png)
 >
 > ## *[[ :El Salvador Now! Storm Pilar Causes Heavy Rain, Flash Flood, Destroyed Cities | Natural Disasters: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/7Iyl3W5MFFI> ^ }:
+>
+>![:CASE-ID-0x47f2b9e1-6cfdfcef.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x47f2b9e1-6cfdfcef.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
