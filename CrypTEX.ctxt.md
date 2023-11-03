@@ -48,9 +48,12 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 >
 >## *[[ :CrypTEX™: easily compiles into any language since basically: is-by: only a colon delimited text database: is-by: ONLY: is-with: certain characters: is-by: recognized: [[: ]]: brackets are optional in most cases: contributing towards logical interpretation: CrypTEX™: provides: for-the: more relaxed standard such as: THIS: text: YOU: are presently reading since it is more natural: for-the: BRAIN: is-by: interpret: for-the: LEARNING: is-with: WHILE: CrypTEX™: does not always need to be encrypted: this d03s h31p 4v0id m0st c0mm0n c3ns0rship 0r sh4d0w b4nning 41g0rithms: ]]*
 >
+> ***:[[ :CrypTEX™: is-with: designed: is-by: easily-foils: is-with: AI: for-the: [[ adversary-text-harvesting: special-warfare-capabilities: is-by: both: known: unknown: is-with: competitors: ]]: ]]:***
+>
+>![:CrypTEX-foils-AI.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX-foils-AI.png)
+>
 crypname="$(cryptor $(uname -n))"
 PS1=':[[ :'"${crypname}"':{ ^ \W ^ }: ]]: '
->
+
     [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
     [[ :W⚠️RN🚫: CrΔp☥Δx™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
->
