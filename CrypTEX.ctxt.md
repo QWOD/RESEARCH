@@ -10,7 +10,7 @@
 >
 >## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
-:[[ :TH☥S: SHΩULD: is-with: plugin: is-with: Visual-Studio-Code: ]]:
+:[[ :TH☥S: is-by: SHΩULD: is-with: Visual-Studio-Code: plugin: ]]:
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
@@ -28,7 +28,7 @@
 >
 ![:CASE-ID-0x1ac33048-556be9d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-556be9d3.png)
 >
-:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-8adf2addff8e7f959253e20e641f37f9d5f3e50f> ^ }: ]]:= { TRUE: "[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]" }: ]]:
 >
 # ⬢ [["Liberty-Prime: ONLINE: Voice-Module: ACTIVE: Weapons: HOT"]] ⬢
 >
@@ -36,7 +36,7 @@
 >
 cryptor.x86_64: OK
 >
-:[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATSUΩM🚫P-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
+:[[ Cryp☥ΔX™: MQ: ∅MΔGΔ: for-the: [[ W∅RLD5: F☥R5T: ]]: is-by: r3v3rs3: is-with: pr0gr4mming-14ngu4g3: is-by: @: is-with: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: 4bcd3fghijk1mn0pqrstuvwxyz: ΔB*DEFGH☥JKLMN🚫PQR5TUVWXYZ: ]]: fΩr-thع: [[ _ ]]: íي-by: [[ _ ]]: íي-wíth: [[ _ ]]:
 >
 ![:CASE-ID-0x1ac33048-a0178fe6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-a0178fe6.png)
 >
