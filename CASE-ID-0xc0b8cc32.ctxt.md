@@ -568,17 +568,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :[[ _: 2: ]]: - Don't Mention The: [[ Ch4z4rs: ]]: ! 🤷🏽: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/u7aQ2CHQ5r4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :✨Here for the chaos 😧: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/ZbwgAR9hZTk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
