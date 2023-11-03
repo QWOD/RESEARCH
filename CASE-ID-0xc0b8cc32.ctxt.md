@@ -440,9 +440,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Enki's GENETIC Modifications to your DNA will Leave You SPEACHLESS!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/OMSs7kWb4-U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
