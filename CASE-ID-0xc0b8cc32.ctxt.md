@@ -432,9 +432,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Cataclysms for the day 01.11.2023 - USA Tornado, Europe Tsunami, Russia Hurricane: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/wX09j29_eQk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
