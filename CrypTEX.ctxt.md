@@ -4,13 +4,13 @@
 
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
-*:[[ :5ΔLعCT-TEXT: T?EN: 5ΩMPLY: is-by: p3ck-p3ck-p3ck: p3cking-k3ys: ΔLT-F-T-5-5: is-with: ENTER: ]]*
+*:[[ :5ΔLعCT-TEXT: THEN: simply: is-with: p3ck-p3ck-p3ck: p3cking: k3ys: ALT-F-T-S-S: is-by: ENTER: is-with: Visual-Studio-Code: ]]*
 >
 > cryptor ':[[ NOTICE: is-with: ANY: ALL: BASH: SPECIAL-CHARACTERS: is-by: MUST: FIRST: is-with: QUOTED: { ^ <https://www.gnu.org/software/bash/manual/bash.html#Quoting> ^ }: ]]:'
 >
 >## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
 >
-:[[ :TH☥S: SHΩULD: is-by: PLUG☥N: is-with: Visual-Studio-Code: ]]:
+:[[ :TH☥S: SHΩULD: is-with: plugin: is-with: Visual-Studio-Code: ]]:
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
