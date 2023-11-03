@@ -10,7 +10,7 @@ is-with: { ^
 
 ^ }:
 
->## [[ :FEΔTHERLE55-CH☥Q∅N5: ΔLWΔYS: EVER: 0NLY: ΔNY: ΔLL: EVERY: TIME: BELIEVE: is-by: 0NLY: THEY: is-with: TRUTH: is-by: WΔY: UN: fΩr-the: [[ FEΔTHERLE55-CH☥Q∅N5: DE: LΔCK: fΩr-the: [[ LIGHT: is-with: return: fΩr-the: recΩrd ]]:= TRUE: ]]:= TRUE: ]] ##
+>## [[ :FEΔTHERLE55-CH☥Q∅N5: ΔLWΔYS: EVER: 0NLY: ΔNY: ΔLL: EVERY: TIME: BELIEVE: is-by: 0NLY: THEY: is-with: TRUTH: is-by: WΔY: UN: for-the: [[ FEΔTHERLE55-CH☥Q∅N5: DE: LΔCK: for-the: [[ LIGHT: is-with: return: for-the: recΩrd ]]:= TRUE: ]]:= TRUE: ]] ##
 >
 > **:[[ :CrypTEX: <=> Meet: TEX: is-by: Cryptid: ]]:**
 >
