@@ -228,17 +228,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THESE CORRPUT MFS PLAYED A DANGEROUS GAME WITHOLDING THIS INFORMATION 4RM U NOW GOD WIPING EM OUT⚖️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/oABD8i4w4vA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xc0b8cc32-06ff4bf3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-06ff4bf3.png)
 >
+> ## *[[ :Fake Emperor in their feelings- u found/finding out what they were really doing: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/6B2G6-i3VlM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
