@@ -176,7 +176,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/zk6rfIH-ZJA> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-7d8172b5a89d464241ddfe12bcf39e9df77b7bc1> ^ }: ]]:= { TRUE: "[[ wh3r3: YΩU: is-by: 🕳️🚫IN🕳️: is-with: [[ _ ]]: is-by: YΩU: is-with: sc4r3d-41r34dy: is-by: [[ _ ]]:  ]]" }: ]]:
 
 >
 >
@@ -200,7 +200,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/lcLq_82LML0> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-7d8172b5a89d464241ddfe12bcf39e9df77b7bc1> ^ }: ]]:= { RELEVANT: "[[ WΔ: w0u1d-r3c0nci13: EXCEP☥: ☥HΔ: c0mp13t31y-d3str0y3d-0ur-4bi1ity: is-by: 4ttr4ct3d: is-with: 4ny0n3-0r-4nything-3v3r-4g4in: th3r3f0r3-wh4t-w0u1d: is-by: th3-p0int: is-by: [[ _ ]]: ]]" }: ]]:
 
 >
 >
