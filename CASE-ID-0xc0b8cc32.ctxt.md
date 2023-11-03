@@ -220,9 +220,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :KARMIC EX & KARMIC COUSIN GETTING STOOD ON N DRAGGED ALL THRU DA ETHERS 4 THIS BETRAYL: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/IxgXOQhhk0g> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
