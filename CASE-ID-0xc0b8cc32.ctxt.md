@@ -212,9 +212,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🎃👻Exorcism, Entity Attachment - Shawn Whittington TSP 889, Halloween 2023👻🎃: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/5Uq1E2q3lpg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
