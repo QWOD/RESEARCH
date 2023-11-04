@@ -30,7 +30,7 @@ if [[ $* == "stop" ]]; then
     # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
     if [[ "${pushRepo}" == false ]]; then
       ( toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com  2>/dev/null | sudo tee -a ${errorLog} )
-      if toolbox run -y ${localPath}/bin/gitupur pull 2>"${errorLog}"; then
+      if toolbox run -y ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -44,14 +44,14 @@ if [[ $* == "start" ]]; then
   ( toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com 1>& /dev/null )
   while true; do
     if [[ "${pushRepo}" == true ]]; then
-      if ${localPath}/bin/gitupur push 2>"${errorLog}"; then
+      if ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ push ^ }: BRANCH-OPERATION: FAILED: ]]:'
       fi
     fi
     if [[ "${pushRepo}" == false ]]; then
-      if ${localPath}/bin/gitupur pull 2>"${errorLog}"; then
+      if ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
