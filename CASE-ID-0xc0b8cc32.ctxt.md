@@ -696,9 +696,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :This karmic is trying to trigger someone that healed themselves & mad it's not working: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/OgEyy5bWqYY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
