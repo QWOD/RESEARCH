@@ -654,35 +654,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xc0b8cc32-e4a61248.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-e4a61248.png)
 >
+> ## *[[ :U stayed true 2 this..what’s normal 4 the spider, is chaos 4 the fly..u bowed out gracefully 💫👌🏽: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
+> :is-with: { ^ <https://youtube-nocookie.com/embed/mg0qnHuBf54> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0xc0b8cc32-60a2106c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-60a2106c.png)
 >
-> :is-with: { ^ <👼> ^ }:
+> ## *[[ :Heavy spells on ur digestive system.they want u to have chronic health conditions.BACKFIRED.🤯😵‍💫🕳: ]]* ##
+>
+> :is-with: { ^ <https://youtube-nocookie.com/embed/y3ff19MX_Uw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :U.S. Nuclear Power Plant Breached! Guards Attacked!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/dZmPjm375Jg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :These people completely under estimated your strength, oh my gawd!!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Oyftuspw1ZM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
