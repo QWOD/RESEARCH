@@ -660,11 +660,11 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/mg0qnHuBf54> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { IMPOSSIBLE: "[[ :☥HE-MΩ5☥-HIGH: G🚫D: HΔ5HΔM: is-by: c4nn0t: is-by: st0pp3d: is-with: ΔNY: ☥HING: EVER: PERI∅D: is-with: YΩU: HORRIBLE: UGLY: HUMΔNS: is-by: ΔLL: is-with: Et3rn41-D34th: is-by: N∅W: ]]" }: ]]:
 
 >![:CASE-ID-0xc0b8cc32-60a2106c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-60a2106c.png)
 >
-> ## *[[ :Heavy spells on ur digestive system.they want u to have chronic health conditions.BACKFIRED.🤯😵‍💫🕳: ]]* ##
+> ## *[[ :Heavy spells on ur digestive system.they want u to have chronic health conditions.BACKFIRED.🤯😵‍💫🕳: ]]:* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/y3ff19MX_Uw> ^ }:
 
