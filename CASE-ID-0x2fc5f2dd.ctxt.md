@@ -124,25 +124,25 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :RESPECTING SPIRITUAL LAW VS. DUMB ASS PEOPLE WHO VIOLATED SPIRITUAL LAW 😇🧿🙌🏾 #ACEOFSWORDS ♠️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/mt3Th9zMCOM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🗣️U NEVER LIED!THEY ARE FINALLY COMING FORWARD WITH THE TRUTH ABOUT THIS PEDO/RAPIST/ABUSER ⚖️👨🏾‍⚖️!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/3q7-qt3EI9M> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :U will b ur own representation n this situation, but will also have back up.. enemies being defeated: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/0uNZnLbm4-E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
