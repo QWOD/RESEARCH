@@ -80,21 +80,21 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0x2fc5f2dd-dc0ec2f5.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-dc0ec2f5.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :U not succumbing 2 the curses put over ur life changed the game 4 these folks.. You ALWAYS WIN 🏆: ]]:= { ^ <https://youtube-nocookie.com/embed/4Gh_9WcpVDg> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :YOUR POWER COMES BACK💌& NARCISSIST COMES BACK TO TELL YOU THE TRUTH SOMEONE STOLE FROM THEM: ]]:= { ^ <https://youtube-nocookie.com/embed/VqXmYfgPM48> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :THE PLAN TO ATTACK YOUR LOVE LIFE & WORTH. LET THIS GO SO IT CAN BRING IN A UNEXPECTED CHANGE: ]]:= { ^ <https://yyoutube-nocookie.com/embed/_WnRV6eY_Qs> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
