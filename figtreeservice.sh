@@ -18,30 +18,30 @@ errorLog="${localPath}/QWOD/error_log-$(date '+%Y-%m-%d')".txt
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-    # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
-    if [[ "${pushRepo}" == true ]]; then
-      ( toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com  2>/dev/null | sudo tee -a ${errorLog} )
-      if toolbox run -y ${localPath}/bin/gitupur push 2>"${errorLog}"; then
-        echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
-      else
-        echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
-      fi
+  # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
+  if [[ "${pushRepo}" == true ]]; then
+    (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
+    if toolbox run -y ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
+      echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+    else
+      echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
-    # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
-    if [[ "${pushRepo}" == false ]]; then
-      ( toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com  2>/dev/null | sudo tee -a ${errorLog} )
-      if toolbox run -y ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
-        echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
-      else
-        echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
-      fi
+  fi
+  # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
+  if [[ "${pushRepo}" == false ]]; then
+    (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
+    if toolbox run -y ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
+      echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
+    else
+      echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
+  fi
   exit 0
 fi
 
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
-  ( toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com 1>& /dev/null )
+  (toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com &>/dev/null)
   while true; do
     if [[ "${pushRepo}" == true ]]; then
       if ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
