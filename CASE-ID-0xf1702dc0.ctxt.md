@@ -24,7 +24,7 @@
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x00000000.ctxt.md> ^ }:
 >
-:is-by: [[ :ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
+:is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 >
 ### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
 >
@@ -90,7 +90,7 @@
 >
 > :[[ :*🚫PعD*: ]]:= [[ :WHEN "MENTAL HEALTH" MAGICK GOES WRONG & THEM 9 OF SWORDS HAVE RETURNED TO SENDER 🧿 PT.2: ]]:= { ^ <https://youtube-nocookie.com/embed/Y1_AeM8qZNQ> ^ }:
 >
-> ## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+> ## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 
 :[[ :for-the: [[ Ø: { ^ <qomm-682292e4138286d0a6e42110ad6b183a1d0103af> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -118,7 +118,7 @@
 >
 >![:CASE-ID-0xf1702dc0-01a2bfea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-01a2bfea.png)
 >
-> :[[ :for-the: [[ [[ TRΔN5LΔT☥∅N: <=> J5ΩC: 5F∅D-Δ: ]]: is-with: PΩ5T: for-the: [[ QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: is-by: ∅DT: is-with: CHΔRLΔ-M☥!E: ]]: ]]: ]]:
+> :[[ :for-the: [[ [[ TRΔN5LΔT☥∅N: <=> J5ΩC: 5F∅D-Δ: ]]: is-with: PΩ5T: for-the: [[ QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: is-by: ∅DT: is-with: CHΔRLΔ-M☥!E: ]]: ]]: ]]:
 >
 > :[[ :for-the: [[ FΩUR: BEΔ5T5: <=> ΔRMY: Δ☥RF∅RCE: NΔVY: MΔR☥NE5: ]]: ]]:
 
@@ -401,7 +401,7 @@
 >
 >![:CASE-ID-0xf1702dc0-a4f36d2f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-a4f36d2f.png)
 
-:[[ :for-the: [[ Ø: { ^ <qomm-f9280deb19694e31750fc5cd19408128a29979d3> ^ }: ]]:= { TRUE: "[[ :for-the: [[ RعTURN: is-with: [[ K☥NG-ΩF-K☥NG5: <=> QW🚫D-〽ʝ12: MJ12-JE5U5: ]]: is-by: d3ni3d: 4cc3ss: for-the: [[ ΔNY: 5ΩC☥ΔL: M3D☥Δ: is-with: t4rg3t3d-4bus3: c3ns0rship: g4ngst41king: 4tt4m3pt3d-4ss4ssin4ti0ns: is-with: c0+3rt-ki11-m3th0ds: is-by: ATS🚫SSDEV: is-with: d3f3ns3-s3cr3t: is-with: PR☥CE: is-by: HΔΔD: is-with: ΔVERY: NΔT☥∅N: is-with: ΔRTH: ]]: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f9280deb19694e31750fc5cd19408128a29979d3> ^ }: ]]:= { TRUE: "[[ :for-the: [[ RعTURN: is-with: [[ K☥NG-ΩF-K☥NG5: <=> QW🚫D-〽ʝ12: MJ12-JE5U5: ]]: is-by: d3ni3d: 4cc3ss: for-the: [[ ΔNY: 5ΩC☥ΔL: M3D☥Δ: is-with: t4rg3t3d-4bus3: c3ns0rship: g4ngst41king: 4tt4m3pt3d-4ss4ssin4ti0ns: is-with: c0+3rt-ki11-m3th0ds: is-by: ΔTS🚫SSDEV: is-with: d3f3ns3-s3cr3t: is-with: PR☥CE: is-by: HΔΔD: is-with: ΔVERY: NΔT☥∅N: is-with: ΔRTH: ]]: ]]: ]]" }: ]]:
 
 >![:CASE-ID-0xf1702dc0-872c4b36.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xf1702dc0-872c4b36.png)
 >
@@ -933,6 +933,6 @@
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-> :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ΔTS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
 > ## *[["They only made the beast. We became friends with the beast."]]* ##

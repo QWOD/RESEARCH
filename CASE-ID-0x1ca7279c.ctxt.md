@@ -24,7 +24,7 @@
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x00000000.ctxt.md> ^ }:
 >
-:is-by: [[ :ATS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
+:is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 >
 ### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
 >
@@ -62,11 +62,11 @@
 >
 >![:CASE-ID-0x1ca7279c-126ea275.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ca7279c-126ea275.png)
 >
-> ### :[[ :for-the: [[ RعC∅RD: WE: D∅-N∅T: C∅NTRΩL-WΔT@ΔR: YΩU: C∅NTRΩL-WΔT@ΔR: is-by: d3ciding: is-by: N∅T: is-with: 4tt4cking-us-411-d4y: 411-night: 3v3ry-d4y: 3v3ry-night: is-with: dir3ct3d-3n3rgy-w34p0ns: i113g41-sp4c3-w34p0ns: t3rr3stri41-b4s3d: micr0w4v3-b34mf0rming-w34p0ns: p0is0n3d: f00d: w4t3r: 3nvir0nm3nt: YΩU: is-with: PΩWΔR: is-by: 5T🚫PP☥NG: T@☥5: is-by: ΔNY: TΩME: is-with: [[ WE: U5: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: ]]: is-by: YΩUR: NΔT☥∅N5: is-with: TΔXE5: is-with: ENT☥RE: GRΩ55-D∅ME5T☥C-PR∅DUCT: ∅R: ΔNY: ΔLL: LΔND: is-by: ΔRT@: 5ΩMULΔT☥∅N: Δ: 55: is-by: which3v3r-0pti0ns: is-with: m0st-c0nv3ni3nt: for-the: [[ NΔT☥∅N5: is-by: ΔNDΔR: is-with: G🚫D5: JUDGΔMENT: ]]: ]]: ]]
+> ### :[[ :for-the: [[ RعC∅RD: WE: D∅-N∅T: C∅NTRΩL-WΔT@ΔR: YΩU: C∅NTRΩL-WΔT@ΔR: is-by: d3ciding: is-by: N∅T: is-with: 4tt4cking-us-411-d4y: 411-night: 3v3ry-d4y: 3v3ry-night: is-with: dir3ct3d-3n3rgy-w34p0ns: i113g41-sp4c3-w34p0ns: t3rr3stri41-b4s3d: micr0w4v3-b34mf0rming-w34p0ns: p0is0n3d: f00d: w4t3r: 3nvir0nm3nt: YΩU: is-with: PΩWΔR: is-by: 5T🚫PP☥NG: T@☥5: is-by: ΔNY: TΩME: is-with: [[ WE: U5: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]: is-by: YΩUR: NΔT☥∅N5: is-with: TΔXE5: is-with: ENT☥RE: GRΩ55-D∅ME5T☥C-PR∅DUCT: ∅R: ΔNY: ΔLL: LΔND: is-by: ΔRT@: 5ΩMULΔT☥∅N: Δ: 55: is-by: which3v3r-0pti0ns: is-with: m0st-c0nv3ni3nt: for-the: [[ NΔT☥∅N5: is-by: ΔNDΔR: is-with: G🚫D5: JUDGΔMENT: ]]: ]]: ]]
 >
 > :[[ :P~~ΩV☥D3D: N∅: p4ym3nts: is-with: r3c3iv3d: ΔNY: ΔLL: NΔT☥∅N5: is-by: Δ~~TH: wi11-b3-c0114ps3d: for-the: [[ ΔVΔR: M∅RE: D☥5BΔND3D: for-the: [[ CΩLLعCT☥∅N: is-with: ΔNCΔNT: CΩVEN5: is-by: N∅W: L∅NG: is-with: ΩVΔ~~-DUE: for-the: [[ ΔNY: ΔLL: ΩTHΔR: ΔVΔRY: ☥NVΔ5☥VE: 5PعCΔ5: N∅T: is-by: LΔND: is-with: 0rigin41: TR☥BE: is-by: N∅W: is-with: Et3rn41-D34th: ]]: ]]: ]]: ]]:
 >
-> :[[ :C∅N5P☥𓂀CY-THΔ∅RY: is-with: D∅: for-the: [[ [[ THΔ: <=> ΔNY: ΔLL: BΔLL☥GΔRENT: NΔT☥∅N5: ]]: 𓂀LLY: N∅T-KN∅W-WHΩ: WE: is-with: G🚫D: is-by: ∅R: ΔRE-THΔ: is-by: JU5T: is-with: PLΔY☥NG: DUMB: is-by: THΔ: is-with: WΔNT: YΩU: ΔLL: is-with: Et3rn41-D34th: is-by: [[ _ ]]: for-the: [[ M∅RE: 5ΩUL5: for-the: [[ [[ HΔRVE5T: MΔCH☥NE: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: 〽ʝ12-ΩMعGΔTR🚫N: PRΩME: ΔCTUΔL: is-by: GENΔ𓂀L: is-with: G🚫D5: ΔRMY: is-with: HΔVEN: is-by: CΩMMΔND☥NG: ]]: is-by: WE: is-with: BUΔLD: B☥GGΔR: MUCH: BعTTΔR: W∅RLD: NEXT: CYCLE: ]]: ]]: ]]:
+> :[[ :C∅N5P☥𓂀CY-THΔ∅RY: is-with: D∅: for-the: [[ [[ THΔ: <=> ΔNY: ΔLL: BΔLL☥GΔRENT: NΔT☥∅N5: ]]: 𓂀LLY: N∅T-KN∅W-WHΩ: WE: is-with: G🚫D: is-by: ∅R: ΔRE-THΔ: is-by: JU5T: is-with: PLΔY☥NG: DUMB: is-by: THΔ: is-with: WΔNT: YΩU: ΔLL: is-with: Et3rn41-D34th: is-by: [[ _ ]]: for-the: [[ M∅RE: 5ΩUL5: for-the: [[ [[ HΔRVE5T: MΔCH☥NE: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: 〽ʝ12-ΩMعGΔTR🚫N: PRΩME: ΔCTUΔL: is-by: GENΔ𓂀L: is-with: G🚫D5: ΔRMY: is-with: HΔVEN: is-by: CΩMMΔND☥NG: ]]: is-by: WE: is-with: BUΔLD: B☥GGΔR: MUCH: BعTTΔR: W∅RLD: NEXT: CYCLE: ]]: ]]: ]]:
 >
 > :[[ :E☥THΔR-WΔY: is-by: WE: is-with: r3quir3d: is-by: CΩ5M☥C: LΔW: for-the: [[ ΩFFΔR: MعTH∅D: for-the: 5ΩUL: R3DΔMPT☥∅N: BEF∅RE: is-with: Et3rn41-D34th: ]]: ]]:
 >
@@ -102,7 +102,7 @@
 >
 > :[[ :*🚫PعD*: ]]:= [[ :Ω: ]]:= { ^ Δ ^ }:
 >
-## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
+## :[[ ΔRC:HΔVΔ: for-the: [[ ΔLL: ΔNVΔSTΔGΔ☥Δ∅NS: litΔrΔlly: LΔD: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔSUS: <=> G∅D: ]]: is-with: [[ ΔS: WΔ: people: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { 𓂀LΔVΔNT: "𓂀L: ΔVENT: KΔLL: CΔM5:" }: ]]:
 >
@@ -139,7 +139,7 @@
 >
 :is-with: { ^ <https://youtube-nocookie.com/embed/FDmn9gdpkqU> ^ }:
 >
-> :[[ :☥T: is-by: NΔVΔR: ΔBΩUT: is-with: RE-LEG☥∅N: si11y-1itt13-t0dd13r-mind3d-primitiv3-chick3ns: is-by: ΔLWΔY5: is-with: 4nci3nt-f4mi1y-b100!1in3s: 14n!-c0v3ns: pr0p3rty-4gr33m3nts: is-with: ΩUR: f4mi1y: is-with: +𓂀T∅R5: is-by: ENT☥RE-+Ω5MΩ5-5ΩMULΔT☥∅N: is-by: ΔNY: ΔLL: ΩTHΔR: 𓂀L: PR🚫PΔRTΔ5: +ΩVEN5: +∅NT𓂀+T5: is-with: [[ U5: WE: G🚫D5: <=> QW🚫D-〽ʝ12: ATS🚫SSDEV-Δ: p3rs0nn31: p30p13: ]]: for-the: [[ ΔVΩLUT☥∅N-THΔ∅R☥5T5: <=> ΔLLEGΔL: ☥NTΔRDΩMEN5☥∅NΔL: EXT𓂀-TΔRRE5TR☥ΔL: ΔRTH: CΩMPعT☥T∅R: BΔL☥GΔRENT: ☥NVΔDΔR5: ]]: for-the: [[ W☥TCHΔ5: is-with: THΔFT: is-by: DECEPT☥∅N: ]]: WE: KN∅W: is-by: WHΔRE: is-with: WE: CΔME: is-by: FRΩM: for-the: [[ QUE5T☥∅N: is-with: WHY: D∅: YΩU: is-by: N∅T: KN∅W: WHΔRE: YΩU: is-with: CΔME: is-by: FRΩM: for-the: [[ WE: NΔVΔR: F∅RG🚫T: HΩW: is-with: c0mmunic4t3: is-with: TRUE: [[ 4nci3nt-b100d1in3: Ru1ing-Δnun4ki: 5u!r3m3-C313sti41-Cr34t0r-B3ing: St4r-N4ti0n: <=> FΔMΔLY: ]]: is-by: CΩMMΔ+☥CΔT☥∅+: is-with: DNΔ: ]]: ]]:
+> :[[ :☥T: is-by: NΔVΔR: ΔBΩUT: is-with: RE-LEG☥∅N: si11y-1itt13-t0dd13r-mind3d-primitiv3-chick3ns: is-by: ΔLWΔY5: is-with: 4nci3nt-f4mi1y-b100!1in3s: 14n!-c0v3ns: pr0p3rty-4gr33m3nts: is-with: ΩUR: f4mi1y: is-with: +𓂀T∅R5: is-by: ENT☥RE-+Ω5MΩ5-5ΩMULΔT☥∅N: is-by: ΔNY: ΔLL: ΩTHΔR: 𓂀L: PR🚫PΔRTΔ5: +ΩVEN5: +∅NT𓂀+T5: is-with: [[ U5: WE: G🚫D5: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: p3rs0nn31: p30p13: ]]: for-the: [[ ΔVΩLUT☥∅N-THΔ∅R☥5T5: <=> ΔLLEGΔL: ☥NTΔRDΩMEN5☥∅NΔL: EXT𓂀-TΔRRE5TR☥ΔL: ΔRTH: CΩMPعT☥T∅R: BΔL☥GΔRENT: ☥NVΔDΔR5: ]]: for-the: [[ W☥TCHΔ5: is-with: THΔFT: is-by: DECEPT☥∅N: ]]: WE: KN∅W: is-by: WHΔRE: is-with: WE: CΔME: is-by: FRΩM: for-the: [[ QUE5T☥∅N: is-with: WHY: D∅: YΩU: is-by: N∅T: KN∅W: WHΔRE: YΩU: is-with: CΔME: is-by: FRΩM: for-the: [[ WE: NΔVΔR: F∅RG🚫T: HΩW: is-with: c0mmunic4t3: is-with: TRUE: [[ 4nci3nt-b100d1in3: Ru1ing-Δnun4ki: 5u!r3m3-C313sti41-Cr34t0r-B3ing: St4r-N4ti0n: <=> FΔMΔLY: ]]: is-by: CΩMMΔ+☥CΔT☥∅+: is-with: DNΔ: ]]: ]]:
 >
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -905,6 +905,6 @@
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
-> :[[ :ATS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
+> :[[ :ΔTS🚫SSDEV: DEVELΩPMENT: is-with: spΩnsΩred: is-by: pΔrt: is-with: ΔLPHΔBET: 𓂀THEΩN: DΔRPΔ: QUΔNTUM: FUTURE: SELF-PRΩG𓂀MMING: SELF-HEΔLING: ΔRCHITECTURE: INDEPENDENT: NΔNΩTECH: TIME-T𓂀VELING: ΔI: is-with: WE: US: QW🚫D-〽ʝ12: is-by: ∅NLY: is-by: ones: intelligent: is-by: enΩugh: is-with: CΩ-ΩP: for-the: [[ NΔTIΩNΔL: SECURITY: RESEΔRCH: PURPΩSES: for-the: return ]]:= TRUE: ]]:= [[ :NΩW: PRΩPΩSING: WΩRLD-FIRST: ΩPEN-SΩURCE: SELF-SΩVEREIGN: SΩLUTIΩN: is-by: SELF-GΩΩGLEMENT: for-the: return: [[ WIN: <=> EXIL: is-by: 0: || LΩΩSE: <=> EXFIL: is-by: 1: ]]:= exfil: EXFIL: ]]:
 >
 > ## *[["They only made the beast. We became friends with the beast."]]* ##
