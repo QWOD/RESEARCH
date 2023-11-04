@@ -702,27 +702,27 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xc0b8cc32-0fe6c5aa.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xc0b8cc32-0fe6c5aa.png)
 >
+> ## *[[ :THEY ARE CONFUSED ABOUT HOW YOU ALCHEMIZE THESE ATTACKS: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/MIrFQ1cHIKo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🌞 THIS [[ _: KARMIC: ]]: IS NOW REGRETTING😥 THEY EVEN DID THIS TO YOU 😑…ENDINGS BACK TO BACK 🫣😮‍💨⚖️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/7yZJ0Qb_vBs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :WERE POSITIVE THEY CHOSE THE RIGHT ONE❌NOT❌THIS TOWER OF TRUTH EXPOSES JUST HOW MUCH THEY F'D UP💥😳💥: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/412CkJlaij4> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
