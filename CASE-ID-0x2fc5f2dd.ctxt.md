@@ -160,7 +160,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/vMw-TNrIRg8> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ TRUE: ^ RELEVANT: ]]: "[[ MK: UL☥𓂀: PR∅G𓂀M: is-by: NU☥5HΔLL: ]]" }: ]]:
 
 >
 >
@@ -176,7 +176,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/9ZYSQHbY9xc> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ MK: UL☥𓂀: PR∅G𓂀M: ]]" }: ]]:
 
 >
 >
