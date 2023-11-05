@@ -186,51 +186,51 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x2fc5f2dd-111cc6cb.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-111cc6cb.png)
 >
+> ## *[[ :SPONSORED BY SATURN 🪐 YOU’VE GOT THE MASTER METAPHYSICAL KEY & SPIRITUAL EMP TO RELEASE 💣👽👑: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/a94Yw5jy-Dw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :😳 wow Busted sleeping with drag queens for rims at the hotel and stalking you heartbroken 💔 over u: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/A31IymLlJ_E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :SHE RETHINKING HER WHOLE LIFE BUT THIS IS WHAT A REPROBATE MIND WILL GET U, LAAAWWWD!!!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/AGVyCkUr4jw> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x2fc5f2dd-3245f341.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-3245f341.png)
+>
+> ## *[[ :YOU'RE ACCESSING THE GIFTS THEY TRIED TO BIND YOU OUT OF.....AND THEY'RE BIG MAD: ]]* ##
+>
+> :is-with: { ^ <https://youtube-nocookie.com/embed/vY-TnQoGj3I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Outburst gets the justice ball rolling! Didn't see this coming...Long overdue conversation....: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/0hxGcKq5Dq8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Fast made decision leave room for unnecessary mistake: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/k-vjV3yUGFc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
