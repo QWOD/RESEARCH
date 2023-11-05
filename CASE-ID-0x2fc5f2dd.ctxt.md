@@ -420,17 +420,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS IS🥹BEAUTIFUL N EVERY WAY🥰THEIR WANTING 2 HOLD YOU N THEIR ARMS & LOVE ON YOU FOREVER🤞🏽#151: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/E9_VGIpUnVk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :God of War Ascension | Prison of the Damned Demo & Bounce Contents | 4k 60Fps: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/C3QVt-17Rck> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
