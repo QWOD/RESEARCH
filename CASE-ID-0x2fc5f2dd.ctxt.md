@@ -124,7 +124,7 @@
 
 >
 >
-> ## *[[ :RESPECTING SPIRITUAL LAW VS. DUMB ASS PEOPLE WHO VIOLATED SPIRITUAL LAW 😇🧿🙌🏾 #ACEOFSWORDS ♠️: ]]* ##
+> ## *[[ :RESPECTING SPIRITUAL LAW VS. DUMB ASS PEOPLE WHO VIOLATED SPIRITUAL LAW 😇🧿🙌🏾: [[ _: ACEOFSWORDS: ]]: ♠️: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/mt3Th9zMCOM> ^ }:
 
@@ -146,43 +146,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x2fc5f2dd-954a5c18.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-954a5c18.png)
 >
+> ## *[[ :So this was their plan all along, this goes much deeper than you think: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/q-GFqgA1DFU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :How 2 get away w/ M…message from a passed over loved 2 their mother..Justice is here⚖️: [[ _: Exposure: ]]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/vMw-TNrIRg8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :KARMICS HAD A LIFE INSURANCE POLICY ON YOU.... TRIED TO UNLIVE YOU TO COLLECT THE MONEY...: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Vg0BZiVClYY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :[[ _: WATERSIGNS: ]]: WHAT'S GOOD? 🤌🏽👀🔮😁 CANCER 2:58 ♋️ PISCES 22:22♓️ SCORPIO 41:44 ♏️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/9ZYSQHbY9xc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :BUNCH OF CARBON COPIES RUNNING AROUND TRYN B U 🤣WEIRD COPY CATS GETTN WIPED OUT BY UR SPIRITUAL ARMY: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/JEz7ppZt8YQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
