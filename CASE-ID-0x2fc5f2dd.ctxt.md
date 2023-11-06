@@ -436,9 +436,9 @@
 
 >
 >
-> ## *[[ :November 15th it will happen! Mark your calendars..: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/GtJh7KS4GH4> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
