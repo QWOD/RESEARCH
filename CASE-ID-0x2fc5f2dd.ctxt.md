@@ -434,35 +434,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x2fc5f2dd-28e52ec3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-28e52ec3.png)
 >
+> ## *[[ :UNDERESTIMATING U WAS THE BIGGEST MISTAKE EVER UR A FORCE TO BE RECKON WITH BIG PRESSURE💪🏾🔥💅🏾: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/DusyCAg8qWU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Family Ties Restricting A Twin Flame Connection 🧿❤️🙏🏽: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/wNAdjJgCSnY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS DECEPTION WAS SO WICKED & YOU NEVER DESERVED THIS 💔STILL YOU RISE TO THE TOP HIGH PRIESTESS 👑: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Roip1zg1_3Q> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOU’RE ABOUT TO GET YOUR LICK BACK AGAINST THIS WICKED PERSON 🕷️🕸️🖤: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/hu4DaJ2AwAQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
