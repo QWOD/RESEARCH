@@ -10,7 +10,6 @@ networkWaitInterval=15
 updateCheckInterval=333
 pushRepo=false
 localPath=/home/hyperuser/hyperstor
-errorLog="${localPath}/error_log-$(date '+%Y-%m-%d')".txt
 # Intended to be run over ssh as "backup mirror" repo.
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
@@ -18,8 +17,8 @@ errorLog="${localPath}/error_log-$(date '+%Y-%m-%d')".txt
 if [[ $* == "stop" ]]; then
   # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
   if [[ "${pushRepo}" == true ]]; then
-    (ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
-    if ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
+    (ssh -o "StrictHostKeyChecking no" -T git@github.com)
+    if ${localPath}/bin/gitupur push; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     else
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -27,8 +26,8 @@ if [[ $* == "stop" ]]; then
   fi
   # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
   if [[ "${pushRepo}" == false ]]; then
-    (ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
-    if ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
+    (ssh -o "StrictHostKeyChecking no" -T git@github.com)
+    if ${localPath}/bin/gitupur pull; then
       echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     else
       echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -39,17 +38,17 @@ fi
 
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
-  (ssh -o 'StrictHostKeyChecking no' -T git@github.com &>/dev/null)
+  (ssh -o 'StrictHostKeyChecking no' -T git@github.com)
   while true; do
     if [[ "${pushRepo}" == true ]]; then
-      if ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
+      if ${localPath}/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ push ^ }: BRANCH-OPERATION: FAILED: ]]:'
       fi
     fi
     if [[ "${pushRepo}" == false ]]; then
-      if ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
+      if ${localPath}/bin/gitupur pull; then
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
