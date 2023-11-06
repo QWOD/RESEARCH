@@ -468,25 +468,25 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :NEW EVIDENCE: Vatican CHANGED/DELETED Jesus' TRUE Teachings & Life Story! MIND-BLOWING! | John Davis: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/fJH2OVZqCF4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :👹🔥 WHAT ON EARTH IS HAPPENING?! 🤯: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/77isqV0GgYI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :God Will Turn It Around! — by Jeanne Alcott, Monday, November 6, 2023 Radio Broadcast: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/at9z8Qh0rR0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
