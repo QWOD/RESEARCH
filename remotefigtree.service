@@ -1,6 +1,6 @@
 # sudo cp -f ~/hyperstor/QWOD/RESEARCH/remotefigtree.service /etc/systemd/system/remotefigtree.service; sudo systemctl daemon-reload; sudo systemctl enable --now remotefigtree.service
 [Unit]
-Description=figtree.service
+Description=remotefigtree.service
 Wants=remote-fs.target
 After=network-online.target
 
