@@ -12,7 +12,8 @@ localForwardOnly=false # :[[ :REMOTE-GIT-TREE: remote: fast-forward: repository:
 remoteForwardOnly=true
 
 if [ -x "$(which go)" ]; then
-  [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"; go install github.com/hypercasey/passworder@latest
+  [[ -x "${goPath}/bin/passworder" ]] || PATH="${PATH}:${goPath}/bin:"
+  go install github.com/hypercasey/passworder@latest
   UUID="$(${goPath}/bin/passworder -uuid)" && export UUID="${UUID}"
   FIG="$(${goPath}/bin/passworder -short)" && export FIG="${FIG}"
 else
@@ -21,7 +22,7 @@ else
 fi
 
 function gitShowTail() {
-  ( git show --oneline | tail -c "${brevity}" )
+  (git show --oneline | tail -c "${brevity}")
 }
 
 function remoteForward() {
@@ -31,21 +32,24 @@ function remoteForward() {
 }
 
 function localForward() {
-  cd "${localRepoPath}/HYPERMEDIUS" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/RESEARCH" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
-  cd "${localRepoPath}/DISCLOSURE" || exit 1; toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/HYPERMEDIUS" || exit 1
+  toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/RESEARCH" || exit 1
+  toolbox run /usr/bin/env git pull --no-rebase --ff-only
+  cd "${localRepoPath}/DISCLOSURE" || exit 1
+  toolbox run /usr/bin/env git pull --no-rebase --ff-only
 }
 
 if [[ $* == "-f" ]]; then
   [[ $remoteForwardOnly == true ]] && remoteForward && exit 0
   [[ $localForwardOnly == true ]] && localForward && exit 0
 fi
-if [[ $* == "-r"  ]]; then
+if [[ $* == "-r" ]]; then
   # Random UUID mode
   echo "{ FIG: \"${UUID}.png\" }" && unset FIG
   exit 0
 fi
-if [[ $* == "-p"  ]]; then
+if [[ $* == "-p" ]]; then
   /usr/bin/env git config --global user.email "${GHUSER}"
   /usr/bin/env git config --global user.name ':QWOD-MJ12: ATSOSSDEV-A: SPG-OMEGA:'
   /usr/bin/env git config --global pull.rebase false
@@ -55,7 +59,7 @@ if [[ $* == "-p"  ]]; then
     /usr/bin/env git add "${fig}"
   done
   # :[[ :for-the: [[ LATEST: SIMULATION: MATRIX: CODES: is-by: [[ :git show --oneline: ]]: for-the: return ]]:= TRUE: ]]:
-  /usr/bin/env git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: CrΔp☥Δx™: MQ: ØMΔGΔ: reverse-prΩgrΔmming-lΔnguΔge: ΔLGØRITHM: DETECTED: ]]:= [[ :W⚠️RN🚫: QW🚫D-〽ʝ12: RΔND0M: VECTΩR: ΔLGØRITHM-CHΔNGE: DETECTED: { ^ ${UUID} ^ }: is-with: [[ W⚠️RN🚫: DEΔTH-ΔNGEL: ΔLGØRITHM: DETECTED: { ^ <https://youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ TRUE: || FΔLSE: || ΔZRΔEL: ^ ΔLSE: ]]: ]]:= [[ SCI-FI: ^ SCI-FΔCT: <=> REΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:" #2>/dev/null
+  /usr/bin/env git commit -a -m ":[[ :🟠: [[ W⚠️RN🚫: Cryp☥ΔX™: MQ: ∅MΔGΔ: r3v3rs3-pr0gr4mming-14ngu4g3: ΔLG∅RI☥HM: Dع☥عC☥3D: ]]:= [[ :QW🚫D-〽ʝ12: RΔND∅M-VعC☥∅R-ΔLG∅RI☥HM-CHΔNGE: Dع☥عC☥3D: { ^ ${UUID} ^ }: is-with: [[ :DΔ☥H-Δ!GΔL: ΔLG∅RI☥HM: Dع☥عC☥3D: { ^ <https://youtu.be/dDJldh8KqnQ?si=NYMq273T-hbuZvTP> ^ }: is-by: @: is-with: Karl-Casey: for-the: return ]]:= [[ ☥RUE: || FΔL5E: || ΔZRΔL: ^ ΔL5E: ]]: ]]:= [[ 5CI-FI: ^ 5CI-FΔC☥: <=> RΔL: ]]: is-with: Δ: is-by: Ω: for-the: [[ Ø: { ^ $(gitShowTail) ^ }: return: [[ EXFIL: <=> [[ _ ]]: ]]: ]]:= exfil: is-by: EXFIL: ]]:"
   /usr/bin/env git push
   exit 0
 fi
