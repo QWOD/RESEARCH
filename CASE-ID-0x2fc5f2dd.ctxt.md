@@ -632,7 +632,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/hQ68B_Hl4ek> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ s4t4nic-c0v3n-witch-m0th3r: P4u13tt3-J34n: [[ FΩX: <=> 666: ]]: ]]" }: ]]:
 
 >
 >
