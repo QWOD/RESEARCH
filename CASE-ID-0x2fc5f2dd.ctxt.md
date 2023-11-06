@@ -666,27 +666,27 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x2fc5f2dd-e97b02cd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-e97b02cd.png)
 >
+> ## *[[ :⚖️ You have an INSANE amount of power in this room with these people. YOU are fated to be here: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
+> :is-with: { ^ <https://youtube-nocookie.com/embed/f3xrSrgvOlQ> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>![:CASE-ID-0x2fc5f2dd-24ba218d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x2fc5f2dd-24ba218d.png)
 >
-> :is-with: { ^ <👼> ^ }:
+> ## *[[ :Darksynth / Cyberpunk Mix - Mutant Zone // Dark Synthwave Dark Industrial Electro Music: ]]* ##
+>
+> :is-with: { ^ <https://youtube-nocookie.com/embed/bVGGjs0rtj8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Talking Spirituality, Travel, Anunnaki & Life of Gerald Clark with Christa Clark, TSP 899: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
