@@ -44,51 +44,51 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0xd8169e9e-33b17fd7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-33b17fd7.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :KARMIC EX LOVER GOING TO GET ARRESTED ⛓️🔗FOR EXPOSING YOU ON VIDEO CAMERA 📹 S3X TAPE! DARK WEB!: ]]:= { ^ <https://youtube-nocookie.com/embed/feM-ts1zVfc> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :SENDING IN INFORMANTS TO PROVOKE U CAUSE THEY CAN'T STOP U🖕🏾💪🏾: ]]:= { ^ <https://youtube-nocookie.com/embed/z2570bQ9YQE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :The 4 Elements of Alchemy Presentation, Zodiac, Yin/Yang - Ellen King, TSP 898: ]]:= { ^ <https://youtube-nocookie.com/embed/3h3i0seExEE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Canticle of Canticles - Bedtime Scripture Series; soothing; restful; cleansing, healing: ]]:= { ^ <https://youtube-nocookie.com/embed/5spdHta651A> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THIS KARMIC COUPLE THINK THEY SLICK!! THIS IS DESPERATEEE ASFFFFF…: ]]:= { ^ <https://youtube-nocookie.com/embed/Z1fYLZmNKVE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :BUNKER: PROJECT 12 | Full Action Sci-Fi Movie | James Cosmo, Eric Roberts, Natasha Alam: ]]:= { ^ <https://youtube-nocookie.com/embed/LGE-EV17KQE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
