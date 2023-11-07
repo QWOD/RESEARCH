@@ -10,7 +10,6 @@ pushRepo=true
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
 localPath=/var/home/hyperuser
-errorLog="${localPath}/QWOD/error_log-$(date '+%Y-%m-%d')".txt
 # Intended to be run from a toolbox container ^ over ssh
 # to work around systemd's lack of support for ssh-agent
 # as a backup mirror repo.
@@ -21,7 +20,7 @@ if [[ $* == "stop" ]]; then
   # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
   if [[ "${pushRepo}" == true ]]; then
     (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
-    if toolbox run -y ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
+    if toolbox run -y ${localPath}/bin/gitupur push; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     else
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -30,7 +29,7 @@ if [[ $* == "stop" ]]; then
   # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
   if [[ "${pushRepo}" == false ]]; then
     (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
-    if toolbox run -y ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
+    if toolbox run -y ${localPath}/bin/gitupur pull; then
       echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
     else
       echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
@@ -44,14 +43,14 @@ if [[ $* == "start" ]]; then
   (toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com &>/dev/null)
   while true; do
     if [[ "${pushRepo}" == true ]]; then
-      if ${localPath}/bin/gitupur push 2>>"${errorLog}"; then
+      if ${localPath}/bin/gitupur push; then
         echo -E ':[[ :{ ^ gitupur push ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ push ^ }: BRANCH-OPERATION: FAILED: ]]:'
       fi
     fi
     if [[ "${pushRepo}" == false ]]; then
-      if ${localPath}/bin/gitupur pull 2>>"${errorLog}"; then
+      if ${localPath}/bin/gitupur pull; then
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: COMPLETE: ]]:'
       else
         echo -E ':[[ :{ ^ gitupur pull ^ }: BRANCH-OPERATION: FAILED: ]]:'
