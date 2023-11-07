@@ -188,9 +188,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Starlink’s newest competitor is using next-gen satellites to create internet for all | Hard Reset: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/UKoelA_Mt3A> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
