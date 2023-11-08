@@ -368,7 +368,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/JkwF-Q7eT_o> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-97c925154b3f78dcdfe0787599d12eed76022a0d> ^ }: ]]:= { TRUE: "[[ p4g4n-witch-c0🕳️3n: ]]" }: ]]:
 
 >
 >
