@@ -355,6 +355,10 @@
 >![:CASE-ID-0xd8169e9e-799f5880.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-799f5880.png)
 >
 > :is-with: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/> ^ }:
+>
+> ## *[[ :The Invasion of Eden: ]]* ##
+>
+> :is-with: { ^ <https://youtube-nocookie.com/embed/obK1RvvqPp0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
