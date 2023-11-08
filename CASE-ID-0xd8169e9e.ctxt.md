@@ -242,59 +242,59 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd8169e9e-0cfb3129.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-0cfb3129.png)
 >
+> ## *[[ :KARMA WORKS IN MANY DIFFERENT WAYS..: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Jxor8fepz9c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THEY FAILED TO DELIVER WHAT WAS REQUIRED TO COMPLETE A “RITE OF PASSAGE”…..CAN’T TOUCH THIS 💃🏾🕺🏿: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/EKlyuN8BH04> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :UFO/HIGH STRANGENESS EVIDENCE - PRISCILLA CATHERINE LAPIERRE, TSP 900: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/p25nM1r6mLA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🍺🤬THIS WAS THE LAST STRAW! DRUNK/DRUGGED,DELUSIONAL,&DEVILISH! THEY GONE TOO FAR! TRUE COLORS SHOWN👹: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/789K2WaxT_U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :HOW to KNOW your PURPOSE and CALLING - Mel Rentmeister: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/E3XhCNdlZZM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Mundell-Fleming Lecture: The Costs and Consequences of Sovereign Borrowing: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Ji_AY9uFSYk> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ 5☥∅RY: is-with: QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔ☥R🚫N: t4ctic41-w4rf4r3-unit: ☥RUE: 1if3-st0ry: is-by: F0rg0tt3n-Exp3rim3nt: ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Forgotten Experiment: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/HQlCVTwVr8I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
