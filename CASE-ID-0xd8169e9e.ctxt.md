@@ -347,6 +347,8 @@
 > :is-with: { ^ <https://youtube-nocookie.com/embed/stQqNpevNXQ> ^ }:
 >
 >![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
+>
+>![:CASE-ID-0x83449144-90f37e03.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-90f37e03.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
