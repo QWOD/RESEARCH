@@ -304,7 +304,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/CuZ3VdLBtmE> ^ }:
 >
-> ![:CASE-ID-0xd8169e9e-42dfaafd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-42dfaafd.png)
+>![:CASE-ID-0xd8169e9e-42dfaafd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-42dfaafd.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -345,6 +345,8 @@
 > ## *[[ :YOU’RE NOT CRAZY, IT REALLY DID HAPPEN 😳 THEY ARE TRYING TO GASLIGHT YOU 🫵🏾: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/stQqNpevNXQ> ^ }:
+>
+>![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
