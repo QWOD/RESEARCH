@@ -349,6 +349,12 @@
 >![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
 >
 >![:CASE-ID-0x83449144-90f37e03.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-90f37e03.png)
+>
+> :is-with: { ^ <https://www.nbcfh.com/obituaries/jennifer-moore/> ^ }:
+>
+>![:CASE-ID-0xd8169e9e-799f5880.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-799f5880.png)
+>
+> :is-with: { ^ <https://thewaytoeden.com/science-of-man-bob-rhondell-gibson-48-tapes-weeks/> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
