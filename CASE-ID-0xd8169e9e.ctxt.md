@@ -298,43 +298,45 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd8169e9e-0e9a0aad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-0e9a0aad.png)
 >
+> ## *[[ :No amount of money n the world can amount 2 the amount of favor over ur life..True Alchemist💫🤯: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
+> :is-with: { ^ <https://youtube-nocookie.com/embed/CuZ3VdLBtmE> ^ }:
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> ![:CASE-ID-0xd8169e9e-42dfaafd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-42dfaafd.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Bleedthrough - A Story of Aliens, Demons and Pure Evil in Texas - Pat O' Connell - TSP 901: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Is this a MIND CONTROL WEAPON?!? Here is what I found....: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/9P2LQnH7evE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :GOD JUST WANTED U 2 FULLY DEPEND ON HIM✝️ NOW YOU’RE BEING BLESSED X999😱🎁: [[ _: god: ]]: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/o3j_KGncFx0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THESE SCAMMERS GOT QUITE CREATIVE & NOW THEY'RE ALL GOING TO JAIL AND HELL🧿ITS AN EPIC FAIL 🚫💰: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/ZdW0O955NRE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
