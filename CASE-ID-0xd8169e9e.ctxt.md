@@ -314,7 +314,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ ΩNΔCKN∅WL3DG3D: w34p0ns-fi31d-t3chn010gy-t3st: ]]" }: ]]:
 
 >
 >
