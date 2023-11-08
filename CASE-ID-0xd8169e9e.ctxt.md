@@ -338,13 +338,13 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/ZdW0O955NRE> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ ΔBΩVE-☥🚫P-5عCRع☥: N☥KΩ: i113g41: MK: UL☥𓂀: PR∅G𓂀M: ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOU’RE NOT CRAZY, IT REALLY DID HAPPEN 😳 THEY ARE TRYING TO GASLIGHT YOU 🫵🏾: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/stQqNpevNXQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
