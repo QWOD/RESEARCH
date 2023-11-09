@@ -612,41 +612,41 @@
 
 >![:CASE-ID-0xd8169e9e-22185893.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-22185893.png)
 >
-> ## *[[ :: ]]* ##
+> ## *[[ :GOD USED U 2 SHOW PPL A HIGHER POWER DOES EXIST UR THE CATALYST TO PPL AWAKENING#POWERFUL TEACHER: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/B8IY9w8LJ-Q> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THEY DONT WANT TO HEAR ABOUT YOUR SUCCESS KARMA IS STILL HERE FOR THEM .: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/D98j6xGWLJw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOU MADE THE RIGHT MOVE TIME TO CELEBRATE A MAJOR WIN 🎉✨&KARMIC GOING THROUGH LOSS TRIES TO RETURN: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/25ukxTuwKQ8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :URGENT‼️THEY ARE NOT PREPARED FOR THIS BACKFIREEEE WOW: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/3ln6U8zbRFA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :DONT BE SCARED NOW! THEY SHOULDA THOUGHT TWICE BEFORE CROSSIN U…: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Zr6AHBOEkUU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
