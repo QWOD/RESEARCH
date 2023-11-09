@@ -596,17 +596,17 @@
 
 >
 >
-> ## *[[ :: ]]* ##
+> ## *[[ :MAAT MeduNeter is live!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/ReFohwiwuFU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THEY’RE IN DEBT TO YOU. THEY OWE YOU ALOT FOR PLAYING THESE MIND GAMES: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/DD96qdEoDxc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
