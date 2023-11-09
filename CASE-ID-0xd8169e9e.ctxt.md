@@ -458,51 +458,51 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd8169e9e-d5cb8680.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-d5cb8680.png)
 >
+> ## *[[ :UR TRULY CONNECTED 2 POWERFUL UNIVERSAL FORCES UR SUPERNATURAL GIFTS N FAVOR SCARES TF OUT OF PPL🔮🧿💫: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/XYwiqNXz-8s> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Tartaria And The Underworld | Sacred Wisdom Podcast: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/szZyn-trdwg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOU ARE LIVING PROOF THAT MIRACLES EXIST 🌈✨: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/vqp-xcwugWc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🔴Unbelievable Destruction in Europe After Storm Ciarán!🔴 World's Disasters on November 1-3, 2023: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/8Crd1VCfdyU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :DMT and St. Peter: The Anubis Post Death Vibe Check -Science of Hallucinogens/Stoned Ape Theory/dmt: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Uv46X8tcjB8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :PEOPLE WROTE SPIRITUAL CHECKS THAT THEIR ASSES CAN'T CASH 😒 IN AWE OF BEING SPIRITUALLY BROKE 🤔😴👀: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/9vPQA8i0ggY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
