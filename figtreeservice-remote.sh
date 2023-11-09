@@ -11,11 +11,12 @@ updateCheckInterval=333
 pushRepo=false
 localPath=/home/hyperuser/hyperstor
 # Intended to be run over ssh as "backup mirror" repo.
+
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
+  # :[[ MASTER-REPO: FRONTLINE-PUBLISHING-SERVICE: ]]:
   if [[ "${pushRepo}" == true ]]; then
     (ssh -o "StrictHostKeyChecking no" -T git@github.com)
     if ${localPath}/bin/gitupur push; then
@@ -24,7 +25,7 @@ if [[ $* == "stop" ]]; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
   fi
-  # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
+  # :[[ REMOTE-MIRROR: REPO-BACKUP-SERVICE: ]]:
   if [[ "${pushRepo}" == false ]]; then
     (ssh -o "StrictHostKeyChecking no" -T git@github.com)
     if ${localPath}/bin/gitupur pull; then
@@ -35,7 +36,7 @@ if [[ $* == "stop" ]]; then
   fi
   exit 0
 fi
-
+# :[[ ssh: git@github: key-test: is-by: FAIL: is-with: [[ _ ]]: is-with: ssh: is-by: finiky: is-with: make-sure-keys-work: ]]:
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
   (ssh -o 'StrictHostKeyChecking no' -T git@github.com)
