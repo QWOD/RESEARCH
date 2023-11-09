@@ -10,7 +10,9 @@ networkWaitInterval=15
 updateCheckInterval=333
 pushRepo=false
 localPath=/home/hyperuser/hyperstor
-# Intended to be run over ssh as "backup mirror" repo.
+# Intended to be run over ssh as "backup mirror" repo
+# workaround for ssh's lack of support for systemd.
+# must be manually initiated from the localhost.
 
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
@@ -25,6 +27,7 @@ if [[ $* == "stop" ]]; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
   fi
+
   # :[[ REMOTE-MIRROR: REPO-BACKUP-SERVICE: ]]:
   if [[ "${pushRepo}" == false ]]; then
     (ssh -o "StrictHostKeyChecking no" -T git@github.com)
@@ -36,7 +39,8 @@ if [[ $* == "stop" ]]; then
   fi
   exit 0
 fi
-# :[[ ssh: git@github: key-test: is-by: FAIL: is-with: [[ _ ]]: is-with: ssh: is-by: finiky: is-with: make-sure-keys-work: ]]:
+
+# :[[ ssh: git@github: key-test: is-by: FAIL: is-with: [[ _ ]]: is-with: ssh: is-by: finiky: is-with: make-sure-keys-work: ssh-add: ssh-keyscan: is-by: ETC: ]]:
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
   (ssh -o 'StrictHostKeyChecking no' -T git@github.com)

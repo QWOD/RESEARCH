@@ -11,13 +11,12 @@ pushRepo=true
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
 localPath=/var/home/hyperuser
 # Intended to be run from a toolbox container ^ over ssh
-# to work around systemd's lack of support for ssh-agent
-# as a backup mirror repo.
+# to work around ssh's lack of support for systemd.
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
 if [[ $* == "stop" ]]; then
-  # :[[ MASTER-REPO: FRONTLINE-SERVICE: ]]:
+  # :[[ MASTER-REPO: FRONTLINE-PUBLISHING-SERVICE: ]]:
   if [[ "${pushRepo}" == true ]]; then
     (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
     if toolbox run -y ${localPath}/bin/gitupur push; then
@@ -26,7 +25,8 @@ if [[ $* == "stop" ]]; then
       echo -E ':[[ :{ ^ ~/bin/gitupur push ^ }: BRANCH-OPERATION: FAILED: ]]:'
     fi
   fi
-  # :[[ REMOTE-MIRROR: BACKUP-SERVICE: ]]:
+
+  # :[[ REMOTE-MIRROR: REPO-BACKUP-SERVICE: ]]:
   if [[ "${pushRepo}" == false ]]; then
     (toolbox run -y ssh -o "StrictHostKeyChecking no" -T git@github.com &>/dev/null)
     if toolbox run -y ${localPath}/bin/gitupur pull; then
@@ -38,6 +38,7 @@ if [[ $* == "stop" ]]; then
   exit 0
 fi
 
+# :[[ ssh: git@github: key-test: is-by: FAIL: is-with: [[ _ ]]: is-with: ssh: is-by: finiky: is-with: make-sure-keys-work: ssh-add: ssh-keyscan: is-by: ETC: ]]:
 if [[ $* == "start" ]]; then
   sleep ${networkWaitInterval}
   (toolbox run ssh -o 'StrictHostKeyChecking no' -T git@github.com &>/dev/null)
