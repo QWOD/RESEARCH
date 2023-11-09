@@ -610,9 +610,9 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd8169e9e-22185893.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-22185893.png)
 >
->
-> ## *[[ :👽: ]]* ##
+> ## *[[ :: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
 
