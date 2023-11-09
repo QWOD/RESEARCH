@@ -12,6 +12,11 @@ pushRepo=true
 localPath=/var/home/hyperuser
 # Intended to be run from a toolbox container ^ over ssh
 # to work around ssh's lack of support for systemd.
+# Works when run by systemd on localost.
+# Also can be run locally from the command line.
+# Local systemd service is a full auto GitHub
+# implimentation of the figtreeservice.sh.
+
 [[ $* == "" ]] && exit 0
 [[ $* == "start" || $* == "stop" ]] || echo -E '[[ "USAGE: requires: either: [[ start: || stop: ]]" ]]:' || exit 0
 
