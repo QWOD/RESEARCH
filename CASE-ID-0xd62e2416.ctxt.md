@@ -116,9 +116,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Mundell-Fleming Lecture: The Costs and Consequences of Sovereign Borrowing: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/Ji_AY9uFSYk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
