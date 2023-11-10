@@ -58,25 +58,25 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Why So Many US Companies Are Going Bankrupt: ]]:= { ^ <https://youyoutube-nocookie.com/embed/NiT7sxvRBlA> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Why So Many US Companies Are Going Bankrupt: ]]:= { ^ <https://youtube-nocookie.com/embed/NiT7sxvRBlA> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 U.S. National Deficit EXPLODES Nearly TRIPLING In Nine Months Of 2023: ]]:= { ^ <https://youyoutube-nocookie.com/embed/_QLUvqIsF5o> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 U.S. National Deficit EXPLODES Nearly TRIPLING In Nine Months Of 2023: ]]:= { ^ <https://youtube-nocookie.com/embed/_QLUvqIsF5o> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :The US Economy Just Got Worse: Interest Rates Frozen, Massive Debt, & Layoffs: ]]:= { ^ <https://youtube-nocookie.com/embed/NhtW9Kg4sJg> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Reversing the Erosion of U.S. and Allied Military Power and Influence: ]]:= { ^ <https://youtube-nocookie.com/embed/zUK9e1fECUk> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
