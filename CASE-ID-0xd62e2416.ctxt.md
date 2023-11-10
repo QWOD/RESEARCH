@@ -82,13 +82,13 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 The Latest Recession Probability Jumps To 90% Following Fed Data Release: ]]:= { ^ <https://youtube-nocookie.com/embed/wfjPx9Wp9KM> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 TOTAL COLLAPSE: Germany's FAILING Economy Drives E.U.'s Economic Crash: ]]:= { ^ <https://youtube-nocookie.com/embed/yNwz3PK4Qcc> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
