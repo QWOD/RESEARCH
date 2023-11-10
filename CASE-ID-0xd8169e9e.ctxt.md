@@ -704,7 +704,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/tyrgIo6WeCQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-230ab48c0ae1ec7ba695f7d8db35f8e52e2c9b1a> ^ }: ]]:= { FALSE: "[[ 🔺r0viding-zer-point-energy: is-by: SAFE: is-with: 🔺0w3r-c0m🔺4ni3s: w0u1d-sim🔺1y-r3nt-fr33-3n3rgy-d3vic3s: is-by: 1ik3: is-with: c4b13-m0d3m: is-by: inst34d: is-with: d3str0ying-34rth-f0r-3v3ry0n3: ]]" }: ]]:
 
 >![:CASE-ID-0xd8169e9e-63ccbf2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-63ccbf2a.png)
 >
