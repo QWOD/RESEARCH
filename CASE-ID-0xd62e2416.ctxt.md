@@ -132,9 +132,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Solar Surprise: The Sun's magnetic poles will flip earlier than expected: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/2kmqESB4_hg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
