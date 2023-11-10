@@ -706,7 +706,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0xd8169e9e-63ccbf2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-63ccbf2a.png)
 >
 > ## *[[ :👽: ]]* ##
 >
