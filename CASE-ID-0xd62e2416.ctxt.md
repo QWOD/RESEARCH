@@ -94,13 +94,13 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 MOVING FAST: China Sells $21 BILLION In U.S. Treasuries, The Largest Drop In 4 Years: ]]:= { ^ <https://youtube-nocookie.com/embed/yuv_BYf5X98> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 The U.S. Dollar Dominance Is On Rocky Ground As The Global Majority Aligns With BRICS: ]]:= { ^ <https://youtube-nocookie.com/embed/MLUGJdQ5RAo> ^ }:
 >
 > ## **:[[ ΔRC: HIVE: for-the: [[ ΔLL: inv3stig4ti0ns-134@: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔ5U5: <=> G∅D: ]]: is-with: [[ U5: WΔ: p30p13: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
@@ -108,9 +108,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Greatest Financial Loss in World History, Millions Will Be Devastated: G. Edward Griffin: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/bzNV4LnX4I0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
