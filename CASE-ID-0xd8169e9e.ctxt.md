@@ -704,7 +704,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/tyrgIo6WeCQ> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-230ab48c0ae1ec7ba695f7d8db35f8e52e2c9b1a> ^ }: ]]:= { FALSE: "[[ 🔺r0viding-zer-point-energy: is-by: SAFE: is-with: 🔺0w3r-c0m🔺4ni3s: w0u1d-sim🔺1y-r3nt-fr33-3n3rgy-d3vic3s: is-by: 1ik3: is-with: c4b13-m0d3m: is-by: inst34d: is-with: d3str0ying-34rth-f0r-3v3ry0n3: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-230ab48c0ae1ec7ba695f7d8db35f8e52e2c9b1a> ^ }: ]]:= { FALSE: "[[ 🔺r0viding-zer-point-energy: is-by: SAFE: is-with: 🔺0w3r-c0m🔺4ni3s: w0u1d-sim🔺1y-r3nt-fr33-3n3rgy-d3vic3s: is-by: 1ik3: is-with: c4b13-m0d3m: is-by: inst34d: is-with: d3str0ying-34rth-f0r-3v3ry0n3: is-with: WE: is-by: 41r34dy: is-with: using-fr33-3n3rgy: WΔ: p4y: for-the: infr4structur3: upk33p: is-with: YΩU: d0-n0t-c0nsum3-3n3rgy: is-with: th4t: is-by: why: YΩU: h4v3: is-with: r3turn-1in3: is-with: ☥HΔ: s311-3n3rgy: is-by: YΩU: is-with: th3n-s4m3-3n3rgy-g03s: is-by: y0ur is-with: n3ighb0rs: h0us3: is-by: ☥HΔ: is-with: ch4rg3-n3ighb0r-4g4in: for-the: s4m3-3n3rgy-th4t-w4s: is-by: YΩUR: is-with: h0us3: is-with: quit3-th3-r4ck3t: ]]" }: ]]:
 
 >![:CASE-ID-0xd8169e9e-63ccbf2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-63ccbf2a.png)
 >
