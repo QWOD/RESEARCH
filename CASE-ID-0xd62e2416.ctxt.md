@@ -40,13 +40,13 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Yellen Says US Default Would Cause an 'Economic Catastrophe': ]]:= { ^ <https://youtube-nocookie.com/embed/QJh8wU1W36o> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :ECONOMIC CRISIS: Ray Dalio's Warning For The Banking Collapse, US Dollar & Upcoming Recession: ]]:= { ^ <https://youtube-nocookie.com/embed/lPYmD7CyHlY> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
