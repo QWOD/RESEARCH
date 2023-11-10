@@ -72,7 +72,7 @@
 >
 > :[[ :*🚫PعD*: ]]:= [[ :The US Economy Just Got Worse: Interest Rates Frozen, Massive Debt, & Layoffs: ]]:= { ^ <https://youtube-nocookie.com/embed/NhtW9Kg4sJg> ^ }:
 >
-> :[[ :for-the: [[ Ø: { ^ <qomm-25d67f0c1c0781383fe11bbba85caa485e0570a0> ^ }: ]]:= { RELEVANT: "[[ inv3st-in-pr0p3r-4m3ric4n-3duc4ti0n-syst3ms ]]" }: ]]:
+> :[[ :for-the: [[ Ø: { ^ <qomm-25d67f0c1c0781383fe11bbba85caa485e0570a0> ^ }: ]]:= { RELEVANT: "[[ :inv3st-in-pr0p3r-4m3ric4n-3duc4ti0n-syst3ms: ]]" }: ]]:
 >
 >
 >
