@@ -124,9 +124,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Brutal footage of hailstorm in Queensland, Australia..!! Severe storm, 45,000 lightning strikes: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/DX-QAIU-d3Y> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
