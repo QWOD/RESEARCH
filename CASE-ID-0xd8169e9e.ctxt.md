@@ -682,17 +682,17 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd8169e9e-2bc7cd7e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-2bc7cd7e.png)
 >
+> ## *[[ :A LEGEND IS BORN!! A REAL LION OF GOD CANNOT BE STOPPED!! THIS IS THE LIFE OF TRUE SOUL ACHIEVEMENT: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/eGHygK_9-J8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
 
