@@ -52,19 +52,19 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Rising U.S. Interest Rates Push Countries in Global South Toward Economic Collapse: ]]:= { ^ <https://youtube-nocookie.com/embed/EwpSX33y5Hc> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Why So Many US Companies Are Going Bankrupt: ]]:= { ^ <https://youyoutube-nocookie.com/embed/NiT7sxvRBlA> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 U.S. National Deficit EXPLODES Nearly TRIPLING In Nine Months Of 2023: ]]:= { ^ <https://youyoutube-nocookie.com/embed/_QLUvqIsF5o> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
