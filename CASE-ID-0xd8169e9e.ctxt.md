@@ -652,33 +652,33 @@
 
 >![:CASE-ID-0xd8169e9e-5cbc793f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-5cbc793f.png)
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :SELECTED, RESPECTED & A TRUE REPRESENTATIVE OF THE DIVINE!! YOUR CONJURINGS ARE ON FULL POWER!!🧞‍♀️: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/xgs8rErmzFc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :UR DEY WORST NIGHTMARE UR PRESENCE FEARD N DA 3D CUZ UR NOT SUPPOSED 2 B HERE 🫵🏾SURVIVED A SACRIFICE: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/lRtDiy58u-c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE TRUTH IS OUT...SOMETHING BIG IS HAPPENING IN THIS ENERGY....: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/ulERXAM7g_U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Jezebel comes for the anointed ones! The higher the calling the stronger the attacks.: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/-SJwzcxyPZs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
