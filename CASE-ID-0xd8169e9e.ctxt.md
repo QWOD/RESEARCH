@@ -708,33 +708,33 @@
 
 >![:CASE-ID-0xd8169e9e-63ccbf2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-63ccbf2a.png)
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Pentagon, THE COVERUP, and UAP’s. The Real TRUTH and Why They’re Here NOW! Dr. Steven Greer: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/cWJYQzk4izo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Canton Fair Crisis: 80% Drop in EU/US Buyers - Exhibitors in Tears: No Orders, No Hope!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/G1FkCGSDhPU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :SCARY Natural Disasters Destroy Saudi Arabia! Thunderstorms, Hail & Floods Hits People in Mecca: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/PfGKvYfL8eE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Jade Emperor, Ancestor Money, Ruler of the Heavens and the Underworld. He was once mortal, a human: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/K8BaCZmHB0g> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
