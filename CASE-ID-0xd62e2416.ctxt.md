@@ -204,9 +204,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :France is sinking AGAIN! Flash flooding are raging, 100 cities are under threat: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/FtribMYsE14> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
