@@ -8,7 +8,7 @@
 >
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 >
-    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 >
 ># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: [[ FUN:ΔNG: ]]: <=> Cryp☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
 >
@@ -39,7 +39,7 @@
 
 ## :FΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]]
 
-    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+    :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 
 >## *:[[ :systemd-local: figtreeservice: ]]:*
 >
