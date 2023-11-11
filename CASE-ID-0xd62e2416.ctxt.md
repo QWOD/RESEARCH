@@ -208,7 +208,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/FtribMYsE14> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-cd9c00400004d6659146e02c36b21a9a12a07f05> ^ }: ]]:= { RELEVANT: "[[ :VERSE: Genesis: 9:13: ]]" }: ]]:
 
 >![:CASE-ID-0xd62e2416-10c42cf4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-10c42cf4.png)
 >
