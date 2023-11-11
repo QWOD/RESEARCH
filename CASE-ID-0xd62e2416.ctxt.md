@@ -210,11 +210,13 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xd62e2416-10c42cf4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-10c42cf4.png)
 >
+> ## *[[ :Saudi Arabia, INDIA Now! STORM / Flash Flood, Landslide Worst in Mecca | Natural Disasters: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
+> :is-with: { ^ <https://youtube-nocookie.com/embed/KhA4ZsPJ9ak> ^ }:
 >
-> :is-with: { ^ <👼> ^ }:
+>![:CASE-ID-0xd62e2416-af60794a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-af60794a.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
