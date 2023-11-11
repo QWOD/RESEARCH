@@ -180,7 +180,7 @@
 
 >
 >
-> ## *[[ :ou are about to hit the jackpot💃💵💲. This almost made me cry. 💰🤑: ]]* ##
+> ## *[[ :You are about to hit the jackpot💃💵💲. This almost made me cry. 💰🤑: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/6Ug62PDSlXY> ^ }:
 
