@@ -338,7 +338,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/3FjN_i4z4u0> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-0f82d0936d01ca91da4b2d32b66cc17c3d0d43c5> ^ }: ]]:= { RELEVANT: "[[ :s33ms-l1k3ly: ]]" }: ]]:
 
 >
 >
