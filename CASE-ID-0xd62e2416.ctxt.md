@@ -270,7 +270,7 @@
 
 >![:CASE-ID-0xd62e2416-81c4d991.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-81c4d991.png)
 >
-> ## *[[ :Didn’t read the fine print.. false prophets being brought to their knees #JudgementSeason: ]]* ##
+> ## *[[ :Didn’t read the fine print.. false prophets being brought to their knees [[ _: JudgementSeason: ]]: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/5PNkcMpZnXk> ^ }:
 
