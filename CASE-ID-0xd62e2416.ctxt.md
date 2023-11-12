@@ -350,25 +350,25 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🔴 PetroDollar Death: China Just Used Digital Yuan To Buy Crude Oil For The First Time Ever: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/KLA-sWBmo9E> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🔴THE BANKING CRISIS IS BEGINNING: Hundreds of Banks Face MASSIVE Deposit Outflows,BILLIONS In Losses: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/pThaVJrzZO0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Is $932 Silver a Reality? Unpacking the Potential Explosion in The Price Of Silver | Rafi Farbar: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/bvdRAd6-O_8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
