@@ -374,17 +374,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :PHILIPPINES, USA was helpless! STORM, Flash Flood Hit Airport, Houses, Cars | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/iuQ55xCaEKs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Nasa JUST ANNOUNCED The DEADLIEST Tsunami Of All Time Is About To Happen!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/HiZXIDlyRdw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
