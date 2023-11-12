@@ -406,9 +406,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Survival in a Combat Environment (Becoming Deadly In The Mountains): ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/0eCECSuV3hc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
