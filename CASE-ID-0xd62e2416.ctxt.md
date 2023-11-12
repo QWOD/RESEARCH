@@ -398,9 +398,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Iceland: 1,400 earthquakes strike in 24 hours, amid possible volcanic eruption | LiveNOW from FOX: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/BIBRz7a8XBE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
