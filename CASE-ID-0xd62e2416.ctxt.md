@@ -414,9 +414,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Afghanistan Chaos! Floods, Flash Flood, Earthquake, Destroy Cities, People Flee | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/6IHoNzrjR68> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
