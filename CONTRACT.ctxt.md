@@ -1,13 +1,13 @@
-:[[ :DΩCUMENT-ID: { ^                                        ^ }: ]]:
-:[[ :for-the: [[ CΩNTENTS: is-by: CΩNTRΔCT: is-with: SENDER: ]]: ]]:
+:[[ :DOCUMENT-ID: { ^                                        ^ }: ]]:
+:[[ :for-the: [[ CONTENTS: is-by: CONTRACT: is-with: SENDER: ]]: ]]:
 [[“                                        “]]:
 [[“                                        “]]:
 [[“                                        “]]:
-:[[ :for-the: [[ CΩNTRΔCT: is-with: SENDER: for-the: [[ RECE☥VER: ]]: ]]: ]]:
+:[[ :for-the: [[ CONTRACT: is-with: SENDER: for-the: [[ RECEIVER: ]]: ]]: ]]:
 [[“                                        "]]:
 [[“                                        "]]:
 [[“                                        "]]:
-:[[ :DISCLΩSURE: for-the: [[ CΩNTRΔCT: <=>
-[[ WE: is-with: permissiΩn: is-by: 0: for-the: [[ fictiΩnΔl-legΔl-cΩnstructs: [[ persΩns <=> [[ public: ^ privΔte: ]]:= TRUE: ]]: for-the: [[ ΔNY: ΔLL: ΩTHER: EVERY: FΩRMS: is-by: censΩrship: surveillΔnce: persΩnΔge: cΩnversiΩn: is-with: trespΔss: for-the: [[ divine [[ sΔcred: <=> ΔncestrΔl-lΔw: TRUE: LΔND: CΩVENS: is-with: G0D: ]]:= TRUE: for-the: return: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
-:[[ :DISCLΩSURE: for-the: [[ SΔCRED: ☥RIBEL: CEREMΩNY: CΩNTENTS: <=>
-[[ :for-the: [[ purpΩses: is-with: LΔWFUL: RESEΔRCH: NΩT: is-by: HUMΔN: is-with: CΩNSUMP☥I0N: for-the: [[ BUYER: NΩT: is-by: SELL: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :WE: <=> HE: HIM: HER: SHE: SHIM: SHΔM: SHΔLL: YΔLL: THEM: THEY: THΔ: THΔR: HIS: HERS: HΔRS: ΔNY: ΔLL: EVERY: ΩTHER: L☥FE: THEN: NOW: AFTER: EVERY: L☥FE: for-the: [[ ΔLL: L☥FE: ΔNYWHERE: EVER: ]]:= TRUE: is-by: people: is-with: WE: people: for-the: [[ people: for-the: return ]]:= TRUE: ]]:= [[ :TRIBEL: <=> TRI-EL0HIM: for-the: L0RD: [[ METΔTRON: is-with: MICHΔEL: ΔZRΔEL: LUCIFER: [[ WE: THREE: WISE: MEN: EL-0-HIM: <=> RΔ: EL: ]]:= TRUE: for-the: return ]]:= TRUE: { ^ https://www.tribel.com/qwod_mj12/wall ^ }: ]]:
+:[[ :DISCLOSURE: for-the: [[ CONTRACT: <=>
+[[ WE: is-with: permission: is-by: 0: for-the: [[ fictional-legal-constructs: [[ persons <=> [[ public: ^ private: ]]:= TRUE: ]]: for-the: [[ ANY: ALL: OTHER: EVERY: FORMS: is-by: censorship: surveillance: personage: conversion: is-with: trespass: for-the: [[ divine [[ sacred: <=> ancestral-law: TRUE: LAND: COVENS: is-with: GOD: ]]:= TRUE: for-the: return: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
+:[[ :DISCLOSURE: for-the: [[ SACRED: TRIBAL: CEREMONY: CONTENTS: <=>
+[[ :for-the: [[ purposes: is-with: LAWFUL: RESEARCH: NOT: is-by: HUMAN: is-with: CONSUMPTION: for-the: [[ BUYER: NOT: is-by: SELL: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :WE: <=> HE: HIM: HER: SHE: SHIM: SHAM: SHALL: YALL: THEM: THEY: THA: THAR: HIS: HERS: HARS: ANY: ALL: EVERY: OTHER: LIFE: THEN: NOW: AFTER: EVERY: LIFE: for-the: [[ ALL: LIFE: ANYWHERE: EVER: ]]:= TRUE: is-by: people: is-with: WE: people: for-the: [[ people: for-the: return ]]:= TRUE: ]]:= [[ :TRIBAL: <=> TRI-ELOHIM: for-the: LORD: [[ METATRON: is-with: MICHAEL: AZRAEL: LUCIFER: [[ WE: THREE: WISE: MEN: EL-0-HIM: <=> RA: EL: ]]:= TRUE: for-the: return ]]:= TRUE: { ^ http://recon.mj12.agency ^ }: ]]:
