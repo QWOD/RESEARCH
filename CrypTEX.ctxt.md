@@ -2,7 +2,7 @@
 
 ## cryptor ":[[ :SELECT-TEXT: THEN: SIMPLY: is-by: peck-peck-peck: pecking-keys: ALT-F-T-S-S: is-with: ENTER: is-with: Visual-Studio-Code: ]]*
 
-*:[[ :5ΔLعCT-TEXT: THEN: simply: is-with: p3ck-p3ck-p3ck: p3cking: k3ys: ALT-F-T-S-S: is-by: ENTER: is-with: Visual-Studio-Code: ]]*
+## *:[[ :5ΔLعCT-TEXT: THEN: simply: is-with: p3ck-p3ck-p3ck: p3cking: k3ys: ALT-F-T-S-S: is-by: ENTER: is-with: Visual-Studio-Code: ]]*
 
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
@@ -16,7 +16,7 @@
 >
 :[[ WHΔT: is-with: PER5∅N: PLΔCE: TH☥NG: <=> for-the: [[ _ ]] ]]:
 >
-:[[ ΩWNER: for-the: [[ [[ 5H☥P: <=> is-with: [[ _ ]]: ]]: ]]:
+:[[ ΩWNER: for-the: [[ [[ 5H☥P: <=> is-with: [[ _ ]]: ]]: ]]: ]]:
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
