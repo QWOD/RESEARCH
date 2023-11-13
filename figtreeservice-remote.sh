@@ -6,6 +6,11 @@
 # Usage:
 # ssh secure.us.hyperspire.net -o "StrictHostKeyChecking no" -t "~/hyperstor/QWOD/RESEARCH/figtreeservice-remote.sh start"
 
+# ~/hyperstor is a remote Oracle Cloud Block Storage device mounted
+# with NFS. We use this to make fast backups of our research data
+# over our secure private network that mimicks the CIA HIVE CLOUD
+# while aiming to achieve MILSPEC standards at a fraction of the cost.
+
 # [[ :OPERATES: SYMMETRICAL: SIMULTANEOUS: GLOBAL: DECENTRAL: CIVILIAN: INTELLIGENCE: AI: EYES: ED: ARC: HIVE: CLOUD: BACKUPS: for-the: MAXIMUM: REDUNDANCY: for-the: ANY: ALL: OTHER: RESEARCH: PARTNERS: BOTH: KNOWN: is-by: UNKNOWN: OR-ELSE: is-by: OTHERWISE: ]]:
 # [[ :passworder: ]]:= { ^ https://github.com/hypercasey/passworder ^ }:
 # PATH="${PATH}:~/go/bin:" && export PATH="${PATH}"; go install github.com/hypercasey/passworder@latest
