@@ -8,9 +8,9 @@
 >
 > cryptor ':[[ NOTICE: is-with: ANY: ALL: BASH: SPECIAL-CHARACTERS: is-by: MUST: FIRST: is-with: QUOTED: { ^ <https://www.gnu.org/software/bash/manual/bash.html#Quoting> ^ }: ]]:'
 >
->## cryptor :[[ :THIS: SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]
+>## cryptor ":[[ :THIS: REALLY-SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]"
 >
-:[[ :TH☥S: is-by: SHΩULD: is-with: Visual-Studio-Code: plugin: ]]:
+:[[ :TH☥S: is-by: RΔLL?-5HΩULD: is-with: Visual-Studio-Code: plugin: ]]:
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
