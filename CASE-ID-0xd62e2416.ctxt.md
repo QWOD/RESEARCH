@@ -482,9 +482,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Natural Disasters for Today - Iceland Evacuation, Turkey Earthquake, Brazil Tsunami, Eruption Etna: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/dM63B8PinSE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
