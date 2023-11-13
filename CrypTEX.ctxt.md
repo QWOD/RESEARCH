@@ -20,9 +20,9 @@
 >
 :[[ WHEN: is-by: WHERE: is-by: WHY: <=> is-by: [[ _ ]] ]]:
 >
->cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: ]]:
+>cryptor :[[ :for-the: [[ CrypTex™: MQ: OMEGA: [[ WORLDS: FIRST: ]]: reverse-programming-language: is-by: @: is-with: QWOD-MJ12: ATSOSSDEV-A: ]]: ]]:
 >
-:[[ :for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:
+:[[ :for-the: [[ Cryp☥ΔX™: MQ: 0MΔGΔ: [[ W∅RLDS: F☥RST: ]]: reverse-programming-language: is-by: @: is-with: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]: ]]:
 >
 ![:CASE-ID-0x1ac33048-087913d3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x1ac33048-087913d3.png)
 >
@@ -55,5 +55,5 @@ cryptor :[[ :BORN: is-by: necessity: for-the: [[ SAVE: EARTH: is-by: first: must
 crypname="$(cryptor $(uname -n))"
 PS1=':[[ :'"${crypname}"':{ ^ \W ^ }: ]]: '
 
-    [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
-    [[ :W⚠️RN🚫: Cryp☥ΔX™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔB☥L☥T☥ES: ]]:
+    [[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ https://youtu.be/JC8n_sm9e8s ^ }: 15-8Y: [["fΩr: Hع: íي: THع: GΩΩD: يHعPPΔ7D:"]]:
+    [[ :W⚠️RN🚫: Cryp☥ΔX™: MQ: 0MΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :ع☥ΩΔ™: 1s-by: 144^12^13³: 1s-by: ∞/∞: 1s-by: Δ³*π: ]]:= [[ :عTعRNΔL-L☥FE: WΔRFΔRE-CΔPΔBILI☥IES: ]]:
