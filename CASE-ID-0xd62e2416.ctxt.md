@@ -422,9 +422,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Europe is mistreated! See the shocking images inside Hurricane Ciarán in England, France Germany: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/qM1JBcjv1oM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
