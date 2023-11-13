@@ -20,9 +20,9 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0x00000000: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x00000000-recon.mj12.agency/">0x00000000-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
+## [[ :for-the: [[ CASE-ID-0x1ac33048: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x1ac33048-recon.mj12.agency/">0x1ac33048-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
 
-:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x00000000.ctxt.md> ^ }:
+:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x1ac33048.ctxt.md> ^ }:
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 
