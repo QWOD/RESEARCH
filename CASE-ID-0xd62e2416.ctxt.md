@@ -466,13 +466,13 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ :Et3rn41-Lif3: W4rf4r3-C4p4bi1iti3s: ΔLG∅RI☥HM: Dع☥عC☥3D: ]]" }: ]]:
 
+>![:CASE-ID-0xd62e2416-124415d6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-124415d6.png)
 >
+> ## *[[ :YOU ACTIVATED YOUR IMMORTALITY EVERYONE FEARS U N THE PHYSICAL FORM UR DA BIGGEST GLITCH N DA MATRIX: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/tnn7hR0hVCQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
