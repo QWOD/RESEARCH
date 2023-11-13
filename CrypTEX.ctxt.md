@@ -10,7 +10,7 @@
 >
 >## cryptor ":[[ :THIS: REALLY-SHOULD: is-by: PLUGIN: is-with: Visual-Studio-Code: ]]"
 >
-:[[ :TH☥S: is-by: RΔLL?-5HΩULD: is-with: Visual-Studio-Code: plugin: ]]:
+:[[ :☥HI5: RΔLLY-5HΩULD: is-by: ⭕LUGIN: is-with: Visu41-5tudi0-C0d3: ]]
 >
 >:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: ./cryptor.x86_64 ':[[ WHAT: is-with: PERSON: PLACE: THING: <=> for-the: [[ _ ]] ]]:
 >
