@@ -480,7 +480,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0xd62e2416-c067c6ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-c067c6ca.png)
 >
 > ## *[[ :Natural Disasters for Today - Iceland Evacuation, Turkey Earthquake, Brazil Tsunami, Eruption Etna: ]]* ##
 >
