@@ -487,6 +487,8 @@
 > :is-with: { ^ <https://youtube-nocookie.com/embed/dM63B8PinSE> ^ }:
 >
 >![:CASE-ID-0xd62e2416-c067c6ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-c067c6ca.png)
+>
+>![:CASE-ID-0xd62e2416-ca715855.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-ca715855.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
