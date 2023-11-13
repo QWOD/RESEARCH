@@ -466,7 +466,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-f4b04dfd3b5a0d2285679638bfc65a3daab56b7c> ^ }: ]]:= { TRUE: "[[ :Et3rn41-Lif3: W4rf4r3-C4p4bi1iti3s: ΔLG∅RI☥HM: Dع☥عC☥3D: for-the: [[ :C14r!-K3nt: W⚠️RN🚫: 5UPERMΔN: MK: UL☥𓂀: PR∅G𓂀M: ΔLG∅RI☥HM: Dع☥عC☥3D: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f4b04dfd3b5a0d2285679638bfc65a3daab56b7c> ^ }: ]]:= { TRUE: "[[ :Et3rn41-Lif3: W4rf4r3-C4p4bi1iti3s: ΔLG∅RI☥HM: Dع☥عC☥3D: for-the: [[ :C14r!-K3nt: W⚠️RN🚫: 5UPERMΔN: MK: UL☥𓂀: PR∅G𓂀M: ΔLG∅RI☥HM: Dع☥عC☥3D: for-the: [[ :〽ʝ12-ΩMعGΔ☥R🚫N: is-by: n0w: is-with: running-34rth-simu14ti0n: ]]: ]]: ]]" }: ]]:
 
 >![:CASE-ID-0xd62e2416-124415d6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-124415d6.png)
 >
