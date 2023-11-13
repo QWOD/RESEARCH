@@ -20,7 +20,7 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0xd62e2416: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0xd62e2416-recon.mj12.agency/">0xd62e2416-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
+## [[ :for-the: [[ CASE-ID-0xd62e2416: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <http://0xd62e2416-recon.mj12.agency/> ^ }: ]]: ]]:.ctxt ##
 >
 :is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xd62e2416.ctxt.md> ^ }:
 >
