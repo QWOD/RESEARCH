@@ -514,7 +514,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/c_J-ojgQDkA> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FALSE: "[[ providing: they: meant: is-by: compare: is-with: DEFCON: is-by: then: is-with: level: 1: is-with: highest-possible-alert-level: is-by: not: 5: is-by: they: is-with: stupid: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FALSE: "[[ :pr0viding: th3y: m34nt: is-by: c0mp4r3: is-with: DEFC∅N: is-by: th3n: is-with: 13v31: 1: is-with: high3st-p0ssib13-413rt-13v31: is-with: l0w3st: is-by: 5: is-by: th3y: is-with: stupid: is-with: w3-c4n-411-r314x: is-by: n0w: ]]" }: ]]:
 
 >
 >
