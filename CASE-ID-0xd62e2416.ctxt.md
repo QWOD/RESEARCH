@@ -478,13 +478,15 @@
 >
 > :is-with: { ^ <https://thewaytoeden.com/fourth-way-school-science-of-man-the-work/> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-c87515a52082c4b66aea3d5edb5159aa0e112591> ^ }: ]]:= { [[ TRUE: && RELEVANT: ]]: "[[ :for-the: [[ PR🚫PHعCY: is-with: fu1fi113+: 4+v4nc3-simu14ti0n: is-by: n3xt: is-with: CHعCKPΩIN☥: ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-c067c6ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-c067c6ca.png)
+>![:CASE-ID-0xd62e2416-4131beee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-4131beee.png)
 >
 > ## *[[ :Natural Disasters for Today - Iceland Evacuation, Turkey Earthquake, Brazil Tsunami, Eruption Etna: ]]* ##
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/dM63B8PinSE> ^ }:
+>
+>![:CASE-ID-0xd62e2416-c067c6ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-c067c6ca.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
