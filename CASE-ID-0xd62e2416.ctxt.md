@@ -24,7 +24,7 @@
 
 :[[ :{ ^ <http://0xd62e2416-recon.mj12.agency/> ^ }: ]]:
 
-:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xd62e2416.ctxt.md> ^ }:
+:[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xd62e2416.ctxt.md> ^ }: ]]:
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 
