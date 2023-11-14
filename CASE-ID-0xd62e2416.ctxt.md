@@ -614,9 +614,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :ITALY now! Sicily Underwater, STORM / Flash Flood, Wind Speed is 220 km/h | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/W9J6tMfwE1Y> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
