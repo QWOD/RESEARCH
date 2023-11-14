@@ -630,9 +630,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Golf Ball Size Hail Falls on Johannesburg - The Damage Will Make You Cry!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/0c1kEBaZn68> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
