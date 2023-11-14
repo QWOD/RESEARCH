@@ -638,9 +638,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Italy now! Houses are blowing away in Sicily! A storm with a wind speed of 202 km/h!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/E_2hnPgZhmU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
