@@ -570,7 +570,7 @@
 >
 > :is-with: { ^ <https://youtube-nocookie.com/embed/mAhjTEx1Sgk> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-9bd4fc2441a00172abd989d4c54724b506a52d91> ^ }: ]]:= { TRUE: "[[ this-wi11-t34ch-th3m: is-by: pric3: is-with: g0ug3: U5: for-the: ΩΔL: whi13-4cc3pting-chin3s3-digit41-curr3ncy ]]" }: ]]:
 
 >![:CASE-ID-0xd62e2416-a20746ea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-a20746ea.png)
 >
