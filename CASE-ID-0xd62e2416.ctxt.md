@@ -550,9 +550,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Massive L.A. I-10 freeway fire likely arson, California Gov. Newsom says | LiveNOW from FOX: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtube-nocookie.com/embed/jlNF3NV_Q7U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
