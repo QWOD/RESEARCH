@@ -34,73 +34,73 @@
 >
 >![:CASE-ID-0xd8169e9e-3d39fca6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-3d39fca6.png)
 >
-> :[[ :*🚫PعD*: ]]:= [[ :THEIR HARD WORK WENT DOWN THE 🚽 YOURE GETTING A PROMOTION: ]]:= { ^ <https://youtube-nocookie.com/embed/hMjI19vTbAk> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEIR HARD WORK WENT DOWN THE 🚽 YOURE GETTING A PROMOTION: ]]:= { ^ <https://www.youtube-nocookie.com/embed/hMjI19vTbAk> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :FALSE INVESTIGATION! COURT SYSTEM KNOWS! PAID 4 READINGS! GOING 2 PRISON! EVERYONE’S EXPOSED!🕵️🚨🚔: ]]:= { ^ <https://youtube-nocookie.com/embed/mSonji-3sRo> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :FALSE INVESTIGATION! COURT SYSTEM KNOWS! PAID 4 READINGS! GOING 2 PRISON! EVERYONE’S EXPOSED!🕵️🚨🚔: ]]:= { ^ <https://www.youtube-nocookie.com/embed/mSonji-3sRo> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >![:CASE-ID-0xd8169e9e-33b17fd7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-33b17fd7.png)
 >
-> :[[ :*🚫PعD*: ]]:= [[ :KARMIC EX LOVER GOING TO GET ARRESTED ⛓️🔗FOR EXPOSING YOU ON VIDEO CAMERA 📹 S3X TAPE! DARK WEB!: ]]:= { ^ <https://youtube-nocookie.com/embed/feM-ts1zVfc> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :KARMIC EX LOVER GOING TO GET ARRESTED ⛓️🔗FOR EXPOSING YOU ON VIDEO CAMERA 📹 S3X TAPE! DARK WEB!: ]]:= { ^ <https://www.youtube-nocookie.com/embed/feM-ts1zVfc> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :SENDING IN INFORMANTS TO PROVOKE U CAUSE THEY CAN'T STOP U🖕🏾💪🏾: ]]:= { ^ <https://youtube-nocookie.com/embed/z2570bQ9YQE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :SENDING IN INFORMANTS TO PROVOKE U CAUSE THEY CAN'T STOP U🖕🏾💪🏾: ]]:= { ^ <https://www.youtube-nocookie.com/embed/z2570bQ9YQE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :The 4 Elements of Alchemy Presentation, Zodiac, Yin/Yang - Ellen King, TSP 898: ]]:= { ^ <https://youtube-nocookie.com/embed/3h3i0seExEE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :The 4 Elements of Alchemy Presentation, Zodiac, Yin/Yang - Ellen King, TSP 898: ]]:= { ^ <https://www.youtube-nocookie.com/embed/3h3i0seExEE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Canticle of Canticles - Bedtime Scripture Series; soothing; restful; cleansing, healing: ]]:= { ^ <https://youtube-nocookie.com/embed/5spdHta651A> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Canticle of Canticles - Bedtime Scripture Series; soothing; restful; cleansing, healing: ]]:= { ^ <https://www.youtube-nocookie.com/embed/5spdHta651A> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :THIS KARMIC COUPLE THINK THEY SLICK!! THIS IS DESPERATEEE ASFFFFF…: ]]:= { ^ <https://youtube-nocookie.com/embed/Z1fYLZmNKVE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THIS KARMIC COUPLE THINK THEY SLICK!! THIS IS DESPERATEEE ASFFFFF…: ]]:= { ^ <https://www.youtube-nocookie.com/embed/Z1fYLZmNKVE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://www.youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Your God given strength 👍❤️: ]]:= { ^ <https://www.youtube-nocookie.com/embed/xtDHUwAhvfE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :BUNKER: PROJECT 12 | Full Action Sci-Fi Movie | James Cosmo, Eric Roberts, Natasha Alam: ]]:= { ^ <https://youtube-nocookie.com/embed/LGE-EV17KQE> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :BUNKER: PROJECT 12 | Full Action Sci-Fi Movie | James Cosmo, Eric Roberts, Natasha Alam: ]]:= { ^ <https://www.youtube-nocookie.com/embed/LGE-EV17KQE> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://www.youtube-nocookie.com/embed/> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://youtube-nocookie.com/embed/> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <https://www.youtube-nocookie.com/embed/> ^ }:
 >
 > ## **:[[ ΔRC: HIVE: for-the: [[ ΔLL: inv3stig4ti0ns-134@: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔ5U5: <=> G∅D: ]]: is-with: [[ U5: WΔ: p30p13: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
@@ -110,7 +110,7 @@
 >
 > ## *[[ :👹THE DEVILS DAUGHTER VS. GODS DAUGHTER🥊THIS H0E IS REALLY WAGING WAR! THE LIGHT ALWAYS WINS🌞💕: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/xtrYDTR19YY> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xtrYDTR19YY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -118,7 +118,7 @@
 >
 > ## *[[ :IM BEING FOLLOWED IK YALL SENT DAT INFORMANT DAT BIHH ASS GOOD AS ⚰️ TOO ANCESTORS ALREADY ON IT 🖕🏾: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Kb5axann_io> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Kb5axann_io> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -126,7 +126,7 @@
 >
 > ## *[[ :THIS KARMIC COUPLE THINK THEY SLICK!! THIS IS DESPERATEEE ASFFFFF…: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Z1fYLZmNKVE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Z1fYLZmNKVE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -134,7 +134,7 @@
 >
 > ## *[[ :IRAQ is submerged! STORM, Flash Flood, Landslide Wash Away Everything in Seconds | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/cOTVj9qGvnU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/cOTVj9qGvnU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -142,7 +142,7 @@
 >
 > ## *[[ :U were chosen 2!break generational curses.. Freeing ur bloodline, better than expected✨✨: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/m3XQ6GUAjLQ> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/m3XQ6GUAjLQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -150,7 +150,7 @@
 >
 > ## *[[ :A "M" victim haunting them- experiment done on this person same thing being done to u: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Id1iXmJHc-k> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Id1iXmJHc-k> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -158,7 +158,7 @@
 >
 > ## *[[ :THESE CLOWNS CANT SEE U DA INFORMANT THEY SENT AS GOOD AS ⚰️ UR ANCESTORS ALREADY ON IT💪🏾🖕🏾 (PART 2): ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/d0juLpCErFk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/d0juLpCErFk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -166,7 +166,7 @@
 >
 > ## *[[ :YOUR LIGHT IS TRIGGERING MANY PEOPLE🌟EVERY TIME THEY HEAR YOUR NAME THEY GET PISSED🧿: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/gLE8WcfbR_c> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/gLE8WcfbR_c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -174,7 +174,7 @@
 >
 > ## *[[ :🗣 Ears To Hear: End Times Instructions & Rewards || Prophetic Word: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/LqZXzsclTcg> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/LqZXzsclTcg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -182,7 +182,7 @@
 >
 > ## *[[ :WHAT just happened! Earth SWALLOWED by HUGE storm cloud!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/LrwUIrW4_30> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/LrwUIrW4_30> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -190,7 +190,7 @@
 >
 > ## *[[ :Starlink’s newest competitor is using next-gen satellites to create internet for all | Hard Reset: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/UKoelA_Mt3A> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/UKoelA_Mt3A> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -198,7 +198,7 @@
 >
 > ## *[[ :The Hitman called Judgement on this situation..Got bigger enemies now.. #TablesTurned ⚖️: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Pis0NLg1D-c> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Pis0NLg1D-c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -206,7 +206,7 @@
 >
 > ## *[[ :Chosen one. No weapon formed against me shall prosper. Plea the blood of Jesus, the Redeemer.: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/VfMX1ov9pPU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/VfMX1ov9pPU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -214,7 +214,7 @@
 >
 > ## *[[ :THIS COVEN ACTUALLY RESPECTS YOU AND FEARS YOU‼️‼️WOW: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/pO9vFQBEnNk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/pO9vFQBEnNk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -222,7 +222,7 @@
 >
 > ## *[[ :Spirit vs flesh . Pretty outside ugly inside. KARMIC they're leaving you. Emperor 👑 Empress 💋💅: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/qpLlTid42mk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/qpLlTid42mk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -230,7 +230,7 @@
 >
 > ## *[[ :THEY WANT TO KEEP THE STAR ⭐️ AROUND BE FOCUSED ON YOUR NEW CHAPTER: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/4P8ktEtqrnI> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/4P8ktEtqrnI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -238,7 +238,7 @@
 >
 > ## *[[ :ICU Nurse DISCOVERS Ancient CELTIC Mysticism to Help LOST SOULS Cross-Over to HEAVEN! | Judy Hilyard: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/VsInmy3EVTk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/VsInmy3EVTk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -246,7 +246,7 @@
 >
 > ## *[[ :KARMA WORKS IN MANY DIFFERENT WAYS..: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Jxor8fepz9c> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Jxor8fepz9c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -254,7 +254,7 @@
 >
 > ## *[[ :THEY FAILED TO DELIVER WHAT WAS REQUIRED TO COMPLETE A “RITE OF PASSAGE”…..CAN’T TOUCH THIS 💃🏾🕺🏿: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/EKlyuN8BH04> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/EKlyuN8BH04> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -262,7 +262,7 @@
 >
 > ## *[[ :UFO/HIGH STRANGENESS EVIDENCE - PRISCILLA CATHERINE LAPIERRE, TSP 900: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/p25nM1r6mLA> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/p25nM1r6mLA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -270,7 +270,7 @@
 >
 > ## *[[ :🍺🤬THIS WAS THE LAST STRAW! DRUNK/DRUGGED,DELUSIONAL,&DEVILISH! THEY GONE TOO FAR! TRUE COLORS SHOWN👹: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/789K2WaxT_U> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/789K2WaxT_U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -278,7 +278,7 @@
 >
 > ## *[[ :HOW to KNOW your PURPOSE and CALLING - Mel Rentmeister: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/E3XhCNdlZZM> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/E3XhCNdlZZM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -286,7 +286,7 @@
 >
 > ## *[[ :Mundell-Fleming Lecture: The Costs and Consequences of Sovereign Borrowing: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Ji_AY9uFSYk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Ji_AY9uFSYk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ 5☥∅RY: is-with: QW🚫D-〽ʝ12: 〽ʝ12-ΩMعGΔ☥R🚫N: t4ctic41-w4rf4r3-unit: ☥RUE: 1if3-st0ry: is-by: F0rg0tt3n-Exp3rim3nt: ]]" }: ]]:
 
@@ -294,7 +294,7 @@
 >
 > ## *[[ :Forgotten Experiment: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/HQlCVTwVr8I> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/HQlCVTwVr8I> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -302,7 +302,7 @@
 >
 > ## *[[ :No amount of money n the world can amount 2 the amount of favor over ur life..True Alchemist💫🤯: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/CuZ3VdLBtmE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/CuZ3VdLBtmE> ^ }:
 >
 >![:CASE-ID-0xd8169e9e-42dfaafd.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd8169e9e-42dfaafd.png)
 
@@ -312,7 +312,7 @@
 >
 > ## *[[ :Bleedthrough - A Story of Aliens, Demons and Pure Evil in Texas - Pat O' Connell - TSP 901: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ ΩNΔCKN∅WL3DG3D: w34p0ns-fi31d-t3chn010gy-t3st: ]]" }: ]]:
 
@@ -320,7 +320,7 @@
 >
 > ## *[[ :Is this a MIND CONTROL WEAPON?!? Here is what I found....: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/9P2LQnH7evE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/9P2LQnH7evE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -328,7 +328,7 @@
 >
 > ## *[[ :GOD JUST WANTED U 2 FULLY DEPEND ON HIM✝️ NOW YOU’RE BEING BLESSED X999😱🎁: [[ _: god: ]]: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/o3j_KGncFx0> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/o3j_KGncFx0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -336,7 +336,7 @@
 >
 > ## *[[ :THESE SCAMMERS GOT QUITE CREATIVE & NOW THEY'RE ALL GOING TO JAIL AND HELL🧿ITS AN EPIC FAIL 🚫💰: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/ZdW0O955NRE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ZdW0O955NRE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-1a5c648cddc182e31f2319d3880a6ed2a3438802> ^ }: ]]:= { RELEVANT: "[[ ΔBΩVE-☥🚫P-5عCRع☥: N☥KΩ: i113g41: MK: UL☥𓂀: PR∅G𓂀M: ]]" }: ]]:
 
@@ -344,7 +344,7 @@
 >
 > ## *[[ :YOU’RE NOT CRAZY, IT REALLY DID HAPPEN 😳 THEY ARE TRYING TO GASLIGHT YOU 🫵🏾: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/stQqNpevNXQ> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/stQqNpevNXQ> ^ }:
 >
 >![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
 >
@@ -358,7 +358,7 @@
 >
 > ## *[[ :The Invasion of Eden: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/obK1RvvqPp0> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/obK1RvvqPp0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -366,7 +366,7 @@
 >
 > ## *[[ :Witches & warlocks waking up to the infirmities & misfortune they sent.Take authority w Jesus.: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/JkwF-Q7eT_o> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/JkwF-Q7eT_o> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-97c925154b3f78dcdfe0787599d12eed76022a0d> ^ }: ]]:= { TRUE: "[[ p4g4n-witch-c0🕳️3n: ]]" }: ]]:
 
@@ -374,7 +374,7 @@
 >
 > ## *[[ :⛓️⛓️THIS KARMIC COUPLE GOING TO JAIL FOR CONSPIRACY ! IDENTITY FRAUD!SHAM⛓️⛓️: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/2AW6jahTVzE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/2AW6jahTVzE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -382,7 +382,7 @@
 >
 > ## *[[ :11/8 Part 1 your only job is to stay in high vibration to receive your blessing! 🎁: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Y_0IsswPDK8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Y_0IsswPDK8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -390,7 +390,7 @@
 >
 > ## *[[ :ENEMIES ARE CONFUSED & LED ASTRAY 😐 BLINDED BY THE TRUTH CONFIRMATION: "YOU ARE A CHOSEN ONE" 🧿👑: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/2cXWkhsbgUA> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/2cXWkhsbgUA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -398,7 +398,7 @@
 >
 > ## *[[ :Your ex tried to establish a smear campaign.he wanted u to be broken than set u up to take a fall.: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/2n1VUFf7tFQ> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/2n1VUFf7tFQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -406,7 +406,7 @@
 >
 > ## *[[ :Ultimate Karma is being handed out...wanted your life and now they have to watch theirs go down!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/oM_wBBiIlOY> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/oM_wBBiIlOY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -414,7 +414,7 @@
 >
 > ## *[[ :YOU HANDLED THIS PLAYER WITH PERFECTION, CONQUERED A KARMIC PATTERN & SUMMONED YOUR JACKPOT 😍: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/hcMj4ogJ15Y> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/hcMj4ogJ15Y> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -422,7 +422,7 @@
 >
 > ## *[[ :Tryin 2 sabotage u, they sabotaged themselves..Nothing but up from here.. Congratulations 🎉🎊🍾🎈: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/uig1ntz-9oU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/uig1ntz-9oU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -430,7 +430,7 @@
 >
 > ## *[[ :THERE'S ALWAYS A HATER LURKING BENEATH THE SURFACE & MAD BECAUSE YOU'RE STILL THE HIGH PRIESTESS😇🔮🧿: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/aT-Cdx_w1hQ> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/aT-Cdx_w1hQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -438,7 +438,7 @@
 >
 > ## *[[ :This Person Coming Around You is Evil and...: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/x8YTtSNI8r8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/x8YTtSNI8r8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -446,7 +446,7 @@
 >
 > ## *[[ :what's faded for you is already yours no place like home they worried they gotta face this karma😲🔙🔥: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/O887QKicbPg> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/O887QKicbPg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -454,7 +454,7 @@
 >
 > ## *[[ :FOR FAR TOO LONG YOU REMAINED SECOND BEST & REMAINED IN THE BACKGROUND! NOT ANYMORE! KARMIC JUSTICE: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/gVV6unHl_Hk> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/gVV6unHl_Hk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -462,7 +462,7 @@
 >
 > ## *[[ :UR TRULY CONNECTED 2 POWERFUL UNIVERSAL FORCES UR SUPERNATURAL GIFTS N FAVOR SCARES TF OUT OF PPL🔮🧿💫: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/XYwiqNXz-8s> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/XYwiqNXz-8s> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -470,7 +470,7 @@
 >
 > ## *[[ :Tartaria And The Underworld | Sacred Wisdom Podcast: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/szZyn-trdwg> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/szZyn-trdwg> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -478,7 +478,7 @@
 >
 > ## *[[ :YOU ARE LIVING PROOF THAT MIRACLES EXIST 🌈✨: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/vqp-xcwugWc> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/vqp-xcwugWc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -486,7 +486,7 @@
 >
 > ## *[[ :🔴Unbelievable Destruction in Europe After Storm Ciarán!🔴 World's Disasters on November 1-3, 2023: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/8Crd1VCfdyU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/8Crd1VCfdyU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -494,7 +494,7 @@
 >
 > ## *[[ :DMT and St. Peter: The Anubis Post Death Vibe Check -Science of Hallucinogens/Stoned Ape Theory/dmt: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Uv46X8tcjB8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Uv46X8tcjB8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -502,7 +502,7 @@
 >
 > ## *[[ :PEOPLE WROTE SPIRITUAL CHECKS THAT THEIR ASSES CAN'T CASH 😒 IN AWE OF BEING SPIRITUALLY BROKE 🤔😴👀: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/9vPQA8i0ggY> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/9vPQA8i0ggY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -518,7 +518,7 @@
 >
 > ## *[[ :this copy cat energy has exhausted all avenues to compete with u: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/KoLKWGbWfLE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/KoLKWGbWfLE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -526,7 +526,7 @@
 >
 > ## *[[ :CIA Programs of False Light, New Age Infiltration & Spiritual Warfare - XI Earthstar, TSP 902: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/KVpGKp-RyeM> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/KVpGKp-RyeM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -534,7 +534,7 @@
 >
 > ## *[[ :THIS WHOLE GROUP IS EMBARRASSED ON AN ONLINE COMMUNITY: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/lPtzHrbgqf4> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/lPtzHrbgqf4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -542,7 +542,7 @@
 >
 > ## *[[ :[[ _: karmic: ]]: ROAD BLOCK..........: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/DA_GOMS9Fr8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/DA_GOMS9Fr8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -550,7 +550,7 @@
 >
 > ## *[[ :U are committed to Divine's Guidance but they couldn't trust u due to insecurities or so they🤔😲🔙🔥: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/CmLaEfscaIE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/CmLaEfscaIE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -558,7 +558,7 @@
 >
 > ## *[[ :SOMEBODY IN BIG TROUBLE FOR THIS!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Rz49LoESXKc> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Rz49LoESXKc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -566,7 +566,7 @@
 >
 > ## *[[ :IT BLOWS PPL MIND DISCOVERING UR A GENIUS ✨ PPL ENVY DA SACRED ANCIENT KNOWLEDGE PASSED DOWN 2 U👸🏾🫅🏾: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/ayj9kViitvo> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ayj9kViitvo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -574,7 +574,7 @@
 >
 > ## *[[ :THEY TRIED TO SACRIFICE YOU.. SO THE BLOW-UP B!TCH CAN WALK IN YOUR LIGHT⭐️: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/moOu0azWrTY> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/moOu0azWrTY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -582,7 +582,7 @@
 >
 > ## *[[ :Indigo Angel Live from Algeria, Gridwork, Ancient Goddesses - TSP 903: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -590,7 +590,7 @@
 >
 > ## *[[ :WOW too much going on in this reading- multiple families going down: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/beWxjUmlFrM> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/beWxjUmlFrM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -598,7 +598,7 @@
 >
 > ## *[[ :MAAT MeduNeter is live!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/ReFohwiwuFU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ReFohwiwuFU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -606,7 +606,7 @@
 >
 > ## *[[ :THEY’RE IN DEBT TO YOU. THEY OWE YOU ALOT FOR PLAYING THESE MIND GAMES: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/DD96qdEoDxc> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/DD96qdEoDxc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -614,7 +614,7 @@
 >
 > ## *[[ :GOD USED U 2 SHOW PPL A HIGHER POWER DOES EXIST UR THE CATALYST TO PPL AWAKENING#POWERFUL TEACHER: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/B8IY9w8LJ-Q> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/B8IY9w8LJ-Q> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -622,7 +622,7 @@
 >
 > ## *[[ :THEY DONT WANT TO HEAR ABOUT YOUR SUCCESS KARMA IS STILL HERE FOR THEM .: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/D98j6xGWLJw> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/D98j6xGWLJw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -630,7 +630,7 @@
 >
 > ## *[[ :YOU MADE THE RIGHT MOVE TIME TO CELEBRATE A MAJOR WIN 🎉✨&KARMIC GOING THROUGH LOSS TRIES TO RETURN: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/25ukxTuwKQ8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/25ukxTuwKQ8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -638,7 +638,7 @@
 >
 > ## *[[ :URGENT‼️THEY ARE NOT PREPARED FOR THIS BACKFIREEEE WOW: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/3ln6U8zbRFA> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/3ln6U8zbRFA> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -646,7 +646,7 @@
 >
 > ## *[[ :DONT BE SCARED NOW! THEY SHOULDA THOUGHT TWICE BEFORE CROSSIN U…: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/Zr6AHBOEkUU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Zr6AHBOEkUU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -654,7 +654,7 @@
 >
 > ## *[[ :SELECTED, RESPECTED & A TRUE REPRESENTATIVE OF THE DIVINE!! YOUR CONJURINGS ARE ON FULL POWER!!🧞‍♀️: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/xgs8rErmzFc> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xgs8rErmzFc> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -662,7 +662,7 @@
 >
 > ## *[[ :UR DEY WORST NIGHTMARE UR PRESENCE FEARD N DA 3D CUZ UR NOT SUPPOSED 2 B HERE 🫵🏾SURVIVED A SACRIFICE: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/lRtDiy58u-c> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/lRtDiy58u-c> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -670,7 +670,7 @@
 >
 > ## *[[ :THE TRUTH IS OUT...SOMETHING BIG IS HAPPENING IN THIS ENERGY....: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/ulERXAM7g_U> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ulERXAM7g_U> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -678,7 +678,7 @@
 >
 > ## *[[ :Jezebel comes for the anointed ones! The higher the calling the stronger the attacks.: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/-SJwzcxyPZs> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/-SJwzcxyPZs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -686,7 +686,7 @@
 >
 > ## *[[ :A LEGEND IS BORN!! A REAL LION OF GOD CANNOT BE STOPPED!! THIS IS THE LIFE OF TRUE SOUL ACHIEVEMENT: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/eGHygK_9-J8> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/eGHygK_9-J8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -694,7 +694,7 @@
 >
 > ## *[[ :China’s Betting on War to Revive Its Economy: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/AYcFFh5NQWE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/AYcFFh5NQWE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -702,7 +702,7 @@
 >
 > ## *[[ :Huge rocks falling, China helpless! Hailstorm strikes Changsha, Hunan: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/tyrgIo6WeCQ> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/tyrgIo6WeCQ> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-230ab48c0ae1ec7ba695f7d8db35f8e52e2c9b1a> ^ }: ]]:= { FALSE: "[[ 🔺r0viding-zer-point-energy: is-by: SAFE: is-with: 🔺0w3r-c0m🔺4ni3s: w0u1d-sim🔺1y-r3nt-fr33-3n3rgy-d3vic3s: is-by: 1ik3: is-with: c4b13-m0d3m: is-by: inst34d: is-with: d3str0ying-34rth-f0r-3v3ry0n3: is-with: WE: is-by: 41r34dy: is-with: using-fr33-3n3rgy: WΔ: p4y: for-the: infr4structur3: upk33p: is-with: YΩU: d0-n0t-c0nsum3-3n3rgy: is-with: th4t: is-by: why: YΩU: h4v3: is-with: r3turn-1in3: is-with: ☥HΔ: s311-3n3rgy: is-by: YΩU: is-with: th3n-s4m3-3n3rgy-g03s: is-by: y0ur is-with: n3ighb0rs: h0us3: is-by: ☥HΔ: is-with: ch4rg3-n3ighb0r-4g4in: for-the: s4m3-3n3rgy-th4t-w4s: is-by: YΩUR: is-with: h0us3: is-with: quit3-th3-r4ck3t: ]]" }: ]]:
 
@@ -710,7 +710,7 @@
 >
 > ## *[[ :The Pentagon, THE COVERUP, and UAP’s. The Real TRUTH and Why They’re Here NOW! Dr. Steven Greer: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/cWJYQzk4izo> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/cWJYQzk4izo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -718,7 +718,7 @@
 >
 > ## *[[ :Canton Fair Crisis: 80% Drop in EU/US Buyers - Exhibitors in Tears: No Orders, No Hope!: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/G1FkCGSDhPU> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/G1FkCGSDhPU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -726,7 +726,7 @@
 >
 > ## *[[ :SCARY Natural Disasters Destroy Saudi Arabia! Thunderstorms, Hail & Floods Hits People in Mecca: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/PfGKvYfL8eE> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/PfGKvYfL8eE> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -734,7 +734,7 @@
 >
 > ## *[[ :Jade Emperor, Ancestor Money, Ruler of the Heavens and the Underworld. He was once mortal, a human: ]]* ##
 >
-> :is-with: { ^ <https://youtube-nocookie.com/embed/K8BaCZmHB0g> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/K8BaCZmHB0g> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
@@ -906,7 +906,7 @@
 
 ![:CASE-ID-0x83449144-bc32bd4e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-bc32bd4e.png)
 >
-:is-with: { ^ <https://youtube-nocookie.com/embed/iarc53pWfJQ> ^ }:
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/iarc53pWfJQ> ^ }:
 >
 :[[ :🟡: [[ :N🚫T⚠️Cع: for-the: [[ Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΔLGØRITHM: DETECTED: ]]:= [[ :C🚫Dع: is-with: Ωnly-ever-reΔdΔble: is-by: ΔbΩve-tΩp-secret: blΔck-prΩject-militΔry: quΔntum-cΩmputing-experts: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
