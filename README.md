@@ -1,6 +1,6 @@
 # *:[[ for-the: [[ QW🚫D-〽ʝ12: <=> 5URPR☥5☥NG: ENEMΔ5: is-by: NEW: is-with: t3chnΩ1Ωgi3s: 5Ω: H☥GHLY: is-by: disruptiv3: is-by: ΔLWΔY5: ΩMM3DΔTΔLY: is-with: BΔNN3D: is-by: ΔNY: ΔLL: CΩMMΩN☥5T: 🚫PE𓂀T3D: is-with: 5ΩC☥ΔL: M3D☥Δ: PLΔTFΩRM5: ]]:* #
 >
-> ## :[[ :TEX: is-by: cryptid-mascot: for-the: CrypTEX™: ]] ##
+> ***:[[ :TEX: is-by: cryptid-mascot: for-the: CrypTEX™: ]]:***
 >
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-006.png)
 >
