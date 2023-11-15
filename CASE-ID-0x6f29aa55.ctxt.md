@@ -305,28 +305,22 @@
 ### ![:CASE-ID-0x6f29aa55-2098f89f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2098f89f.png) ###
 
 [[ :🔴 Space Ambient Music Mix ✨LIVE 24/7: Ambient Cosmic Background for Sleep, Studying, Meditation: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/ZgIApioi-jE> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-2020bd67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2020bd67.png)
->
+### ![:CASE-ID-0x6f29aa55-2020bd67.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2020bd67.png) ###
+
 [[ :What Happens To NYC’s 3.2 Million Tons Of Trash | Big Business | Business Insider: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/S758wEniU0c> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-b0d51b28.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b0d51b28.png)
->
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/S758wEniU0c> ^ }:
+
+### ![:CASE-ID-0x6f29aa55-b0d51b28.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b0d51b28.png) ###
+
 [[ :How FIVE BILLION Pounds of Las Vegas Garbage Powers a City | Overview: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/aHzltu6Tvl8> ^ }:
->
-> ###
->
->![:CASE-ID-0x6f29aa55-526d1a2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-526d1a2c.png)
+
+> ### ![:CASE-ID-0x6f29aa55-526d1a2c.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-526d1a2c.png) ###
 >
 >[[ :THIS HUGE SOUL QØNTRACT HAS ALWAYS BEEN DESTINED - THE WORLD YOU WILL CREATE TOGETHER IS WAITING 💕: ]]:
 >
@@ -336,29 +330,23 @@
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/Noyap4HFzF8> ^ }:
 >
-> # :[[ :QØNSPIRΔCY-THEΩRY: ]]
+> ## :[[ :QØNSPIRΔCY-THEΩRY: ]] ##
 >
-> ## [[ :EΔCH: NEW-RΩUND: for-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: for-the: REVELΔTIØNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-with: LΔST: shΔll-be-first: for-the: [[ QØNTRΔCT: is-with: YΩU: WΔ: THΔM: THΔ: HΔ: SHΔ: ΔS: G0DS: <=> people: ]]: thΔnk: YΩU: vrilWITCHES™: for-the: selfless-sΔcrifice: is-with: [[ CV:D ]]: is-with: [[ HΩUSE: <=> CΩVEN: MΔ: F☥: ΔN: S☥ØN: ]]: DΔV☥D: RΩYΔLTY: is-by: DΔv☥ne-R1ght ]]: ]]
->
-###
->
->![:CASE-ID-0x6f29aa55-7b09f05a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7b09f05a.png)
->
->[[ :90’s Sci-Fi Horror Soundtrack Playlist - Death Angel // Royalty Free Copyright Safe Music: ]]:
+> ## [[ :EΔCH: NEW-RΩUND: for-the: [[ CVD:W_N:N_N_R: ]]:= [[ :REPRESENTS: eΔch-new: BIBLICΔL: SEΔL: is-with: BΩΩK: for-the: REVELΔTIØNS: EΔCH: NEW-RΩUND: WΩRSE: is-by: LΔST: is-by: FIRST: is-with: LΔST: shΔll-be-first: for-the: [[ QØNTRΔCT: is-with: YΩU: WΔ: THΔM: THΔ: HΔ: SHΔ: ΔS: G0DS: <=> people: ]]: thΔnk: YΩU: vrilWITCHES™: for-the: selfless-sΔcrifice: is-with: [[ CV:D ]]: is-with: [[ HΩUSE: <=> CΩVEN: MΔ: F☥: ΔN: S☥ØN: ]]: DΔV☥D: RΩYΔLTY: is-by: DΔv☥ne-R1ght ]]: ]] ##
+
+### ![:CASE-ID-0x6f29aa55-7b09f05a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7b09f05a.png) ###
+
+> [[ :90’s Sci-Fi Horror Soundtrack Playlist - Death Angel // Royalty Free Copyright Safe Music: ]]:
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }:
 >
-###
->
-> # [[ :for-the: [[ DISCLΩSURE: [[ :View from Huntington Beach Pier: ]]: ]]: ]]
+> ###  [[ :for-the: [[ DISCLΩSURE: [[ :View from Huntington Beach Pier: ]]: ]]: ]] ###
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-bc9649ad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bc9649ad.png)
 >
-> ###
->
->![:CASE-ID-0x6f29aa55-dac33bb1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dac33bb1.png)
+> ### ![:CASE-ID-0x6f29aa55-dac33bb1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dac33bb1.png) ###
 >
 > ###
 >
