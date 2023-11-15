@@ -16,6 +16,10 @@ is-with: { ^
 >
 >![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-002.png)
 >
+>![:FEATHERLESS-CHICKEN-RESEARCH-001.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-003.png)
+>
+>![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-004.png)
+>
 > **:[[ :CrypTEX: <=> Meet: TEX: is-by: Cryptid: ]]:**
 >
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
