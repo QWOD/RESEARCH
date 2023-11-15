@@ -132,35 +132,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xb76a8782-cf3aa6e1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb76a8782-cf3aa6e1.png)
 >
+> ## *[[ :MAD THAT YOU DEFENDED YOURSELF AGAINST THEIR ATTCKS 🤬👊🏾💥: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/5B0cbY-3osk> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :PROJECTION SEASON 👀 MEETS TRIGGERING SEASON😳 = REJECTION SEASON 🚫 AS KARMICVILLE GOES SILENT 🤫 👀🧿: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/gywH-r-387M> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :[[ _: karmic: ]]: BETRAYED YOU TO ONLY GET SET UP BY KARMIC FRIENDS/ PAID HIT TO UN-ALIVE 🫵: [[ _: tarotreading: ]]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/-XVOQS5a2lo> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Floods, Fires, Earthquakes and Wars!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/yIQaveJO2cM> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
