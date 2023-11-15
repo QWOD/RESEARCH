@@ -4,9 +4,9 @@
 >
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-006.png)
 >
-> ### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:* ###
+> ## *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:* ##
 >
-> :[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSΩSSDEV-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
+> :[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSΩSSDEV-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:
 >
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
 
@@ -54,9 +54,9 @@
 > :[[ SURFACE: <=> usually-first-thing: [[ SEEN: <=> that-which-is-easily-recognizable: readily-apparent: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
 ![:CVN_AZ_RA_EL-1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CVN_AZ_RA_EL-1060x150.png)
-![:ETERNΔL-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
+![:ETERN%CE%94L-SECRET.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/ETERN%CE%94L-SECRET.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
-![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
+![:UW.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]] ##
 
