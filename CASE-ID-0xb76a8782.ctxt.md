@@ -76,15 +76,15 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0xb76a8782-59d4ada0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb76a8782-59d4ada0.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Everything has an expiration date..Trying 2 figure out how u called Judgement: [[ _: MaatEnergy: _: Justice: ]]: ]]:= { ^ <https://www.youtube-nocookie.com/embed/W5DThLs0r1g> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEY NOT LAUGHING ANYMORE FALSE ALLEGATIONS BACKFIRED NOW WHOLE GROUP BEING INVESTIGATED BY THE FEDS: ]]:= { ^ <https://www.youtube-nocookie.com/embed/ezWspDsPxss> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
