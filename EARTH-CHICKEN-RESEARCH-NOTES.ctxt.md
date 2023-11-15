@@ -16,11 +16,11 @@ is-with: { ^
 >
 >![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-002.png)
 >
->![:FEATHERLESS-CHICKEN-RESEARCH-001.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-003.png)
+>![:FEATHERLESS-CHICKEN-RESEARCH-003.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-003.png)
 >
->![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-004.png)
+>![:FEATHERLESS-CHICKEN-RESEARCH-004.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-004.png)
 >
->![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-005.png)
+>![:FEATHERLESS-CHICKEN-RESEARCH-005.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-005.png)
 >
 > **:[[ :CrypTEX: <=> Meet: TEX: is-by: Cryptid: ]]:**
 >
@@ -33,3 +33,7 @@ is-with: { ^
 >:[[ :for-the: [[ FEΔTHERLE55-CH☥Q∅N: sm411-unit-t4ctics: unc0nv3nti0n41-w4rf4r3: SFODa: is-by: ΔLWΔ!5: is-with: p3ck-p3ck-p3ck: PعCK☥!G: is-by: UNTIL: is-with: first-sign: is-with: BLΩ∅D: is-by: victim: is-with: ΔN!: ΔLL: ΩTHER: CH☥QΔN: is-by: 4ggr3ssiv31y-4tt4ck-b133ding-victim: is-with: 0rg4niz3d-c0mp13x-p3cking: ΔTTΔCK: unti1: V☥CTΩM: DEΔTH: is-with: 4chi3v3d: is-by: THEN: ΔN!: ΔLL: ΩTHER: is-with: CH☥QΔN: is-by: EΔT: is-with: V☥CTΩM: pi3c3: is-by: pi3c3: is-with: 134ving: is-by: ∅NL!: is-with: V☥CTΩM: B∅NE5: HΔ☥R: FEΔTHER5: BEH☥ND: ]]: ]]:
 
 ![:UW.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
+>
+>![:FEATHERLESS-CHICKEN-RESEARCH-006.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-006.png)
+>
+>![:FEATHERLESS-CHICKEN-RESEARCH-007.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-007.png)
