@@ -39,5 +39,3 @@ is-with: { ^
 >![:FEATHERLESS-CHICKEN-RESEARCH-006.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-006.png)
 >
 > ![:FEATHERLESS-CHICKEN-RESEARCH-007.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-007.png)
->
-> ###
