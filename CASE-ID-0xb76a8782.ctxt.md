@@ -28,33 +28,33 @@
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 
-### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
-
+> ### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
+>
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0xb76a8782-24403c8a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb76a8782-24403c8a.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :LIVE Iceland Volcano Eruption HAS BEGUIN!: ]]:= { ^ <https://www.youtube-nocookie.com/embed/E7r5i-EU19Q> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Who hired a karmic spiritualist to betray you? Mocking you & God rejected their ascension!: ]]:= { ^ <https://www.youtube-nocookie.com/embed/R3NqUXcXgYk> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Canada In Danger! Thunderstorms & Hailstorm Hit Ontario, Houses, Cars Destroyed | Natural Disasters: ]]:= { ^ <https://www.youtube-nocookie.com/embed/JmN3h8qpK68> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :URGENT‼️DO NOT TRUST THIS PERSON 🤡: ]]:= { ^ <https://www.youtube-nocookie.com/embed/gqPGJ1sd23o> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
