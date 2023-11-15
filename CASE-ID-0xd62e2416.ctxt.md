@@ -702,9 +702,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :USS Boxer (LHD-4) w/full deck!!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/n-6tkUrc9X0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
