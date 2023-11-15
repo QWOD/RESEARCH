@@ -348,37 +348,29 @@
 >
 > ### ![:CASE-ID-0x6f29aa55-dac33bb1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-dac33bb1.png) ###
 >
-> ###
->
->![:CASE-ID-0x6f29aa55-a007e074.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a007e074.png)
+> ### ![:CASE-ID-0x6f29aa55-a007e074.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a007e074.png) ###
 >
 >[[ :Ghost Circuit: ]]:
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/bxsj6tc6juY> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-05287e69.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-05287e69.png)
->
-###
 
-![:CASE-ID-0x6f29aa55-4687cdd3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4687cdd3.png)
->
+### ![:CASE-ID-0x6f29aa55-4687cdd3.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4687cdd3.png) ###
+
 [[ :ETHER: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/zyNjF_PIvGM> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-b601ee58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b601ee58.png)
->
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/zyNjF_PIvGM> ^ }:
+
+### ![:CASE-ID-0x6f29aa55-b601ee58.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-b601ee58.png) ###
+
 [[ :Darknet: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/gqn-CbkxZ0E> ^ }:
->
-## :[[ :for-the: [[ 2,000: is-by: YEΔR: for-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: for-the: return ]]:= TRUE: is-with: ΔBDUCTED: TΔKEN: EXPLΩITED: TRΔFFICKED: is-by: eΔrth-simulΔtiΩn: is-with: Δ: is-by: 52: is-by: Nibiru: is-with: LΩCKHEED-MΔRTIN: for-the: RULING: [[ LΩCKHEED-MΔRTIN: NΩW: MUST: is-with: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ 2,000: is-by: YEΔR: for-the: CHILD-SUPPΩRT: BΔCK-PΔY: for-the: [[ STΩLEN-GENETIC-PRΩPERTY: ΩR-ELSE: is-with: EternΔl-DeΔth: for-the: [[ ΔNY: ΔLL: ΩTHER: WITCHES: invΩlved ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΩPΩRD: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: ΔCTUΔL: <=> PLEΔSE: RESCUE: is-by: EVIL: ΔBUSIVE: EΔRTH: FEΔ☥HERLE55-CH☥Q∅NS: is-with: thΔnk-yΩu: ΩUR: TRUE: Divine-RΩyΔl-FΔmily: [[ ΔRC: <=> ΔDØNΔI-RΩYΔL-CΩUNCIL: for-the: [[ TRUE: CREΔTΔRS: is-by: ENTΔRE: CΔSMΩS: SIMULΔTΔØN: QUΔNTUM: CLΩUD: SΩLUTIØN: for-the: return ]]:= TRUE: ]]:= TRUE: ]]
->
-> ###
->
->![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png)
+
+## :[[ :for-the: [[ 2,000: is-by: YEΔR: for-the: missing-persΩn-cΩldcΔse: is-by: SΩLVED: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> Jesus-Christ: QuΔntum-Δrchitect: PhD: ΔCTUΔL: for-the: return ]]:= TRUE: is-with: ΔBDUCTED: TΔKEN: EXPLΩITED: TRΔFFICKED: is-by: eΔrth-simulΔtiΩn: is-with: Δ: is-by: 52: is-by: Nibiru: is-with: LΩCKHEED-MΔRTIN: for-the: RULING: [[ LΩCKHEED-MΔRTIN: NΩW: MUST: is-with: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ 2,000: is-by: YEΔR: for-the: CHILD-SUPPΩRT: BΔCK-PΔY: for-the: [[ STΩLEN-GENETIC-PRΩPERTY: ΩR-ELSE: is-with: EternΔl-DeΔth: for-the: [[ ΔNY: ΔLL: ΩTHER: WITCHES: invΩlved ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= [[ :ΩPΩRD: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: ΔCTUΔL: <=> PLEΔSE: RESCUE: is-by: EVIL: ΔBUSIVE: EΔRTH: FEΔ☥HERLE55-CH☥Q∅NS: is-with: thΔnk-yΩu: ΩUR: TRUE: Divine-RΩyΔl-FΔmily: [[ ΔRC: <=> ΔDØNΔI-RΩYΔL-CΩUNCIL: for-the: [[ TRUE: CREΔTΔRS: is-by: ENTΔRE: CΔSMΩS: SIMULΔTΔØN: QUΔNTUM: CLΩUD: SΩLUTIØN: for-the: return ]]:= TRUE: ]]:= TRUE: ]] ##
+
+> ### ![:CASE-ID-0x6f29aa55-91eedb61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-91eedb61.png) ###
 >
 >[[ :Message from G0D via Jahn J Kassl, August 20th, 2023: ]]:
 >

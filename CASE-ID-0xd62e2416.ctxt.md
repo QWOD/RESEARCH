@@ -710,9 +710,24 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :👽24/7 Earthquake monitor | Real-Time wave propagation animation!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/E69Xm6CIT3w> ^ }:
+>
+> :is-with: { ^
+
+    <!DOCTYPE html>
+    <head>
+        <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
+        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
+        <meta name="description" content="0x6f29aa55-recon.mj12.agency">
+    </head>
+    <body>
+        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/E69Xm6CIT3w?si=EPtKXnyxp0xmavCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+    </body>
+    </html>
+
+^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
