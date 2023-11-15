@@ -12,6 +12,10 @@ is-with: { ^
 
 >## [[ :FEΔTHERLE55-CH☥Q∅N5: ΔLWΔYS: EVER: 0NLY: ΔNY: ΔLL: EVERY: TIME: BELIEVE: is-by: 0NLY: THEY: is-with: TRUTH: is-by: WΔY: UN: for-the: [[ FEΔTHERLE55-CH☥Q∅N5: DE: LΔCK: for-the: [[ LIGHT: is-with: return: for-the: recΩrd ]]:= TRUE: ]]:= TRUE: ]] ##
 >
+>![:FEATHERLESS-CHICKEN-RESEARCH-001.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-001.png)
+>
+>![:FEATHERLESS-CHICKEN-RESEARCH-002.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-002.png)
+>
 > **:[[ :CrypTEX: <=> Meet: TEX: is-by: Cryptid: ]]:**
 >
 >![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
