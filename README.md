@@ -18,7 +18,7 @@
 >
 > :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
 
-## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE ##
+## :[[ :fΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE: ]]: ]] ##
 
 ![Rعي:ΔRC](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 > :is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSΩSSDEV: SECRΔT: is-by: TRUE: ]]:
