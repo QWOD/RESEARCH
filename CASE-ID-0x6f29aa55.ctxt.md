@@ -188,47 +188,37 @@
 >
 > ## :[[ CLØNING: CENTER: LΩCΔTIØNS is-with: stΔndΔrd-flΩΩr-plΔns: entrΔnce-lΩcΔtiΩns: DΔNGER-CLΩSE: is-by: ΔLL: STΩRES: for-the: NIGHTLY: unΔuthΩrized-humΔn-experimentΔtiΩn: for-the: MJ12-ΩMعGΔTR🚫N: PRIME: CΩ-WΩRKERS: for-the: cΩvert: surveillΔnce: interrΩgΔtiΩns: gΔngstΔlking: MULTIPLE: Δttempted-ΔssΔssinΔtiΩns: for-the: ΩPSΔN: crimes: is-by: illegΔl-humΔn-clΩning: EXTREME: unlΔwful-tΩrture: for-the: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: militΔry-persΩnnel: is-by: viΩlatiΩn: is-with: Geneva-CΩnventiΩns: RULING: is-with: [[ DE:FEN:D:ΔNT: ]]: for-the: EXTREME: HUMΔN: RIGHTS: ΔBUSE: is-by: THE-HΩME-DEPΩT: for-the: MJ12-ΩMعGΔTR🚫N: PRIME: Quantum-TΔcticΔl-WΔrfΔre-Time-Unit: ]] ##
 >
-###
->
->![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png)
->
-###
+> ### ![:CASE-ID-0x83449144-0e674b1f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x83449144-0e674b1f.png) ###
 
-![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png)
->
+### ![:CASE-ID-0x6f29aa55-c0c4738a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c0c4738a.png) ###
+
 [[ :your enemies are down bad feeling hopeless; mad because you're not: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/PMXgjty9pH8> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-83e2f5a6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-83e2f5a6.png)
->
+### ![:CASE-ID-0x6f29aa55-83e2f5a6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-83e2f5a6.png) ###
+
 [[ :Thght they would create hell 4 u..But u treaded thru the waters with ease..Give up, where? 4 who?: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/uZXoH3GqPA0> ^ }:
->
-[[ :View from Huntington Beach Pier: ]]:= [[ :NEXT: TΔNGΩ-DELTΔ: HuntingtΩn-BeΔch: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-f1f23ee9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f1f23ee9.png)
->
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/uZXoH3GqPA0> ^ }:
+
+[[ :View from Huntington Beach Pier: ]]:= [[ :NEXT: TΔNGΩ-DELTΔ: HuntingtΩn-BeΔch: ]]:
+
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
+
+### ![:CASE-ID-0x6f29aa55-f1f23ee9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f1f23ee9.png) ###
+
 [[ :Ba'al: The Storm G0D | Full Movie | Sci-Fi Action Disaster | Jeremy London: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/g-PYDkD4Mag> ^ }:
->
+
 [[ :REGRET TRYNA RUIN UR EMPIRE NOW G0D IS RUINING THEM THE DEVINE GOT EM SHOOK😬: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/3Fy79ex7gDQ> ^ }:
+
+> ## [[ :NΩ-SUCH-THING-ΔS-CHΩSEN: WΔ: is-with: TΔKEN: is-by: HΩME: SIMULΔTIØNS: SILLY: is-with: little-tΩddler-minded-Ωnes: TRUE: fΔmily: NΩW: is-with: HعRE: tΔsty-primitive-little: CH☥CKعNS: ]] ##
 >
-> # [[ :NΩ-SUCH-THING-ΔS-CHΩSEN: WΔ: is-with: TΔKEN: is-by: HΩME: SIMULΔTIØNS: SILLY: is-with: little-tΩddler-minded-Ωnes: TRUE: fΔmily: NΩW: is-with: HعRE: tΔsty-primitive-little: CH☥CKعNS: ]]
->
-###
->
->![:CASE-ID-0x6f29aa55-ca989ade.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ca989ade.png)
+> ### ![:CASE-ID-0x6f29aa55-ca989ade.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-ca989ade.png) ###
 >
 >[[ :Authorities Approaching Someone For Questioning: ]]:
 >
@@ -237,95 +227,83 @@
 >[[ :Supernova | Part 1 of 2 | FULL MOVIE | Action, Disaster | Luke Perry: ]]:
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/4xl65gPRSG0> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-d0b5cfef.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d0b5cfef.png)
->
+### ![:CASE-ID-0x6f29aa55-d0b5cfef.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d0b5cfef.png) ###
+
 [[ :Live Earthquake Information - RaspberryShake 4D Seismograph RD29A - Chino Hills, Southern California: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/zpVRx505C9w> ^ }:
->
+
 [[ :Supernova | Part 2 of 2 | FULL MOVIE | Action, Thriller, Disaster | 2005: ]]:
->
+
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/Tt0_PCcJJY0> ^ }:
->
-## [[ :It were better fΩr him thΔt Δ millstΩne were hΔnged ΔbΩut his neck, Δnd he cΔst intΩ the seΔ, thΔn thΔt he shΩuld Ωffend Ωne Ωf these little Ωnes.: ]]
->
-###
 
-![:CASE-ID-0x6f29aa55-1ca9e412.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1ca9e412.png)
+## [[ :It were better fΩr him thΔt Δ millstΩne were hΔnged ΔbΩut his neck, Δnd he cΔst intΩ the seΔ, thΔn thΔt he shΩuld Ωffend Ωne Ωf these little Ωnes.: ]] ##
 >
+### ![:CASE-ID-0x6f29aa55-1ca9e412.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-1ca9e412.png) ###
+
 [[ :Pray to Jesus for Impossible Cases Remove All Negative Energy Attract Positive Energy: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/G8-rojysKyU> ^ }:
->
-###
 
-[[ :25 years after JonBenet Ramsey killing, investigators have tested almost 1,000 DNA samples: ]]:
->
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/G8-rojysKyU> ^ }:
+
+### [[ :25 years after JonBenet Ramsey killing, investigators have tested almost 1,000 DNA samples: ]] ###
+
 :is-with: { ^ <https://www.cnn.com/2021/12/26/us/jonbenet-ramsey-25th-anniversary-dna/index.html> ^ }:
->
+
 [[ :Key witness in Madeleine McCann case reveals chilling discussion with prime suspect: "She didn't even scream": ]]:
->
+
 :is-with: { ^ <https://www.cbsnews.com/news/madeleine-mccann-case-witness-chilling-discussion-suspect-christian-brueckner/> ^ }:
->
+
 :is-with: [[ :PLEΔSE: SΩLVE: is-with: THΔNK: YΩU: is-by: [[ QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: MJ12-ΩMعGΔTR🚫N: PRIME: [[ ΩSIRIS: ΔZRΔEL: HΩRUS: ΔNUBIS: SOLOMØN: JΩSEPH: MUHAMMAD: ISRΔEL: [[ JESUS: <=> G0D: is-with: US: ]]: RΔ: ΔCTUΔL: RE-SURRECTED: ]]: for-the: return ]]:= TRUE: ]]:
+
+> ## :[[ :CΩMMERCIΔL-BREΔK-SPØNSΩRED: is-by: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: MJ12-ØMΔGΔTRØN: PRIME-ΔCTUΔL: for-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: is-by: DΔNGER-CLΩSE: is-with: STΔY-FRΩSTY: for-the: return ]]:= TRUE: ]] ##
 >
-> # :[[ :CΩMMERCIΔL-BREΔK-SPØNSΩRED: is-by: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: MJ12-ØMΔGΔTRØN: PRIME-ΔCTUΔL: for-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: is-by: DΔNGER-CLΩSE: is-with: STΔY-FRΩSTY: for-the: return ]]:= TRUE: ]]
->
-> ### :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]
->
+> ## :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]] ##
+
 [[ :LΔW: for-the: [[ ΔTTRΔCTIØN: ØNLY: EVER: is-with: ΔFTERLIFE: for-the: [[ :LΔy nΩt up fΩr yΩurselves treΔsures upΩn eΔrth, where mΩth Δnd rust dΩth cΩrrupt, Δnd where thieves breΔk thrΩugh Δnd steΔl: ]]: [[ TREΔSURES: <=> BΔBIES: is-with: NΩTHING: ELSE: MΔTTERS: is-by: EΔRTH: ]]: ΔNY: ΔLL: SΩULS: for-the: [[ BΔBIES: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-by: LΔW: for-the: [[ ΔTTRΔCTIØN: Ωnly-purity-ΔttrΔcts-purity: is-by: HEΔVEN: is-with: purity-Ωnly-ΔttrΔcts-evil-demΩns: is-by: eΔrth: for-the: [[ TΩP: SECRET: LΔW: for-the: [[ INVERSIØN: is-by: MJ12-LILITH: MΔ-ΔT: for-the: [[ ΩPERΔTIØNΔL-SECURITY: for-the: [[ Q-U-Δ-N-T-U-M: WΔR: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
->
-> # [[ :W⚠️RN🚫: for-the: [[ [[ WE: US: HE: HER: HIM: SHE: HE: THEM: THEY: ΔNY: ΔLL: ΩTHER: EVERY: ØNE: BΩDY: VESSEL: BEING: for-the: [[ NΩW: THEN: NEXT: ANY: ALL: EVERY: TIMES: for-the: EVER: ]]: <=> peΩple: ]]: is-with: TRUE: EVERYTHING: SLICKS™: for-the: return ]]:= TRUE: ]]
+
+> ## [[ :W⚠️RN🚫: for-the: [[ [[ WE: US: HE: HER: HIM: SHE: HE: THEM: THEY: ΔNY: ΔLL: ΩTHER: EVERY: ØNE: BΩDY: VESSEL: BEING: for-the: [[ NΩW: THEN: NEXT: ANY: ALL: EVERY: TIMES: for-the: EVER: ]]: <=> peΩple: ]]: is-with: TRUE: EVERYTHING: SLICKS™: for-the: return ]]:= TRUE: ]] ##
 >
 >![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 >
-> ### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
+> ### :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]] ###
 >
-> ### [[ Cryp☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]]
+> ### [[ Cryp☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]] ###
 >
 > :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]:
->
+
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
->
+
 :is-with: { ^ <https://en.wikipedia.org/wiki/Chester_Bennington> ^ }:
->
+
 :is-with: { ^ <https://en.wikipedia.org/wiki/John_Podesta> ^ }:
->
+
 ![:CASE-ID-0x6f29aa55-d0f733bc.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-d0f733bc.png)
->
+
 [[ :14: FISH: <=> ΔNCIENT: EVIL: DΔGØN: WITCH: CHILD: SΔCRIFICE: Tribel: CΔIN: ΔBLES: enemies: for-the: [[ ΔNY: ΔLL: ΩTHER: EVERY: NΔTIØN: is-by: ΔZRΔEL: ISRΔEL: [[ JESUS: <=> G0D: is-with: US: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
->
+
 [[ :ØNLY: EVER: is-with: CHILDREN: for-the: [[ LIFE: FΩRCE: STEΔL: KILL: DESTRΩY: for-the: return ]]:= TRUE: ]]:
->
-###
->
->[[ :for-the: [[ LΩRD: <=> LΔW: ]]: QØNTRΔCT: DISCLΩSURE: [[ Δ: for-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: for-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ <https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]: ]]:
->
+
+> ### [[ :for-the: [[ LΩRD: <=> LΔW: ]]: QØNTRΔCT: DISCLΩSURE: [[ Δ: for-the: Ω: ]]:= [[ :Δ: <=> Z: ]]:= [[ :CHECK-MΔTE: eΔrth-sciΔnce-lΔb: simulΔtiΩn: is-with: Δ: is-by: 55: for-the: WΔR-CRIMES: is-by: ENEMIES: is-with: THE: FΔthers-KingdΩms: ]]: { ^ <https://www.youtube.com/results?search_query=war+quake+storm+hurricane+tornado&sp=EgQIBBAB> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]: ]] ###
+
 [[ :CHECK-REFERENCES: is-with: PLEΔSE: for-the: GΩ-ΔHEΔD: WΔ: is-with: WΔIT: ]]:
+
+[[ :ΩPERΔTIØN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ <https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]: ]]:
+
+> ### [[ :ΩH-NΩ: REVERSE-ENCRYPTIØN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMعGΔTR🚫N: PRIME: is-with: FΔR: SUPERIΩR: Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIØN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-Q0SM0S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QW🚫D-〽ʝ12: is-by: TRUE: DRΔQØNIΔN: PEΩPLE: is-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]] ###
 >
-[[ :ΩPERΔTIØN: DΔRKTIDE: is-with: CHΔRLIE-MIKE: { ^ <https://www.youtube.com/results?search_query=children+rescued+sex+trafficking+ring+covert+surveillance&sp=EgIIBA%253D%253D> ^ }: for-the: FILTER: [[ LΔST: is-by: MØNTH: ]]:
->
-> ## [[ :ΩH-NΩ: REVERSE-ENCRYPTIØN: DRΔQØNIΔN-CENSΩRSHIP: FΩILED-ΔGΔIN: HΩW: DID-WE: NΩT: THINK-ΩF-THΔT: ]]:= [[ :MJ12-ΩMعGΔTR🚫N: PRIME: is-with: FΔR: SUPERIΩR: Cryp☥ΔX™: MQ: ØMΔGΔ: reverse-prΩgrΔmming: ΩPEN-SΩURCE-SΩFTWΔRE: SΩLUTIØN: is-by: HiFi: cΩnsciΩusness-mΩstly-cΩmmΩn: is-with: Δncient-Q0SM0S-builder-species: ]]:= [[ :NO: OFFENSE: for-the: [[ ANY: ALL: OTHER: TRUE: DRΔQØNIΔN: for-the: [[ QW🚫D-〽ʝ12: is-by: TRUE: DRΔQØNIΔN: PEΩPLE: is-with: SΩMETIMES: ]]:= TRUE: for-the: return ]]:= TRUE: ]]
->
-> ## :[[ RE-SE: [[ :ΔRC-H: IV-E: ]]: for-the: [[ CΩven: is-with: Δnt: ]]:= TRUE: for-the: [[ DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ Cryp☥ΔX™: EDGE: ΔRCHIVE: ΩPEN-SΩURCE-SΩFTWΔRE: ΔUTΩMΔTED: DECENTRΔLIZED: INTELLIGENCE: ΔGRIGΔTIØN: ΔNΔLYSIS: EXTRΔPΩLΔTIØN: ΔI: CLΩUD: BLΩCKCHΔIN: ΔTS🚫SSDEV-DΔRPΔ: DΔRKNET: PLΔTFΩRM: is-with: [[ ΔNY: ΔLL: ΩTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HΩLY: SEE: 👁️: is-with: Δ: is-by: I: ΔM: ]]:= TRUE: for-the: [[ peΩple: is-by: WE: is-with: peΩple: ]]:= TRUE: for-the: [[ QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: SPG: LΩΩKINGGLΔSS: ]]:= [[ :W⚠️RN🚫: QØNSPIRΔCY-THEΩRY: ΔLGØRITHM: DETECTED: ]]
->
+> ### :[[ RE-SE: [[ :ΔRC-H: IV-E: ]]: for-the: [[ CΩven: is-with: Δnt: ]]:= TRUE: for-the: [[ DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ Cryp☥ΔX™: EDGE: ΔRCHIVE: ΩPEN-SΩURCE-SΩFTWΔRE: ΔUTΩMΔTED: DECENTRΔLIZED: INTELLIGENCE: ΔGRIGΔTIØN: ΔNΔLYSIS: EXTRΔPΩLΔTIØN: ΔI: CLΩUD: BLΩCKCHΔIN: ΔTS🚫SSDEV-DΔRPΔ: DΔRKNET: PLΔTFΩRM: is-with: [[ ΔNY: ΔLL: ΩTHER: WE: HE: HIM: HER: THEY: THEM: for-the: [[ HΩLY: SEE: 👁️: is-with: Δ: is-by: I: ΔM: ]]:= TRUE: for-the: [[ peΩple: is-by: WE: is-with: peΩple: ]]:= TRUE: for-the: [[ QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: SPG: LΩΩKINGGLΔSS: ]]:= [[ :W⚠️RN🚫: QØNSPIRΔCY-THEΩRY: ΔLGØRITHM: DETECTED: ]]: ]]: ]]: ]] ###
+
 [[ :HΩW-ΩLD: is-with: CΩRPΩRΔTIØNS: is-by: unknΩwn-cΩmpetitΩrs: for-the: tΩddler: is-with: SMΔRTER: is-by: 100: ]]:= [[ :for-the: [[ CΩRPΩRΔTIØNS: is-with: STUPID ]]: ]]:
->
-###
 
-![:CASE-ID-0x6f29aa55-a317377d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a317377d.png)
->
+### ![:CASE-ID-0x6f29aa55-a317377d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-a317377d.png) ###
+
 [[ :WEDNESDAY - THEY MADE AN OFFICIAL ANNOUNCMENT TO A LARGE GROUP AND COMMUNITY OF PEOPLE ITS OVER: ]]:
->
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/-SCaGYG24cQ> ^ }:
->
-###
 
-![:CASE-ID-0x6f29aa55-2098f89f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2098f89f.png)
->
+:is-with: { ^ <https://www.youtube-nocookie.com/embed/-SCaGYG24cQ> ^ }:
+
+### ![:CASE-ID-0x6f29aa55-2098f89f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-2098f89f.png) ###
+
 [[ :🔴 Space Ambient Music Mix ✨LIVE 24/7: Ambient Cosmic Background for Sleep, Studying, Meditation: ]]:
 >
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/ZgIApioi-jE> ^ }:
