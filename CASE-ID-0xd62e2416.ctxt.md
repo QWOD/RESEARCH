@@ -694,9 +694,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Half of China Underwater Shocking Aerial Footage of Devastation: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Pin7YqpNE68> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
