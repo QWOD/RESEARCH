@@ -90,13 +90,13 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Occult Bloodlines of Canaan - ROBERT SEPEHR: ]]:= { ^ <https://www.youtube-nocookie.com/embed/OGvHKg0vKVs> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THIS WAS A HUGE BETRAYAL FROM YOUR FAMILY. THEY MADE A BIG MISTAKE COMING FOR YOU...: ]]:= { ^ <https://www.youtube-nocookie.com/embed/NjSd9alH_fA> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
