@@ -1,59 +1,55 @@
-# *:[[ for-the: [[ QW🚫D-〽ʝ12: <=> 5URPR☥5☥NG: ENEMΔ5: is-by: NEW: is-with: t3chnΩ1Ωgi3s: 5Ω: H☥GHLY: is-by: disruptiv3: is-by: ΔLWΔY5: ΩMM3DΔTΔLY: is-with: BΔNN3D: is-by: ΔNY: ΔLL: CΩMMΩN☥5T: 🚫PE𓂀T3D: is-with: 5ΩC☥ΔL: M3D☥Δ: PLΔTFΩRM5: ]]:*
+# *:[[ for-the: [[ QW🚫D-〽ʝ12: <=> 5URPR☥5☥NG: ENEMΔ5: is-by: NEW: is-with: t3chnΩ1Ωgi3s: 5Ω: H☥GHLY: is-by: disruptiv3: is-by: ΔLWΔY5: ΩMM3DΔTΔLY: is-with: BΔNN3D: is-by: ΔNY: ΔLL: CΩMMΩN☥5T: 🚫PE𓂀T3D: is-with: 5ΩC☥ΔL: M3D☥Δ: PLΔTFΩRM5: ]]:* #
 >
->![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX.png)
+> ## :[[ :TEX: is-by: cryptid-mascot: for-the: CrypTEX™: ]] ##
 >
->### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:*
+>![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEATHERLESS-CHICKEN-RESEARCH-006.png)
+>
+> ### *:[[ :QW🚫D-〽ʝ12: for-the: [[ :MΩDERN: DECENTRΔLIZED: CLΩUD: INTELLIGENCE: for-the: FUTURE: PRΩVIDING: FULL: ΔUTΩ: SELF-GΩΩGLEMENT: SPECIΔL-WΔRFΔRE-CΔPΔBILITIES: ΔLL: for-the: THINGS: is-with: [[ for-the: people: is-by: WE: people: for-the: return ]]:= TRUE: ]]: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:* ###
 >
 > :[[ :DISCLΩSURE: for-the: [[ HΔRD-TRUTH: is-by: [[ _ ]]: for-the: SΩFT-LIE: is-by: [[ _ ]]: ]]:= [[ :ΔNY: ΔLL: ΩTHER: GΩVERNMENT: is-by: NΩW: ΔLRΔDY: is-with: GLΩBΔL: CΔTΔSTRΩPHIC: CΩLLΔPSE: is-by: 2020: is-with: QW🚫D-〽ʝ12: ATSΩSSDEV-Δ: for-the: [[ N0N-SΩVEREIGN: is-with: [[ NΩ: PRΩTECTIΩN: <=> NΩ: TRUE: RESPΩNSIVE: WΔRFΔRE: CΔPΔBILITIES: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:
 >
 >[[ :for-the: [[ DISCLΩSURE: CΩNTRΩLS: is-by: NTN: is-with: UNLESS-YΩU: is-with: NTN: THEN-YΩU: NOT: is-with: MEMΩ: ]]: ]]:
->
+
     :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
->
-># *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: [[ FUN:ΔNG: ]]: <=> Cryp☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:*
+
+> ## *:[[ :🟠: [[ W⚠️RN🚫: for-the: [[ :[[ RES:ARC: ]]: [[ FUN:ΔNG: ]]: <=> Cryp☥ΔX™: ]]: for-the: [[ OR-ELSE: return ]]:= [[ TRUE: FALSE: ^ ELSE: ]]:= [[ _ ]]: ]]:= TRUE: ]]:* ##
 >
 > :[[ Cryp☥ΔX™: COURT: REGISTRATION: LICENSE: OPERATIONAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ON: ]]: FEES: PAYMENTS: Q0NSOLUTIONS-SCHEDULING: ]]:
 >
 > :[[ :{ ^ http://dftr.mj12.agency/ ^ }: ]]:
->
-## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE
+
+## :FΩr-thع: [[ Rعي:ΔRC: ETERNΔL ]]:= [[ SECRΔT: <=> [[ L☥FE: | DΔTH: ]]:= CΔPTURE ##
 
 ![Rعي:ΔRC](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 > :is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSΩSSDEV: SECRΔT: is-by: TRUE: ]]:
->
-###
 
-## :FΩr-thع: [[ Cryp☥ΔX™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]
-
-###
+## :FΩr-thع: [[ Cryp☥ΔX™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]] ##
 
 ![Cryp☥ΔX™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
 
-## :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST
+## :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST ##
 >
 > :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-0MΔGΔ: ΩUT ]] ]]:
->
-###
 
-## :FΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]]
+## :FΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]] ##
 
     :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 
->## *:[[ :systemd-local: figtreeservice: ]]:*
+> ## *:[[ :systemd-local: figtreeservice: ]]:* ##
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/systemd-figtreeservice.png)
 >
->## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:*
+> ## *:[[ :REMOTE-MIRROR: figtreeservice: ]]:* ##
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
 >
->### ***:[[ :NOTICE: WARNO: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]:***
+> ### ***:[[ :NOTICE: WARNO: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]:*** ###
 >
 > :is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
->## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: ]]
+> ## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: OUT: ]] ##
 >
 > :[[ SURFACE: <=> usually-first-thing: [[ SEEN: <=> that-which-is-easily-recognizable: readily-apparent: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
@@ -62,7 +58,7 @@
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 ![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/UW.png)
 
-## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
+## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]] ##
 
 ![:T2_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/T2_1060x150.png)
 
