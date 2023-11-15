@@ -20,7 +20,7 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0xb76a8782: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]] ##
+[[ :for-the: [[ CASE-ID-0xb76a8782: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]]
 
 :[[ :{ ^ <http://0xb76a8782-recon.mj12.agency/> ^ }: ]]:
 
