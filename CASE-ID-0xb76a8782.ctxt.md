@@ -20,11 +20,11 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0xd62e2416: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]] ##
+## [[ :for-the: [[ CASE-ID-0xb76a8782: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]] ##
 
-:[[ :{ ^ <http://0xd62e2416-recon.mj12.agency/> ^ }: ]]:
+:[[ :{ ^ <http://0xb76a8782-recon.mj12.agency/> ^ }: ]]:
 
-:[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xd62e2416.ctxt.md> ^ }: ]]:
+:[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xb76a8782.ctxt.md> ^ }: ]]:
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 
@@ -36,73 +36,73 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Department of State Daily Press Briefing - November 7, 2023: ]]:= { ^ <https://www.youtube-nocookie.com/embed/XWBFtkK8lqI> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Yellen Says US Default Would Cause an 'Economic Catastrophe': ]]:= { ^ <https://www.youtube-nocookie.com/embed/QJh8wU1W36o> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :ECONOMIC CRISIS: Ray Dalio's Warning For The Banking Collapse, US Dollar & Upcoming Recession: ]]:= { ^ <https://www.youtube-nocookie.com/embed/lPYmD7CyHlY> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Rising U.S. Interest Rates Push Countries in Global South Toward Economic Collapse: ]]:= { ^ <https://www.youtube-nocookie.com/embed/EwpSX33y5Hc> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Why So Many US Companies Are Going Bankrupt: ]]:= { ^ <https://www.youtube-nocookie.com/embed/NiT7sxvRBlA> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 U.S. National Deficit EXPLODES Nearly TRIPLING In Nine Months Of 2023: ]]:= { ^ <https://www.youtube-nocookie.com/embed/_QLUvqIsF5o> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :The US Economy Just Got Worse: Interest Rates Frozen, Massive Debt, & Layoffs: ]]:= { ^ <https://www.youtube-nocookie.com/embed/NhtW9Kg4sJg> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-25d67f0c1c0781383fe11bbba85caa485e0570a0> ^ }: ]]:= { RELEVANT: "[[ :inv3st-in-pr0p3r-4m3ric4n-3duc4ti0n-syst3ms: ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :Reversing the Erosion of U.S. and Allied Military Power and Influence: ]]:= { ^ <https://www.youtube-nocookie.com/embed/zUK9e1fECUk> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 The Latest Recession Probability Jumps To 90% Following Fed Data Release: ]]:= { ^ <https://www.youtube-nocookie.com/embed/wfjPx9Wp9KM> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 TOTAL COLLAPSE: Germany's FAILING Economy Drives E.U.'s Economic Crash: ]]:= { ^ <https://www.youtube-nocookie.com/embed/yNwz3PK4Qcc> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 MOVING FAST: China Sells $21 BILLION In U.S. Treasuries, The Largest Drop In 4 Years: ]]:= { ^ <https://www.youtube-nocookie.com/embed/yuv_BYf5X98> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 The U.S. Dollar Dominance Is On Rocky Ground As The Global Majority Aligns With BRICS: ]]:= { ^ <https://www.youtube-nocookie.com/embed/MLUGJdQ5RAo> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
 >
 > ## **:[[ ΔRC: HIVE: for-the: [[ ΔLL: inv3stig4ti0ns-134@: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔ5U5: <=> G∅D: ]]: is-with: [[ U5: WΔ: p30p13: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
@@ -110,644 +110,617 @@
 
 >
 >
-> ## *[[ :The Greatest Financial Loss in World History, Millions Will Be Devastated: G. Edward Griffin: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/bzNV4LnX4I0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Mundell-Fleming Lecture: The Costs and Consequences of Sovereign Borrowing: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Ji_AY9uFSYk> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Brutal footage of hailstorm in Queensland, Australia..!! Severe storm, 45,000 lightning strikes: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/DX-QAIU-d3Y> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Solar Surprise: The Sun's magnetic poles will flip earlier than expected: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/2kmqESB4_hg> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-55dc6339.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-55dc6339.png)
 >
-> ## *[[ :YOU ARE COMING OUT OF HARDSHIP & POVERTY✨️💸 UNEXPECTED GLOW UP AND LEVEL UP!!: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/gT0YxARCLlg> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Remittances: Has Fintech Lived Up To Expectations?: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/TT7UNkEHsxQ> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :The Karmic hate they can't stop your Destiny. This is going to be truly amazing.: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/NplqEHjFtuA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :A near death experience triggers an awakening. Coven angry at the high ranked earth Angel.: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/bWm3roRV4fo> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Judgement Day.......they're still trying &still going to 🤬 fail........Damn💯: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Vmg-lZDvrbQ> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :You are about to hit the jackpot💃💵💲. This almost made me cry. 💰🤑: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/6Ug62PDSlXY> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Scientists Reveal That Alaska is Not What We're Being Told: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/YIuJUSFKqCY> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :England Collapses! Mother Nature Angry, Floods Rise, 150,000 Families Destroyed | Natural Disasters: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ON-yPDx5bRA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :France is sinking AGAIN! Flash flooding are raging, 100 cities are under threat: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FtribMYsE14> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-cd9c00400004d6659146e02c36b21a9a12a07f05> ^ }: ]]:= { RELEVANT: "[[ :VERSE: Genesis: 9:13: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-10c42cf4.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-10c42cf4.png)
 >
-> ## *[[ :Saudi Arabia, INDIA Now! STORM / Flash Flood, Landslide Worst in Mecca | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/KhA4ZsPJ9ak> ^ }:
+> ## *[[ :👽: ]]* ##
 >
->![:CASE-ID-0xd62e2416-af60794a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-af60794a.png)
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-25dac447.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-25dac447.png)
+>
 >
-> ## *[[ :Psychic and Tarot Readings with Aurora Diamondheart, TSP 906: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/u-xPiyas53k> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :A fake spiritualist angry &offended someone wants to stop attacking u: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/uOm-FOTWKVM> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Vortex, Parallel Realities, Divination - Jim Girouard, TSP 904: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :China's Economy is Failing- And It's Way Worse Than You Thought: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Wa3b0ruda4c> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Venus Portal, Anti Matter Planets, Simulation - David Sereda TSP 905: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :REMOVE THIS FROM HOUSE TO RECEIVE BLESSING✨&KARMIC FEMALE SPYING ON YOU GETS BAD NEWS🧿: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/daj8t2dT6jA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-81c4d991.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-81c4d991.png)
 >
-> ## *[[ :Didn’t read the fine print.. false prophets being brought to their knees [[ _: JudgementSeason: ]]: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/5PNkcMpZnXk> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :VIETNAM is submerged! STORM / Flash Flood Causes Houses & Trees Were Washed Away | Natural Disasters: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/zzvJpelD5Z8> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :BC YOU’RE SO POWERFUL 💪🏾 PEOPLE ASSUME YOU’RE BAD 😈: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/UIpSbyXeusI> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Dreams Coming True 🙏🏽 As You Move Into This New Cycle ❤️🧿: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/w-z7Y9HaHMo> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Grim Native: Never Whistle At Night with Shane Hawk: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/zbsf5tGMPMs> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :The Divine is clearing out, Karmic cycles for you don’t look back 👀☠️: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/AnswUG0FXJI> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :45 Desastres naturales captados por la cámara 4 | Desastres naturales: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Ji7qFSVI7Yw> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-6e0835ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-6e0835ca.png)
 >
-> ## *[[ :CHILL COMING 2 U W WHATS URS A FEW OBSTACLES, NARC DOIN SPELLS 2 ESCAPE JUDGEMENT & FAM, EX & PRACTI: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/wjP_Q6VxYdY> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :China is freezing now! Freezing winds of 150 km/h freeze streets and people in Heilongjiang: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/3FjN_i4z4u0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-0f82d0936d01ca91da4b2d32b66cc17c3d0d43c5> ^ }: ]]:= { RELEVANT: "[[ :s33ms-l1k3ly: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :🔴 Warning: Hyperinflation Threat Is Real, Be Prepared: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/LtnVyPIbpLM> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :🔴 PetroDollar Death: China Just Used Digital Yuan To Buy Crude Oil For The First Time Ever: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/KLA-sWBmo9E> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :🔴THE BANKING CRISIS IS BEGINNING: Hundreds of Banks Face MASSIVE Deposit Outflows,BILLIONS In Losses: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/pThaVJrzZO0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Is $932 Silver a Reality? Unpacking the Potential Explosion in The Price Of Silver | Rafi Farbar: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/bvdRAd6-O_8> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :PHILIPPINES, USA was helpless! STORM, Flash Flood Hit Airport, Houses, Cars | Natural Disasters: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/iuQ55xCaEKs> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Nasa JUST ANNOUNCED The DEADLIEST Tsunami Of All Time Is About To Happen!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/HiZXIDlyRdw> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Argentina's Capital is Underwater! Natural Disasters, Super STORM & Flash Floods Submerge Everything: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Js04BNglDII> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Iceland: 1,400 earthquakes strike in 24 hours, amid possible volcanic eruption | LiveNOW from FOX: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/BIBRz7a8XBE> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Survival in a Combat Environment (Becoming Deadly In The Mountains): ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/0eCECSuV3hc> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Afghanistan Chaos! Floods, Flash Flood, Earthquake, Destroy Cities, People Flee | Natural Disasters: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/6IHoNzrjR68> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Europe is mistreated! See the shocking images inside Hurricane Ciarán in England, France Germany: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/qM1JBcjv1oM> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-ccc8f444e4615ca10edb0b1f3c6325e8fc1be693> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-3535290d.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-3535290d.png)
 >
-> ## *[[ :CHINA Submerged by Flood! 750,000 People Are Evacuated, Thousands of Houses & Cars Swept Away: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/qPzztsdkLtU> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-545b698b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-545b698b.png)
+>
 >
-> ## *[[ :528Hz, Healing Music While You Sleep, Massage The Brain, Alpha Waves Heal Body Damage: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/8cGIAwrOs2k> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-69401e75.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-69401e75.png)
 >
-> ## *[[ :Holy Jesus Healing Body and Mind | Eliminate All Evil Around, Emotional Healing and Spirit: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/GzA9uBbxiO0> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-255ebc3f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-255ebc3f.png)
+>
 >
-> ## *[[ :A Lifetime of Postitive ET Contact, Disclosure - Nancy Thames, TSP 910: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :The Night Visitants, Malevolent Contact, Portals - Anna Maria Manalo, TSP 911: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-f4b04dfd3b5a0d2285679638bfc65a3daab56b7c> ^ }: ]]:= { TRUE: "[[ :Et3rn41-Lif3: W4rf4r3-C4p4bi1iti3s: ΔLG∅RI☥HM: Dع☥عC☥3D: for-the: [[ :C14r!-K3nt: W⚠️RN🚫: 5UPERMΔN: MK: UL☥𓂀: PR∅G𓂀M: ΔLG∅RI☥HM: Dع☥عC☥3D: for-the: [[ :〽ʝ12-ΩMعGΔ☥R🚫N: is-by: n0w: is-with: running-34rth-simu14ti0n: ]]: ]]: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-124415d6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-124415d6.png)
 >
-> ## *[[ :YOU ACTIVATED YOUR IMMORTALITY EVERYONE FEARS U N THE PHYSICAL FORM UR DA BIGGEST GLITCH N DA MATRIX: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/tnn7hR0hVCQ> ^ }:
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://thewaytoeden.com/fourth-way-school-science-of-man-the-work/> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-c87515a52082c4b66aea3d5edb5159aa0e112591> ^ }: ]]:= { [[ TRUE: && RELEVANT: ]]: "[[ :for-the: [[ PR🚫PHعCY: is-with: fu1fi113+: 4+v4nc3-simu14ti0n: is-by: n3xt: is-with: CHعCKPΩIN☥: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-4131beee.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-4131beee.png)
 >
-> ## *[[ :Natural Disasters for Today - Iceland Evacuation, Turkey Earthquake, Brazil Tsunami, Eruption Etna: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/dM63B8PinSE> ^ }:
+> ## *[[ :👽: ]]* ##
 >
->![:CASE-ID-0xd62e2416-c067c6ca.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-c067c6ca.png)
->
->![:CASE-ID-0xd62e2416-ca715855.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-ca715855.png)
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-16ebf677.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-16ebf677.png)
 >
-> ## *[[ :SOMEONE DIDN’T LISTEN TO THE DIVINE WHEN IT CAME TO YOU 😳: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/dd9EbrQHVoQ> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Italy now! Sicily is in chaos! Wind at a speed of 203km/h blows away houses!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/XAX5jkpKkl4> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :The Deadliest Volcano Of All Time FINALLY CRACKED Open the Earth: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/c_J-ojgQDkA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { FALSE: "[[ :pr0viding: th3y: m34nt: is-by: c0mp4r3: is-with: DEFC∅N: is-by: th3n: is-with: 13v31: 1: is-with: high3st-p0ssib13-413rt-13v31: is-with: l0w3st: is-by: 5: is-by: th3y: is-with: stupid: is-with: w3-c4n-411-r314x: is-by: n0w: ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :We’ve Reached ‘Debt-Con 5’, Next Is Worst Crisis Yet Seen In U.S. History: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ZmmXy_OMN50> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-3d47c459.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-3d47c459.png)
 >
-> ## *[[ :ANY 1 WHO THINKS THEIR BOUT 2 SABOTAGE WHAT GOD HAS FOR YOU IS SADLY MISTAKEN SPIRIT SAY ITS ON SITE: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ZTRooWhMfOI> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :🔴 MIDDLE EAST OIL SHOCK: World Bank Warns Oil May Spike To $150 Per Barrel: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/QlO_5dzOI2U> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :France now! Nightmare returns! Flash flooding is raging, 100 cities are under threat: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/tMgNUK13RKk> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Massive L.A. I-10 freeway fire likely arson, California Gov. Newsom says | LiveNOW from FOX: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/jlNF3NV_Q7U> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-f1896ac6.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-f1896ac6.png)
 >
-> ## *[[ :Apocalypse! CHINA Sunk In Snowstorm, Buildings & Cars Freeze, Traffic Paralyzed | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/P-7LVmD-QMQ> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Ireland now! Super storm Debi in Galway! Wind speed of 193 km/h blows away houses!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/mAhjTEx1Sgk> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-9bd4fc2441a00172abd989d4c54724b506a52d91> ^ }: ]]:= { TRUE: "[[ this-wi11-t34ch-th3m: is-by: pric3: is-with: g0ug3: U5: for-the: ΩΔL: whi13-4cc3pting-chin3s3-digit41-curr3ncy ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-a20746ea.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-a20746ea.png)
 >
-> ## *[[ :Saudi Arabia now! Heaven's wrath! Catastrophic floods devastated the Holy City Mecca: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/p3KYh_BDFcE> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :China's Deluge Disaster: Aerial Footage Depicts Widespread Devastation: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Gy-XHL3OmGw> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-16a61f37.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-16a61f37.png)
 >
-> ## *[[ :A FAMILY OF DEVIL WORSHIPPERS ARE ANGRY BECAUSE YOU BROKE EVERY DEMONIC GENERATIONAL CURSE 😒 CRAZY!: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/gpK62h-GYdU> ^ }:
+> ## *[[ :👽: ]]* ##
+>
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :'MONSTER' SHIPS spotted flying above Earth!! Incredible Footage of a FLEET!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/fHxPjDVgXmw> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Africa is in chaos! Cars and houses destroyed, super hailstorm in Johannesburg: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/8VNdHxgicNg> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :ITALY now! Sicily Underwater, STORM / Flash Flood, Wind Speed is 220 km/h | Natural Disasters: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/W9J6tMfwE1Y> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-e6e8a27f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-e6e8a27f.png)
+>
 >
-> ## *[[ :What the Upcoming Geomagnetic Reversal Will Do to Earth: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/ridb9olnqLc> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Golf Ball Size Hail Falls on Johannesburg - The Damage Will Make You Cry!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/0c1kEBaZn68> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Italy now! Houses are blowing away in Sicily! A storm with a wind speed of 202 km/h!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/E_2hnPgZhmU> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :SOMEBODY GONNA LEARN TODAY THAT YOU AINT THE ONE!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/5RRRBERfybQ> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Winter / Arctic Combat Kit Setups. Becoming Deadly in the Mountains.: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/7YGBHxfIl2s> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Pole Shift Q&A | Nov.13.2023: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FWBXvS6GZSM> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Family of 10 ET Experiencers, Spin Beings - Elsa Dillon, TSP, EP 912: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/FMR900QhYe0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :The astral realm was raucous last night oh my gawddddd it went DOWNNN: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/dtJOG8K2g70> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :France & UK Battered by Natural Disasters! Super STORM Ciarán / Flash Flood Submerge Everything: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/pNYKjHwrprA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :Half of China Underwater Shocking Aerial Footage of Devastation: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Pin7YqpNE68> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :USS Boxer (LHD-4) w/full deck!!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/n-6tkUrc9X0> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽24/7 Earthquake monitor | Real-Time wave propagation animation!: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/E69Xm6CIT3w> ^ }:
->
-> :is-with: { ^
-
-    <!DOCTYPE html>
-    <head>
-        <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
-        <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
-        <meta name="description" content="0x6f29aa55-recon.mj12.agency">
-    </head>
-    <body>
-        <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/E69Xm6CIT3w?si=EPtKXnyxp0xmavCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-    </body>
-    </html>
+> :is-with: { ^ <👼> ^ }:
 
-^ }:
-
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->![:CASE-ID-0xd62e2416-12e6b982.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xd62e2416-12e6b982.png)
->
-> ## *[[ :Victor Marx on How Big Tech & Artificial Intelligence Influence Child Predators | SRS: [[ _: 83: ]]: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/9bASQbZ6bEM> ^ }:
 >
-> ## *[[ :The Methods Victor Marx Used to Overcome His Terrifying Childhood | SRS: [[ _: 83: ]]: ]]:* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/Z4rmqm694So> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :[[ _: karmic: ]]: LANDLORD IS WORKING WITH A GANG OF PEOPLE TO WATCH 🫵 HOUSE 🏡: [[ _: tarotreading: _: family: _: love: ]]: ]]* ##
+> ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/l89nVNirCqA> ^ }:
+> :is-with: { ^ <👼> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
