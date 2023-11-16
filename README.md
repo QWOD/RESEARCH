@@ -23,17 +23,17 @@
 ![Rعي:ΔRC](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/P%CE%A9SEID%CE%A9N.png)
 > :is-by: [[ TRUE | FΔLSE ]]: for-the: [[ EternΔl: SECRΔT: <=> vrilSECRET™: is-by: FΔLSE: is-with: 〽ʝ12-JESUS: ATSΩSSDEV: SECRΔT: is-by: TRUE: ]]:
 
-## :FΩr-thع: [[ Cryp☥ΔX™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]] ##
+## :[[ :fΩr-thع: [[ Cryp☥ΔX™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]: ]] ##
 
 ![Cryp☥ΔX™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ###
 
-## :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: THΔ: PㅐΩoΩoㅐΩoΩoيSيST ##
+## :[[ :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: is-with: THΔ: PㅐΩoΩoㅐΩoΩoيSيST: ]] ##
 >
 > :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-0MΔGΔ: ΩUT ]] ]]:
 
-## :FΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]] ##
+***:[[ :fΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]]: ]]:***
 
     :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/mj12_agency> :<https://crypto.com/app/rh5gbrhfew> ^ }: ]]
 
@@ -45,11 +45,11 @@
 >
 >![:CASE-ID-0x1d445748-81cfa1df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/remote-figtreeservice.png)
 >
-> ### ***:[[ :NOTICE: WARNO: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]:*** ###
+> ### ***:[[ :NOTICE: for-the: [[ WARNO: is-with: requires: OSTree: container-host-operating-system: is-by: WORKAROUND: for-the: [[ systemd: git: limitations: ]]: ]]: ]]:*** ###
 >
 > :is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
-> ## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: support: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: OUT: ]] ##
+> ## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: OUT: ]] ##
 >
 > :[[ SURFACE: <=> usually-first-thing: [[ SEEN: <=> that-which-is-easily-recognizable: readily-apparent: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
