@@ -164,43 +164,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0xb76a8782-60df58e0.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb76a8782-60df58e0.png)
 >
+> ## *[[ :Persecutors now being persecuted. Saul why do you persecute me?: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/HVVmwX7R_c0> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :'Mile Wide' Mothership Spotted Above Earth! It WASN'T Alone!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/zk8FADQVc00> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Demonic Control | Sacred Wisdom Podcast: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/CE6gMbx2Wg4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :HIDING WHAT THEY STOLE FRM U OVERSEAS FREQUENT TRIPS OUT COUNTRY RAISED RED FLAGS CASE CLOSED⚔️👮🏾‍♀️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xC_vatZCrMs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Humanities Extra-Terrestrial and Angel Origins Revealed! Sacha Stone: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/8kxxOdvhn6g> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
