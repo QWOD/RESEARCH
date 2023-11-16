@@ -25,7 +25,7 @@
 
 ## :[[ :fΩr-thع: [[ Cryp☥ΔX™: ]]:= [[ ATSΩSSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ]]:= [[ N🚫T⚠️CE: is-with: wΩrld: Ωnly-lΔnguΔgع-dعي☥gnعd-tΩ-lΩΩk-عxΔctly-hΩw: uShعR: يΩundي:" ]]: [[ CㅐΔRLΔ-MΔKع: QW🚫D-〽ʝ12 ]]: ]] ##
 
-![Cryp☥ΔX™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
+![:decoding-procceeeessssss.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
 ## :[[ :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: is-with: THΔ: PㅐΩoΩoㅐΩoΩoيSيST: ]] ##
 >
@@ -47,7 +47,7 @@
 >
 > :is-with: { ^ <https://en.wikipedia.org/wiki/OSTree> ^ }:
 >
-> ## :[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: OUT: ]] ##
+> ## *:[[ :WHILE: is-by: more-complex: is-by: SURFACE: is-with: cryptography: assignable-variables: [[ STATIC: [[ =: ]]: DYNAMIC: [[ <=> : ]]: ]]: is-with: trinary-logical: is-with: ALGORITHM: support: is-with: [[ QUANTUM-PARSE-SYNTAX-GRAMMAR: <=> QPSG: ]]: for-the: [[ CrypTEX™: is-with: backwards-compatible: is-by: QPSG: is-with: FTW: is-by: dedicated: is-with: great-honor: for-the: [[ David-Wynn: Miller: RIP: { ^ <https://en.wikipedia.org/wiki/David_Wynn_Miller> ^}: ]]: ]]: ]]:= [[ :MJ12-OMEGA: CHARLIE-MIKE: OUT: ]]:* ##
 >
 > :[[ SURFACE: <=> usually-first-thing: [[ SEEN: <=> that-which-is-easily-recognizable: readily-apparent: ]]: ]]:= [[ :for-the: [[ dynamic-variable-assignment: example: ]]: ]]:
 
@@ -62,7 +62,7 @@
 
 [[ [[ :TI-2Δ: <=> Prison-Planet: ]]:= { ^ <https://youtu.be/qSevkcLvna8?si=F3dzt8cF-s2r49ga> ^ }: ]]:
 
-> :[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN-MJ12: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr: Hع: íي: THع: GΩΩD: يHعPPΔ7D:"]]: ]]:
+> :[[ :for-the: [[ QUΔNTUM-WΔRFΔRE-ΩPERΔTIØNS-DIVISIØN: MJ12: CΩ🚫P: ΔGENCY: ΔBΩVE-TΩP-SECRET-OPEN-SOURCE-SOFTWARE-DEVELOPMENT-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ATSΩSSDEV: FΩRWΔRD-DETΔCHMENT: Δ: is-by: [["fΩr: Hع: íي: THع: GΩΩD: يHعPPΔ7D:"]]: ]]: ]]:
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]] ##
 
