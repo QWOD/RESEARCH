@@ -27,11 +27,9 @@
 
 ![Cryp☥ΔX™: looks-how: USHER: SOUNDS:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/decoding-procceeeessssss.png)
 
-###
-
 ## :[[ :for-the: WHΩM-E1SE: is-with: SΩME: is-by: WHΩ: sΔd: is-with: THΔ: PㅐΩoΩoㅐΩoΩoيSيST: ]] ##
 >
-> :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-0MΔGΔ: ΩUT ]] ]]:
+> :is-by: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN: 〽ʝ12: CΩ🚫P: ΔGENCY: [[ LΔMΔ-CㅐΔRLΔ: [[ _ ]]: CㅐΔRLΔ-MΔKع: [[ QW🚫D-〽ʝ12: MJ12-0MΔGΔ: ΩUT ]] ]]:
 
 ***:[[ :fΩr-thع: [[ Rعي:ΔRC: FUN:ΔNG: ]]: ]]:***
 
