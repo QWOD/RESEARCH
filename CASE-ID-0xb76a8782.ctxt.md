@@ -310,9 +310,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :ALL THE LIES IS BEING REVEALED.....: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xgd9_9gklXY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
