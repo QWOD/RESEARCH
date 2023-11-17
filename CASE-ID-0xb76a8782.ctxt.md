@@ -732,6 +732,12 @@
 
 ## [[ :🚫PΔ𓂀T☥∅NΔL-EDUCΔT☥∅N: ]] ##
 
+### [[ :Shilajit Immunity Max - Live Resin Shilajit with Genuine Colloidal Silver (30g Jar with Pürscale): { ^ Pürblack ^ }: ]] ###
+
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/B0829FTKR6?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_YYWDK3EY5XPCBDYHQM7F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=25e9aca3d59819b287ec7b082f70dbe7&camp=1789&creative=9325">Shilajit Immunity Max by Pürblack - Live Resin Shilajit with Genuine Colloidal Silver (30g Jar with Pürscale)</a> ^ }:
+>
+    https://www.amazon.com/dp/B0829FTKR6?_encoding=UTF8&amp;psc=1&amp;ref_=cm_sw_r_cp_ud_dp_YYWDK3EY5XPCBDYHQM7F&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=25e9aca3d59819b287ec7b082f70dbe7&camp=1789&creative=9325
+
 ### [[ :New Cambridge Paragraph Bible with Apocrypha: { ^ Cambridge University Press ^ }: ]] ###
 
 > :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/052119881X?ref_=cm_sw_r_cp_ud_dp_9CNMWKGYEJ5FWXFPSP9P&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=afe0760ccefdc87235443ac945531941&camp=1789&creative=9325">New Cambridge Paragraph Bible with Apocrypha</a> ^ }:
