@@ -382,9 +382,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :A whole city going down..It’s gonna b a Sh*t show..they won’t see it coming: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/P-j00ldCNLs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
