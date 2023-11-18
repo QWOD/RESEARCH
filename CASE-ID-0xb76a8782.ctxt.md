@@ -446,9 +446,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Dubai UAE is sinking! Flash flooding sweep away people and cars in Dubai today: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/cZ6capKg-mw> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
