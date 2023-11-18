@@ -390,9 +390,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Xi Jinping Came To America. And It Was Bad: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/j0GoESKIuZ4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
