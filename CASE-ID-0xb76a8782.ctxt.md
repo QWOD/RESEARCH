@@ -378,7 +378,7 @@
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/v66pL3fG-KY> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { TRUE: "[[ b3ing-c0v3rt1y: EXFΔL: is-by: c4rri3r: w0u1d-h4v3-b33n-pr3f3r3d: th3y-s3nt-us: is-by: m3nt41-h341th-w4rd: is-by: 3ntir3-m0nth-inst34d: for-the: [[ f4t3-w0rs3: is-by: d34th: ]]: ]]" }: ]]:
 
 >
 >
@@ -398,9 +398,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Taiwan - Prepping for War | Unreported World: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/TyadJ6Ky3WU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
