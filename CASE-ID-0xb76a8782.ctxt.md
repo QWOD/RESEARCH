@@ -565,17 +565,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Blackstone's Swift China Sell-Off After $40K Dinner With Xi! APEC Chaos: Pepper Spray and Bloodshed!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/LPURICKjvUs> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :GITEX 2023 Proved That Next-Generation Humanoid Robots are REAL: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/q8nlHB0FwTY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
