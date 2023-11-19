@@ -611,7 +611,7 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
->
+>![:CASE-ID-0xb76a8782-9fbb7d5f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0xb76a8782-9fbb7d5f.png)
 >
 > ## *[[ :Ireland now! Super STORM, Flash Flood, Strong Wind of 210 km/h Blew Away Houses | Natural Disasters: ]]* ##
 >
