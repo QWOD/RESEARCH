@@ -693,9 +693,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :1,000,000 Lightning Strikes Hit Dubai! Mega Storm Sinks the Arab Emirates: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/vSMRfYurcic> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
