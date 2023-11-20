@@ -701,17 +701,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Tsunami In Brazil Now! Floods, Huge Waves Wash Hundreds of Cars into the Ocean | Natural Disasters: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/TpL-jU11XqU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Panic: Virus Hits Beijing Company; Shenzhen's Special Economic Zone Plunges Into Recession!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xq31lPyVBPY> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
