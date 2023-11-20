@@ -1,4 +1,5 @@
 #!/usr/bin/env bash
+
 sshHost=secure.us.hyperspire.net
-localPath=/home/hyperuser
-ssh ${sshHost} -o "StrictHostKeyChecking no" -t ${localPath}/hyperstor/bin/gitupur pull
+
+ssh ${sshHost} -o "StrictHostKeyChecking no" -t "~/hyperstor/QWOD/RESEARCH/figtreeservice-remote.sh start"
