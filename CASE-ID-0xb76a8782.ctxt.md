@@ -685,9 +685,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Türkiye Now! Zonguldak is in chaos! Storms and winds of 202km/h destroyed boats and houses: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/QN1uVoW3Wk8> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
