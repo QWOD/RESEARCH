@@ -54,7 +54,7 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Breaking News: Hydrogen Jet Engine sets New Record for Hypersonic Speed: ]]:= { ^ <https://www.youtube-nocookie.com/embed/weWgQnZI2QQ> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
