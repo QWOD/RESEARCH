@@ -60,13 +60,13 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Echelon, the secret power: ]]:= { ^ <https://www.youtube-nocookie.com/embed/g5KzxJ9IU9Y> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 CHINA-SAUDI ARABIA New De-dollarization Move: $7 BILLION Local Currency Swap Agreement Signed: ]]:= { ^ <https://www.youtube-nocookie.com/embed/RWHUFSpOjkg> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
