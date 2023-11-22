@@ -118,9 +118,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Why The Stargate Program Needs To Be Revealed | Stargate: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=QSzTnbFJpYM&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=13&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
