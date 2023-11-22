@@ -156,59 +156,59 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-7a6a186f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-7a6a186f.png)
 >
+> ## *[[ :Something made just 4 U..Standing on the frontline 4 ur ancestors for generations 2 come: [[ _: blessings: ]]: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=LSerI9jMd6Q&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=18&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Epidemic Panic: Government Accused of Official Cover-up as Epidemic Outbreak Hits Dalian!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=9SJMyAW_1kU&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=19&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Dubai now! Floods, storms Wind speeds of 195km/h blew away houses in the UAE: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=4w9WJCi1R58&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=20&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Opportunity to invest that leads to financial security 🙏🏽🧿❤️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=s3znSidppGU&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=21&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :BREAKING NEWS: Trump Rails About Legal Troubles, Celebrates Decisions To Allow Him On Ballot: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=C1TKwh5iVog&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=22&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS EMPRESS IN THE REVERSE RUINS EVERYONES LIFE SHE COMES IN CONTACT WITH, SHE NEEDS 2 BE PUT DOWN!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=1aPMZzjH4zg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=23&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Who Really Manipulates World Events & How? (MIND-BLOWING): ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=wcoRRnqk31Q&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=24&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
