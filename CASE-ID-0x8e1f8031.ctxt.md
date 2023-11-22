@@ -142,17 +142,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :'A Vast Pedophile Network': Josh Hawley Decries Predation Of Children On Meta's Platforms: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=gu8QM4klRrU&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=16&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Next-Generation Humanoid Robots have Suddenly Gained Self-Awareness: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=-yVyfra6kQQ&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=17&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
