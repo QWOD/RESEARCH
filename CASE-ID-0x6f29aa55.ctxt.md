@@ -34,7 +34,7 @@
 >
 > ### ![:CASE-ID-0x6f29aa55-842c3dc1.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-842c3dc1.png) ###
 >
-> :[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ <https://www.youtube-nocookie.com/embed/VD0E4bYOLdU> ^ }:
+> :[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ <https://www.youtube.com/watch?v=VD0E4bYOLdU&list=PL7PI5g9volJG3EIXJgFsoUNkGHnaIJFHa&index=1&pp=gAQBiAQB> ^ }:
 >
 >[[ :NΔRCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIØNS: BLΔME-SHIFTING: is-by: TRUTH: ]]:
 >
@@ -100,7 +100,7 @@
 >
 > ### ![:CASE-ID-0x6f29aa55-7986a710.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-7986a710.png) ###
 >
->[[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ <https://www.youtube-nocookie.com/embed/JC8n_sm9e8s> ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>[[ :NΩ: ESCΔPE: ]]:= [[ WΔLCΩME: <=> ΔSCAPE: 15-8Y: 0: ]]:= [[ 4-743: GΔVE: 15-W174: RΔGHT: HΔND: ]]:= [[ 4-743: GΔT: 15-W174: LΔF7: ]]:= { ^ <https://youtu.be/JC8n_sm9e8s?si=aODJMLOOLN0hULVW> ^ }: 15-8Y: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 >
 >![:CASE-ID-0x6f29aa55-c7c8ab55.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-c7c8ab55.png)
 >
@@ -110,7 +110,7 @@
 >
 > ###
 >
-> :[[ [[ :DEATH: ANGEL: { ^ <https://www.youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
+> :[[ [[ :DEATH: ANGEL: { ^ <https://youtu.be/dDJldh8KqnQ?si=x4BGr_5A-HSKRgLe> ^ }: ]]: is-by: Karl-Casey: @: White-Bat-Audio: ]]:
 >
 >![:DEATH-ANGEL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/DEATH-ANGEL.png)
 >
@@ -204,7 +204,7 @@
 
 [[ :View from Huntington Beach Pier: ]]:= [[ :NEXT: TΔNGΩ-DELTΔ: HuntingtΩn-BeΔch: ]]:
 
-:is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
+:is-with: { ^ <https://www.youtube.com/live/mhQjsLBfOoY?si=z0kNyxOiw68ikSBE> ^ }:
 
 ### ![:CASE-ID-0x6f29aa55-f1f23ee9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-f1f23ee9.png) ###
 
@@ -338,11 +338,11 @@
 
 > [[ :90’s Sci-Fi Horror Soundtrack Playlist - Death Angel // Royalty Free Copyright Safe Music: ]]:
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/dDJldh8KqnQ> ^ }:
+> :is-with: { ^ <https://youtu.be/dDJldh8KqnQ?si=bGkGBy4xijwfMyLf> ^ }:
 >
 > ###  [[ :for-the: [[ DISCLΩSURE: [[ :View from Huntington Beach Pier: ]]: ]]: ]] ###
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
+> :is-with: { ^ <https://www.youtube.com/live/mhQjsLBfOoY?si=oTe1D9oo0lX4vNOJ> ^ }:
 >
 >![:CASE-ID-0x6f29aa55-bc9649ad.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-bc9649ad.png)
 >
@@ -486,8 +486,6 @@
 >
 > :is-with: { ^ <https://www.youtube-nocookie.com/embed/taQAYRrAGJs> ^ }:
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/xXV3sz92k8w> ^ }:
->
 > ## :[[ :WΔ: ΔLREΔDY: is-with: KNΩW: CHINΔ: EΔST-ΔSIΔ: PΔCIFICΔS: GETS-IT-FIRST: for-the: [[ ΔEMERICΔS: ΔEFRICΔS: ΔETLANTICAS: <=> ΔERICA: ICΔRΔE: ICΔRΔS: ]]: GΩT-IT-LΔST: for-the: TIME: Nibiru: drΔgged: HΔLL: is-by: WΔKE ]]: ]]
 
 >
@@ -554,7 +552,7 @@
 >
 ![:CASE-ID-0x6f29aa55-5b9673f9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-5b9673f9.png)
 >
-[[ :Live Trump watch: All eyes on Fulton County jail as Trump prepares to surrender | LiveNOW from FOX: ]]:
+[[ :LIVE: Former Pres. Trump booked and released from Fulton County Jail | ABC News: ]]:
 >
 :is-with: { ^ <https://www.youtube-nocookie.com/embed/8lfMFDvMRA0> ^ }:
 >
