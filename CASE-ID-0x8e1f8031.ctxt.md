@@ -134,9 +134,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :A Pattern of Sexual Misconduct by Louisville Police: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=HERShPhJwPg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=15&t=10s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
