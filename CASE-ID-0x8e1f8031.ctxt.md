@@ -96,7 +96,7 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Past Lives, Free Will, And The Philosopher’s Stone w/ Matias De Stefano & Robert Grant: ]]:= { ^ <https://youtu.be/eoC_YA0RB3g> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Past Lives, Free Will, And The Philosopher’s Stone w/ Matias De Stefano & Robert Grant: ]]:= { ^ <https://www.youtube-nocookie.com/embed/eoC_YA0RB3g> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
