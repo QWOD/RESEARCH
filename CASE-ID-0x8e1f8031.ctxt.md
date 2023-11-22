@@ -126,9 +126,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Third Eye Experiences, Targeted Individuals, All Seeing Eye - Possner, TSP 925: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=lsTAgdKiymU&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=14&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
