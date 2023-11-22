@@ -36,61 +36,61 @@
 >
 >![:CASE-ID-0x8e1f8031-c03a3eba.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-c03a3eba.png)
 >
-> :[[ :*🚫PعD*: ]]:= [[ :One of you will betray me. Ahab & Jezebel persecuted the chosen ones. Out of time!: ]]:= { ^ <https://www.youtube-nocookie.com/embed/k3ik6ygTaH0> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :One of you will betray me. Ahab & Jezebel persecuted the chosen ones. Out of time!: ]]:= { ^ <https://www.youtube.com/watch?v=k3ik6ygTaH0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=1&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :THEY ALL SCARED THEY WASNT EXPECTING THIS OUTCOME. THOUGHT THEY GOT AWAY WITH THIS CRIME AGAINST YOU: ]]:= { ^ <https://www.youtube-nocookie.com/embed/6HaFvICCGsw> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEY ALL SCARED THEY WASNT EXPECTING THIS OUTCOME. THOUGHT THEY GOT AWAY WITH THIS CRIME AGAINST YOU: ]]:= { ^ <https://www.youtube.com/watch?v=6HaFvICCGsw&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=2&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :ANOTHER TIMELINE SPLIT IS SHIFTING DEVINE BEINGS INTO THEIR INFINITE POWERS….THEY CAN’T GO WITH YOU: ]]:= { ^ <https://www.youtube-nocookie.com/embed/deslYyiFBGA> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :ANOTHER TIMELINE SPLIT IS SHIFTING DEVINE BEINGS INTO THEIR INFINITE POWERS….THEY CAN’T GO WITH YOU: ]]:= { ^ <https://www.youtube.com/watch?v=deslYyiFBGA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=3&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Breaking News: Hydrogen Jet Engine sets New Record for Hypersonic Speed: ]]:= { ^ <https://www.youtube-nocookie.com/embed/weWgQnZI2QQ> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Breaking News: Hydrogen Jet Engine sets New Record for Hypersonic Speed: ]]:= { ^ <https://www.youtube.com/watch?v=weWgQnZI2QQ&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=4&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Echelon, the secret power: ]]:= { ^ <https://www.youtube-nocookie.com/embed/g5KzxJ9IU9Y> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Echelon, the secret power: ]]:= { ^ <https://www.youtube.com/watch?v=g5KzxJ9IU9Y&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=5&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :🔴 CHINA-SAUDI ARABIA New De-dollarization Move: $7 BILLION Local Currency Swap Agreement Signed: ]]:= { ^ <https://www.youtube-nocookie.com/embed/RWHUFSpOjkg> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :🔴 CHINA-SAUDI ARABIA New De-dollarization Move: $7 BILLION Local Currency Swap Agreement Signed: ]]:= { ^ <https://www.youtube.com/watch?v=RWHUFSpOjkg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=6&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >![:CASE-ID-0x8e1f8031-f50ec0df.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-f50ec0df.png)
 >
-> :[[ :*🚫PعD*: ]]:= [[ :THE WHOLE COMMUNITY SET YOU UP & THE WHOLE COMMUNITY IS UNDER INVESTIGATION...: ]]:= { ^ <https://www.youtube-nocookie.com/embed/cLdYNvYDIlA> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THE WHOLE COMMUNITY SET YOU UP & THE WHOLE COMMUNITY IS UNDER INVESTIGATION...: ]]:= { ^ <https://www.youtube.com/watch?v=cLdYNvYDIlA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=7&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :UR ANCESTORS ARE WORKING THROUGH YOU FOR A MAJOR MISSION 💪🏾❤️but you have to give consent: [[ _: god: ]]: ]]:= { ^ <https://www.youtube-nocookie.com/embed/xA3aGujuZE8> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :UR ANCESTORS ARE WORKING THROUGH YOU FOR A MAJOR MISSION 💪🏾❤️but you have to give consent: [[ _: god: ]]: ]]:= { ^ <https://www.youtube.com/watch?v=xA3aGujuZE8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=8&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :DESCENSION HAS COME FOR THOSE WHO BELIEVED THEY WOULD NEVER FALL - HOW THE MATRIX BEGAN: ]]:= { ^ <https://www.youtube-nocookie.com/embed/TOCJdr_di5s> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :DESCENSION HAS COME FOR THOSE WHO BELIEVED THEY WOULD NEVER FALL - HOW THE MATRIX BEGAN: ]]:= { ^ <https://www.youtube.com/watch?v=TOCJdr_di5s&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=9&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :Swat Team gearing up for raids-a group know they're caught-this will be a shit show: ]]:= { ^ <https://www.youtube-nocookie.com/embed/7KhgAuUcLJ0> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Swat Team gearing up for raids-a group know they're caught-this will be a shit show: ]]:= { ^ <https://www.youtube.com/watch?v=7KhgAuUcLJ0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=10&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
@@ -102,7 +102,7 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :It HAD to of been something REALLY big! LOUD Boom!: ]]:= { ^ <https://www.youtube-nocookie.com/embed/6vj_gk4uZJc> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :It HAD to of been something REALLY big! LOUD Boom!: ]]:= { ^ <https://www.youtube.com/watch?v=6vj_gk4uZJc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=11&pp=gAQBiAQB> ^ }:
 >
 > ## **:[[ ΔRC: HIVE: for-the: [[ ΔLL: inv3stig4ti0ns-134@: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔ5U5: <=> G∅D: ]]: is-with: [[ U5: WΔ: p30p13: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
@@ -112,7 +112,7 @@
 >
 > ## *[[ :WikiLeaks appears to reveal classified CIA techniques: ]]* ##
 >
-> :is-with: { ^ <https://www.youtube-nocookie.com/embed/UtCmgT9Sik4> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=UtCmgT9Sik4&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=12&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
