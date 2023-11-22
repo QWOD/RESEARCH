@@ -30,7 +30,7 @@
 
 > ### ***[[ :NΩTICE: W⚠️RN🚫: QW🚫D-〽ʝ12: RΩYΔL-DIVINE-QØURT: for-the: [[ MILITΔRY-TRIBUNΔL: N∅W: is-with: SESSIØN: ]]: ]]*** ###
 >
->![:CrypTEX.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX_Surfer-01.jpg)
+>![:CrypTEX_Surfer-01.jpg:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CrypTEX_Surfer-01.jpg)
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
