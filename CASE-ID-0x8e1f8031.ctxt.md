@@ -110,9 +110,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :WikiLeaks appears to reveal classified CIA techniques: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube-nocookie.com/embed/UtCmgT9Sik4> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
