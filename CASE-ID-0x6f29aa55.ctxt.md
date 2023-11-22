@@ -36,7 +36,7 @@
 >
 > :[[ :ΩPعD: ]]:= [[ :You speak harsh truths that makes people want to un, eventually they always come around.: ]]:= { ^ <https://www.youtube.com/watch?v=VD0E4bYOLdU&list=PL7PI5g9volJG3EIXJgFsoUNkGHnaIJFHa&index=1&pp=gAQBiAQB> ^ }:
 >
->[[ :NΔRCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIØNS: BLΔME-SHIFTING: is-by: TRUTH: ]]:
+>[[ :NARCISSISTIC-INJURY: is-with: FΔLSE-PRΩJECTIØNS: BLΔME-SHIFTING: is-by: TRUTH: ]]:
 >
 > ### ![:CASE-ID-0x6f29aa55-cab50087.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-cab50087.png) ###
 >
