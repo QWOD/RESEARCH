@@ -302,17 +302,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :No Business, the Boss Panics, Smashing His Own Shop! Can’t Make Money, Can’t Afford Even Cheap: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Xgp1B6nKBDA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=35&t=21s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Several Solar Eruptions, Ozone Issues | S0 News Nov.23.2023: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=AtATiDrXXvA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=36&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
