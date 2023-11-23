@@ -246,9 +246,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Creation of Manchurian Criminal Part 2 - Rainetta Jones & Big Ace, TSP 928: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=7rq7PAFXByQ&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=28&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
