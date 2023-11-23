@@ -348,19 +348,19 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-bf7a8694.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-bf7a8694.png)
 >
+> ## *[[ :THE PRACTIONER TOLD THIS OBSESSED PERSON 😳THEY CAN'T TOUCH YOU 👀YOU'RE TOO DIVINELY PROTECTED🧿: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=sfmfAjpcKQU&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=41&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THEY CAN'T HIDE IT NO MORE. New York Residents Warned [this is a VERY BAD sign]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=mtnkSaXCGI8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=42&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
