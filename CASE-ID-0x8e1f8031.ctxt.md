@@ -318,33 +318,33 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :the wealth transfer, chaos & changes..#chosenone#theholyspirit#propheticword: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=L4RTtaPa6t0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=37&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :What the Upcoming Geomagnetic Reversal Will Do to Earth: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=ridb9olnqLc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=38&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Meet the Targeted Individual Community: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=62s3FinAoC0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=39&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Space Weather Update November 19th 2023!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=PMDPPQwenm0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=40&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
