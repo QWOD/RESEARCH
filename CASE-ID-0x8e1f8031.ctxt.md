@@ -254,33 +254,33 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Schumann Update 11/22: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=yOIdII6l5vA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=29&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Sananda ~ Etheric Plasma Energy | Awakening YOU: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=_X3EEAAc_w4&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=30&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :David Brooks | How to Know a Person: The Art of Seeing Others Deeply and Being Deeply Seen: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=YwENbKn3tqI&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=31&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Image NASA Didn't Want to Receive from the Deep Impact Probe: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=0_TuSSfIeZ8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=32&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
