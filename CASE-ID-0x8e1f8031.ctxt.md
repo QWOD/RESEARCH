@@ -238,9 +238,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :James Casbolt | Project IBIS - PROJECT CAMELOT PORTAL: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://projectcamelotproductions.com/interviews/james_casbolt/james_casbolt.html> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
