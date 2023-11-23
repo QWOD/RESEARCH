@@ -286,17 +286,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Apocalyptic earthquake in Indonesia: Half of the city was destroyed: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=LfhTB50Hrp4&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=33&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :An almost 24h active solar prominece - 19/20.11.23: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=sTn8leh6clY&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=34&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
