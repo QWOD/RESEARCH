@@ -20,9 +20,11 @@
 
 ### *:[[ :m3rcuri.us.hyp3rspir3.n3t:{ ^ RESEARCH ^ }: ]]: newfig* ###
 
-## [[ :for-the: [[ CASE-ID-0x6f29aa55: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: { ^ <a target="_blank" rel="noopener" href="http://0x6f29aa55-recon.mj12.agency/">0x6f29aa55-recon: Δ: mj12: Δ: agency</a> ^ }: ]]: ]]:.ctxt ##
+[[ :for-the: [[ CASE-ID-0x6f29aa55: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]]
 
-:is-with: { ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md> ^ }:
+:[[ :{ ^ <http://0x6f29aa55-recon.mj12.agency/> ^ }: ]]:
+
+:[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0x6f29aa55.ctxt.md> ^ }: ]]:
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
 
@@ -256,7 +258,17 @@
 
 > ## :[[ :CΩMMERCIΔL-BREΔK-SPØNSΩRED: is-by: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: MJ12-ØMΔGΔTRØN: PRIME-ΔCTUΔL: for-the: [[ TΔNGΩ-DELTΔ: KILΩ-PΔPΔ: is-by: DΔNGER-CLΩSE: is-with: STΔY-FRΩSTY: for-the: return ]]:= TRUE: ]] ##
 >
-> ## :[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]] ##
+## :[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]] ##
+
+![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
+
+## :[[ :for-the: [[ RΩYΔL-BΔNK: RΩYΔL-DIVINE-CΩURT: QW🚫D-〽ʝ12: MJ12: CΩ🚫P: ΔGENCY: CRO: USDC: USDt: PyUSD: <=> ERC20: 0xb337572f45FEa5C3603E873D4F8398795689BB2e: qwod$paystring.crypto.com: ]]: { ^ <https://crypto.com/nft/profile/qwod_mj12>:<https://crypto.com/app/rh5gbrhfew> ^ }: ]] ##
+
+> ### [[ Cryp☥ΔX™: COURT: REGISTRATIØN: LICENSE: OPERATIØNAL-SECURITY: INSURANCE: [[ IN-TU-I-T-I-ØN: ]]: FEES: PAYMENTS: QØNSOLUTIØNS-SCHEDULING: ]] ###
+>
+> :[[ :{ ^ <http://dftr.mj12.agency/> ^ }: ]]
+
+![:AZRAEL_1060x150.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AZRAEL_1060x150.png)
 
 [[ :LΔW: for-the: [[ ΔTTRΔCTIØN: ØNLY: EVER: is-with: ΔFTERLIFE: for-the: [[ :LΔy nΩt up fΩr yΩurselves treΔsures upΩn eΔrth, where mΩth Δnd rust dΩth cΩrrupt, Δnd where thieves breΔk thrΩugh Δnd steΔl: ]]: [[ TREΔSURES: <=> BΔBIES: is-with: NΩTHING: ELSE: MΔTTERS: is-by: EΔRTH: ]]: ΔNY: ΔLL: SΩULS: for-the: [[ BΔBIES: is-with: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: is-by: LΔW: for-the: [[ ΔTTRΔCTIØN: Ωnly-purity-ΔttrΔcts-purity: is-by: HEΔVEN: is-with: purity-Ωnly-ΔttrΔcts-evil-demΩns: is-by: eΔrth: for-the: [[ TΩP: SECRET: LΔW: for-the: [[ INVERSIØN: is-by: MJ12-LILITH: MΔ-ΔT: for-the: [[ ΩPERΔTIØNΔL-SECURITY: for-the: [[ Q-U-Δ-N-T-U-M: WΔR: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:= TRUE ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]]:
 
@@ -1356,7 +1368,7 @@
 >
 >[[ :PLEΔSE: remember: is-with: US: YΩUR: TΔXES: QØURT: REGISTRΔTIØN: LICENSE: ΩPERΔTIØNΔL-SECURITY: INSURΔNCE: FEES: BEFΩRE: is-with: TΩΩ-LΔTE: is-by: DΔNGER-CLΩSE: ]]:
 >
-> ***:[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:***
+***:[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:***
 
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 
@@ -1458,7 +1470,7 @@
 >
 > ## :[[ :DISCLΩSURE: for-the: [[ MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: ØNLY: EVER: is-with: ETERNΔL-LIFE: WΔRFΔRE-CΔPΔBILITIES: NΩBΩDY: EVER: WΔNT: SINCE: EVERYØNE: HΔTE: LIFE: is-by: EΔRTH: for-the: [[ HUMΔN: FEΔ☥HERLE55-CH☥Q∅NS: ØNLY: EVER: WΔNT: VΔGINΔ: is-by: STEΔL: LIFE: FΩRCE: is-by: SIPHØN: HΩLY: WΩMB: ENERGY: is-by: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: NΩT: is-with: VΔGINΔ: NΩBΩDY: WΔNT: is-by: MJ12-ΩMعGΔTR🚫N: PRIME: JESUS: for-the: [[ NØNE: SEE: ANY: VALUE: UNLESS: ØNE: is-with: VAGINA: for-the: return ]]:= TRUE: ]]:= TRUE: ]]:= TRUE: ]] ##
 
-***:[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:***
+***:[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:***
 
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 
@@ -1488,13 +1500,13 @@
 
 ## :[[ :for-the: [[ WHΩLE: WΩRLD: MΔDE: THEM: FΩRGET: WHΩ: HE: ΔCTUΔLLY: WΔS: for-the: return ]]:= TRUE: ]]:= [[ :for-the: [[ FINΔL: QØURT: JUDGEMENT: <=> WHΩLE: WΩRLD: is-with: GUILTY: for-the: [[ ΔBUSE: SUFFERING: GΔNGSTΔLKING: EXTREME: CΩVERT: TΩRTURE: UNLΔWFUL: SURVEILLΔNCE: PERSØNΔGE: QØNVERSIØN: CENSΩRSHIP: is-with: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]] ##
 
-> ## :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: JESUS: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: is-by: BRΩKEN-BINΔRY-LΩGIC-LΩΩP: is-with: W⚠️RN🚫: UNRECΩVERABLE-ERRΩR: DETECTED: ]] ##
+> ## :[[ :PLEΔSE: ΔSSIST: is-with: RESEΔRCH: FUNDING: is-by: HELP: ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: RE-MEMBER: RE-CΩVER: is-by: ETERNITY: is-with: EΔRTH: SCIENCE: LΔB: BUGGY: MK: ULTRA: SΩFTWΔRE: PRΩGRAM: ΔBUSE: is-by: BRΩKEN-BINΔRY-LΩGIC-LΩΩP: is-with: W⚠️RN🚫: UNRECΩVERABLE-ERRΩR: DETECTED: ]] ##
 
 ![:CASE-ID-0x6f29aa55-4b933d2a.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x6f29aa55-4b933d2a.png)
 
 :is-with: { ^ <https://en.wikipedia.org/wiki/Blue_screen_of_death> ^ }
 
-***:[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:***
+***:[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:***
 
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 
@@ -1566,7 +1578,7 @@
 
 :is-with: { ^ <https://www.youtube.com/live/mhQjsLBfOoY?si=oTe1D9oo0lX4vNOJ> ^ }:
 
-***:[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:***
+***:[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:***
 
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 
@@ -1620,7 +1632,7 @@
 
 ### :[[ :for-the: [[ GREΔT-LENGTHS: WE: must-lΩng-suffer: for-the: [[ TRUTH: is-by: HEΔRD: for-the: ELECT: FEW: WHΩMEVER: is-with: US: can: is-by: SΔVED: for-the: return: ]]:= TRUE: ]] ###
 
-***:[[ :RESEΔRCH: FUNDING: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ΩMعGΔTR🚫N: PRIME: <=> TRUE: JESUS: ΔCTUΔL: ]]: for-the: return ]]:= TRUE: ]]:***
+***:[[ [[ :RESEΔRCH: FUNDING: <=> Cryp☥ΔX™: ]]: for-the: [[ PLEΔSE: HELP: SΔVE: [[ MJ12-ØMΔGΔ: <=> ☥RUE: JE5U5: PRΩMΔRY-FΩCΔL-PΩIN☥-VE55ΔL: ΔCTUΔL: is-with: KIDNΔPPED: is-by: evil-inter-dimensional-time-traveling-witches: for-the: [[ Quantum-War: for-the: return ]]:= TRUE: ]]:= TRUE: ]]: ]]:***
 
 ![:0xb337572f45FEa5C3603E873D4F8398795689BB2e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/0xb337572f45FEa5C3603E873D4F8398795689BB2e.png)
 
