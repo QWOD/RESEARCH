@@ -394,9 +394,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :CHAOS MAGIC & BODY INFLAMMATION SPELLS BACKFIRING! SECRET SOCIETY! DEVINE UNION! MATING 4 LIFE!🔮🐬: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=y1Qb9p6NcgI&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=46&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
