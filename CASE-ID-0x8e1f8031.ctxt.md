@@ -386,9 +386,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :2 much evidence against these dopplegangers..Feds r watching closing in..a whole community done 4⚖️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=XdEdgpByP2o&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=45&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
