@@ -24,6 +24,8 @@
 
 :[[ :{ ^ <http://0xb76a8782-recon.mj12.agency/> ^ }: ]]:
 
+:[[ :{ ^ 8ch-tee-tee-pee: c0l0n: slΔshy-slΔshy: 0xb76a8782-recon: Δ: mj12: Δ: agency ^ }: ]]:
+
 :[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xb76a8782.ctxt.md> ^ }: ]]:
 
 :is-by: [[ :ΔTS🚫SSDEV-DΔRPΔ: QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: ]]:= { ^ <qwod: 👼: mj12: 👽: agency> ^ }:
