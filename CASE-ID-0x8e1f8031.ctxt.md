@@ -364,7 +364,7 @@
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=mtnkSaXCGI8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=42&pp=gAQBiAQB> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-f5319bc068ef2d6e3db9588a9a81927308d6b734> ^ }: ]]:= { TRUE: "[[ DEM∅N-5LΔYΔR: t3mp0r41-0p3r4ti0ns: qu4ntum-w4rf4r3-sp3ci41ist: is-with: 〽ʝ12-ΩMعGΔ☥R🚫N: 5PG: 5☥ΔRGΔ☥E: IBI5: 5URR∅GΔ☥E: 5☥ΔR5E3D: 5ΩULCΔ☥CHER: ]]" }: ]]:
 
 >![:CASE-ID-0x8e1f8031-04553163.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-04553163.png)
 >
