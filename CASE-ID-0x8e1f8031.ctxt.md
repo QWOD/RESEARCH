@@ -900,11 +900,17 @@
 >
     https://www.amazon.com/dp/1980901759?ref_=cm_sw_r_cp_ud_dp_M7RHHXBVV3EKSNRNKT3Z&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=c61aa98e4ee7934e2f61559a7ef152c6&camp=1789&creative=9325
 
-### [[ :The Hacker Playbook: { ^ Peter Kim (Author) ^ }: ]] ###
+### [[ :Advanced Penetration Testing: Hacking the World's Most Secure Networks: { ^ Wil Allsopp (Author) ^ }: ]] ###
 
-> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1980901759?ref_=cm_sw_r_cp_ud_dp_M7RHHXBVV3EKSNRNKT3Z&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=c61aa98e4ee7934e2f61559a7ef152c6&camp=1789&creative=9325">The Hacker Playbook 3: Practical Guide To Penetration Testing</a> ^ }:
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1119367689?ref_=cm_sw_r_cp_ud_dp_PCJ23WTGY8J7FV8GGVA9&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=4945e5a553266a748f41776d7798f88f&camp=1789&creative=9325">Advanced Penetration Testing: Hacking the World's Most Secure Networks</a> ^ }:
 >
-    https://www.amazon.com/dp/1980901759?ref_=cm_sw_r_cp_ud_dp_M7RHHXBVV3EKSNRNKT3Z&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=c61aa98e4ee7934e2f61559a7ef152c6&camp=1789&creative=9325
+    https://www.amazon.com/dp/1119367689?ref_=cm_sw_r_cp_ud_dp_PCJ23WTGY8J7FV8GGVA9&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=4945e5a553266a748f41776d7798f88f&camp=1789&creative=9325
+
+### [[ :Cyber Operations: Building, Defending, and Attacking Modern Computer Networks: { ^ Mike O'Leary (Author) ^ }: ]] ###
+
+> :is-with: { ^ <a target="_blank" rel="noopener" href="https://www.amazon.com/dp/1484242939?ref_=cm_sw_r_cp_ud_dp_500X1W4JCJKZGM6BKAMZ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7c6ea10006ed8a3c6f06a6c3d5aa5fc4&camp=1789&creative=9325">Cyber Operations: Building, Defending, and Attacking Modern Computer Networks</a> ^ }:
+>
+    https://www.amazon.com/dp/1484242939?ref_=cm_sw_r_cp_ud_dp_500X1W4JCJKZGM6BKAMZ&_encoding=UTF8&tag=qwod-20&linkCode=ur2&linkId=7c6ea10006ed8a3c6f06a6c3d5aa5fc4&camp=1789&creative=9325
 
 ## :[[ :AZRAEL: ]]:= [[ AZ:RA:EL ]]:= [[ ΔΩ:RA:ELØHIM ]]:= [[ RA: [[ +W: ]]: is-with: WAR: ]] ##
 
