@@ -512,35 +512,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-b992af85.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-b992af85.png)
 >
+> ## *[[ :EVERYONE INVOLVED IS GOING TO PRISON! SOCIAL SECURITY FRAUD! INTERROGATION ROOM!🕵️📸📼🚔🚨⚖️: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Jc5ESobGWj8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=61&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Cosmic Ray & Rob Potter - Venus & ET Contact - TSP 932: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Uke7IjloEOM&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=62&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Local & state officials, along w/ a number of community groups..truth is out! Justice is finally..: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=5lJ7a_2dxew&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=63&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE FREEDOM PROJECT: ABUSE OF POWER BECAUSE OF PERSONAL VENDETTA ABOUT UR BELIEFS🫶🏿🦋... HIGH VIBES 💯: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=g901thfEYvc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=64&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
