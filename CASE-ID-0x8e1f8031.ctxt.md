@@ -432,43 +432,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-2014d164.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-2014d164.png)
 >
+> ## *[[ :WATCH THIS BEFORE YOU BUY ANY OF THESE FOODS FROM THE DOLLAR STORE [warns poisoning cases elevated]: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=KxkY-vEsSow&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=51&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS EX LOVER MADE A CRAZY ASS DEAL WITH THE DEVIL NOW THEIR BOUND TO IT & TIME'S UP 😳⏰️ 💔⚖️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=2QkZAVfRmUk&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=52&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Spike protein in many organs: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=kEE5OfiVS7o&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=53&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :FAMILY SECERTS OUT PLUS STOLE YOUR MONEY OH GEORGIA: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Ju3WPoRuOQ8&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=54&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Alpha Waves Heal The Damage In The Body, Powerful Effect, Immediate Effect, Melatonin Release: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=aqPc24Otkm0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=55&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
