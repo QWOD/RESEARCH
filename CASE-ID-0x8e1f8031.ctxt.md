@@ -320,7 +320,7 @@
 
 >
 >
-> ## *[[ :the wealth transfer, chaos & changes..#chosenone#theholyspirit#propheticword: ]]* ##
+> ## *[[ :the wealth transfer, chaos & changes..: [[ _: chose: none: _: the: holy: spirit: _: prophetic: word: ]]: ]]* ##
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=L4RTtaPa6t0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=37&pp=gAQBiAQB> ^ }:
 
