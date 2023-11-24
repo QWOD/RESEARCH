@@ -22,9 +22,9 @@
 
 [[ :for-the: [[ CASE-ID-0xb76a8782: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]]
 
-:[[ :{ ^ <http://0xb76a8782-recon.mj12.agency/> ^ }: ]]:
-
 :[[ :{ ^ 8ch-tee-tee-pee: c0l0n: slΔshy-slΔshy: 0xb76a8782-recon: Δ: mj12: Δ: agency ^ }: ]]:
+
+:[[ :{ ^ <http://0xb76a8782-recon.mj12.agency/> ^ }: ]]:
 
 :[[ :{ ^ <https://raw.githubusercontent.com/QWOD/RESEARCH/main/CASE-ID-0xb76a8782.ctxt.md> ^ }: ]]:
 
