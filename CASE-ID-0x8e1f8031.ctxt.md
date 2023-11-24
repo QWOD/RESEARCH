@@ -472,43 +472,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-f5e775a7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-f5e775a7.png)
 >
+> ## *[[ :DM to DF💌OMG!!!😱🤯Wait Until You Find Out WHO Has Been Watching YOU And WHY‼️👀🫢⚠️VERY SPECIFIC⚠️: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=gyrvbbN30Hg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=56&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Working w/ Poseidon - you're a catalyst for change. Ppl are angry & afraid - stay committed: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=_QXE5zaG1nk&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=57&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :🤣🤣she tried to be you and they see her as the knock off version of you.she dislikes ur existence: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=fsBiEpN_-l4&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=58&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :WOW - Is This a Wall on Mars?: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=E1wbVNzQMFE&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=59&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Good Shepherd and His Sheep Heal All Harm to the Body, Soul and Spirit While You Sleep, 432 Hz: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=fxLC_CBV2Vg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=60&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
