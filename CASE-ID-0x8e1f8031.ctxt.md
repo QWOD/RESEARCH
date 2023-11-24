@@ -400,35 +400,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-0941f13f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-0941f13f.png)
 >
+> ## *[[ :THEY WANTED EVERYONE TO BELIEVE A LIE SMILED IN YOUR FACE AFTER THEY HELPED SET YOU UP 🎭: [[ _: tarot: ]]: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=_hOcNCdBymg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=47&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE FREEDOM PROJECT:A FALSE CASE BACKFIRES ⚖️✌🏿 FAKE EVIDENCE WASTING THE COURTS TIME ⚖️💯🫵🏿😂JAIL 4 👹: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=qbeAvuKB1lQ&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=48&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE MOST EXALTED & MAGICAL WALKAWAY READING I’VE EVER DONE!! 👣💃🏻👑 FREE & PROTECTED BY YOUR HEART: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=z_1j-GlMmnc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=49&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Reptilian Starseed - Nigel Impey, TSP 924: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=h6SKfBoYpjk&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=50&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
