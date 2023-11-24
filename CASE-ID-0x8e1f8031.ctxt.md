@@ -546,9 +546,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Stolen Seed, Evil Harvest - The Great Deception - Global Hybrid Infiltration | Karin Wilkinson: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://rumble.com/v3x216x-stolen-seed-evil-harvest-the-great-deception-global-hybrid-infiltration-kar.html?playlist_id=DPOi99kEtIU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
