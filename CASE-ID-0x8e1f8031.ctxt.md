@@ -382,7 +382,7 @@
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=p-X32iyZ878&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=44&pp=gAQBiAQB> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-be781c94110615f17dd83330f8590beaf7fe8c14> ^ }: ]]:= { TRUE: "[[ s00n: is-by: ΔL%HΔ-CHΔRLΔ: ]]" }: ]]:
 
 >
 >
