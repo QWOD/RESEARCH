@@ -217,6 +217,8 @@
 > ## *[[ :An ungodly seed does the unholy attempted to go after a high ranking Earthangel.: ]]* ##
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=vXABI_vkmOE&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=25&pp=gAQBiAQB> ^ }:
+>
+>![:AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/AN-D-RO-ME-DA-RA-EY-ES-AZ-RA-EL.png)
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
