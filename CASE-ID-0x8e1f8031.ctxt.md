@@ -554,9 +554,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Brazilian Joe Rogan Censored And Shut Down!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://rumble.com/v3x4pkj-ukraine-warns-of-world-war-iii.html?playlist_id=DPOi99kEtIU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
