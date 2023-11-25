@@ -594,9 +594,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Wave and Flash Update 4-8-23: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Y8ri4PrddVM&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=70&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
