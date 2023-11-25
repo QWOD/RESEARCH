@@ -562,25 +562,25 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Esoteric Tarot and Audience Psychic Readings - Lotus Flower Shaman, TSP 933: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=3-CHavffrng&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=66&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :[[ _: karmic: ]]: MESSAGE FROM THE ETHERS: [[ _: tarotreading: _: family: _: love: ]]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=oJTmKvddrQg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=67&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-7357391e.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-7357391e.png)
 >
+> ## *[[ :EX STILL DOING MAGIC 2 GET U 2 TALK 2 HIM, FBI CATFISHING U SECRETLY USING MENTAL EVAL 2 DISCREDIT U: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=q9npTbHexqg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=68&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
