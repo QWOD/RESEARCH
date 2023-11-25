@@ -586,9 +586,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Creation's Purge Begins: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=hM15myWLHhs&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=69&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
