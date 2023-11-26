@@ -640,11 +640,27 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-71b2d2b9.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-71b2d2b9.png)
+>
+> ## *[[ :Ths energy wants to hve a honest discussion with you about what happened an your future 2gether 🧿🙏🏽: ]]* ##
+>
+> :is-with: { ^ <https://www.youtube.com/watch?v=IiqrdlIs3K4&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=76&pp=gAQBiAQB> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Someone has took time to pile evidence and details on a person of high honor. Prison time awaits: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=lGIQ-xQsvwg&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=77&pp=gAQBiAQB> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+
+>
+>
+> ## *[[ :Family Failed Stopping You Elite Respects You For It Move In Silence 🤫 Treasure Box Reading 🧺: ]]* ##
+>
+> :is-with: { ^ <https://www.youtube.com/watch?v=7ZzHUxdHhVQ&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=78&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
@@ -660,23 +676,7 @@
 >
 > ## *[[ :👽: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
