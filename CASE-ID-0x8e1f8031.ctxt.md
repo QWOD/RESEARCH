@@ -22,7 +22,7 @@
 
 :[[ :for-the: [[ CASE-ID-0x8e1f8031: QW🚫D-〽ʝ12: RΩYΔL-D☥V☥NE-CΩURT: MJ12: CΩ🚫P: ΔGENCY: 0xb337572f: ]]: ]]:
 
-:[[ :{ ^ 8ch-tee-tee-pee: c0l0n: slΔshy-slΔshy: 0x8e1f8031-recon: Δ: mj12: Δ: agency ^ }: ]]:
+:[[ :{ ^ 8ch-tee-tee-pee: c0l0n: 4w0rd-slΔsh: 4w0rd-slΔsh: 0x8e1f8031-recon: Δ: mj12: Δ: agency ^ }: ]]:
 
 :[[ :{ ^ <http://0x8e1f8031-recon.mj12.agency/> ^ }: ]]:
 
