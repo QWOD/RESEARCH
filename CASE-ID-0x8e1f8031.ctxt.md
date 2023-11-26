@@ -608,27 +608,27 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-e06d91b7.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-e06d91b7.png)
 >
+> ## *[[ :POWER COUPLE & LEADERS! MARRIAGE!GROWING OLD TOGETHER! EX TRYING 2 SABOTAGE IT! RESTRAINING ORDER!🚔: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=SC9VVxfpmx0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=72&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :💌Angel Says you will be shocked because God is taking away one thing |Archangel Secrets💚: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=vBf3VeHudlE&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=73&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :KARMICS 🤡 DOING DAMAGE CONTROL SO THEY DON’T GET CAUGHT UP 🤣: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=RgIpjJHeUDA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=74&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
