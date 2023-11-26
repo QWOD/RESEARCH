@@ -696,35 +696,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-e7183a84.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-e7183a84.png)
 >
+> ## *[[ :MAD YOU’RE GOING TOWARDS YOUR HAPPINESS & ACE OF CUPS! KICKED OUT OF THE HOUSE! TRYING 2 STOP U!🥂💰: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=vSlK0tJoqxA&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=83&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :GET READY TO HAVE YOUR MIND BLOWN 🤯: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=4aiC_yCSmhk&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=84&pp=gAQBiAQB> ^ }:
+
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ W⚠️RN🚫: t4r0t: is-with: n0-g3nd3r: ]]" }: ]]:
+
+>
+>
+> ## *[[ :UR OWN SIS THT STOLE UR REALESTATE HAD ACCESS 2 WATCH U N BODY SHAME U, SENT MEN 2 CATFISH N UNALIVE: ]]* ##
+>
+> :is-with: { ^ <https://www.youtube.com/watch?v=8AgF93zKmUk&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=86&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Cracking the Matrix, Archons, Interdimensional Entities - Cate Montana, TSP 929: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
-
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
-
->
->
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=It9YujA9s_M&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=87&pp=gAQBiAQB> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
