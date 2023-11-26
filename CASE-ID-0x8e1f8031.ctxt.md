@@ -664,35 +664,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x8e1f8031-7eeab80b.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x8e1f8031-7eeab80b.png)
 >
+> ## *[[ :SPENT LAST 10 YRS SABATOGING U AND LAUGHING, GOD SAID ITS YOUR TURN TO LAUGH AS HE REVEALS ALL LMAO: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=2CJiUhIlmUc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=79&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :This person is tired and want to give up attacking a Empress-High Priestess: ]]* ##
 >
-> :is-with: { ^ <> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=gRF6VmBNkKM&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=80&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Rising Star w/ ancient knowledge: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=gaqJIsN5Fm0&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=81&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :BREAKING: THEY ARE STARTING DEPOPULATION PLANS [lethal decisions & modern warfare - prepare now]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=jCgJGRLfnoc&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=82&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
