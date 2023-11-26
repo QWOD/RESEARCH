@@ -634,9 +634,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Multi Dimensional Psychic & Tarot Readings with Evidential Medium Kandrea Ellis - TSP 934: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=747bKCOvqLE&list=PL7PI5g9volJHQNAfdt3UA38mRdh73uJT5&index=75&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
