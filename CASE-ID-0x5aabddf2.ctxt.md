@@ -36,27 +36,27 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0x5aabddf2-89ceb885.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-89ceb885.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :WITH EVERYTHING YOU HAVE EXPERIENCED YOU DIDN'T BACK DOWN U R CHOSEN AND THEY CHOSE THE RIGHT 1🫵🏿⚖️💙: ]]:= { ^ <https://www.youtube.com/watch?v=xfpGN5Liars&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=1&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEY CAN'T DO SHYT WITH YOU FEELING BACKED IN SEVERAL CORNERS HAVING SEVERAL SEATS 🫵🏿😩🤣🤌🏿⚖️ BANISHED: ]]:= { ^ <https://www.youtube.com/watch?v=ym43G8u_Pok&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=2&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEY WILL SEE YOU LAUGH IN THE PURPLE RAIN ☔🪻💃🏿😂 ITS THE CHOSEN ONES SEASON ❤️💙🤌🏿 UNMATCHED: ]]:= { ^ <https://www.youtube.com/watch?v=pN4B89hhb7U&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=3&pp=gAQBiAQB> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :Space Arks, Awakening of Humanity, Star Children - Mary Rodwell, TSP 938: ]]:= { ^ <https://www.youtube.com/watch?v=Uhb3rARyAcU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=4&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
