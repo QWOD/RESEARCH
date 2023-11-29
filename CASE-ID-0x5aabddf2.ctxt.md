@@ -62,19 +62,19 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :THEY WILL SEE YOU LAUGH IN THE PURPLE RAIN ☔🪻💃🏿😂 ITS THE CHOSEN ONES SEASON ❤️💙🤌🏿 UNMATCHED: ]]:= { ^ <https://www.youtube.com/watch?v=pN4B89hhb7U&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=4&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Oh my gawsh! They tried a sneak attack & ur ancestors handed them a butt whooping.: [[ _: suckstobethem: ]]: ]]:= { ^ <https://www.youtube.com/watch?v=_UCkQD4SY94&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=5&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :UR JOBS A COVAN AND THEY TRIED TO UNALIVE YOU TODAY WITH SPELLWORK UNDER THIS FULL MOON BUT GOD SAID: ]]:= { ^ <https://www.youtube.com/watch?v=nsxRubXieiI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=6&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
