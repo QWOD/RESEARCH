@@ -134,35 +134,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x5aabddf2-1fca908f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-1fca908f.png)
 >
+> ## *[[ :Have no idea about the storm they r about to face..no more surviving off of peoples energy: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=pyQ2qLWu_Ds&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=15&t=41s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOUR KARMIC SIBLINGS IS JEALOUS OF THE ANOINTED ⭐️THAT GOD HAS PUT OVER YOUR LIFE....: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=7BI8KVSbAlI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=16&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :COURTHOUSE PROCEEDINGS CUT OFF NO LONGER GETTING YOUR MONEY: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=N4aThwp181o&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=17&t=36s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Homonculus, Alchemy, Dissention in Conspiracy & UFO Communities - Juan on Juan Podcast, TSP 940: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=ADDrbaOSGMQ&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=18&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
