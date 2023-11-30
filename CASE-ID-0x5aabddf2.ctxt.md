@@ -86,7 +86,7 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :15 Million Americans Will freeze!! Buffalo in New York suffers from (Unprecedented snow Storm..): ]]:= { ^ <https://www.youtube.com/watch?v=QSO1NNPqYw4&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=8&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
