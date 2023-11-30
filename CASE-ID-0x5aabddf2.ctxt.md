@@ -80,7 +80,7 @@
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :A Powerful Triple-Punch of Solar Storms Comes | Informal Live Forecast Briefing 29 November 2023: ]]:= { ^ <https://www.youtube.com/watch?v=qiHtkXfZnQo&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=7&t=85s&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
