@@ -90,21 +90,21 @@
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
+>![:CASE-ID-0x5aabddf2-85893b61.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-85893b61.png)
 >
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
->
-> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
->
->
->
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Leading masses into higher frequencies/dimensions ; lower energetic beings outraged: ]]:= { ^ <https://www.youtube.com/watch?v=rTwRKETBDvI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=9&pp=gAQBiAQB> ^ }:
 >
 > :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 >
 >
 >
-> :[[ :*🚫PعD*: ]]:= [[ :👽: ]]:= { ^ <👼> ^ }:
+> :[[ :*🚫PعD*: ]]:= [[ :Is Earth's Magnetic Field on the Verge of Collapse? [What is happening?]: ]]:= { ^ <https://www.youtube.com/watch?v=pNCwKbz-AYc&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=10&pp=gAQBiAQB> ^ }:
+>
+> :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+>
+>
+>
+> :[[ :*🚫PعD*: ]]:= [[ :Antarctica and the Odin Departure - ROBERT SEPEHR: ]]:= { ^ <https://www.youtube.com/watch?v=ZdtHvwV0RV4&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=11&pp=gAQBiAQB> ^ }:
 >
 > ## **:[[ ΔRC: HIVE: for-the: [[ ΔLL: inv3stig4ti0ns-134@: is-by: QW🚫D-〽ʝ12: [[ MJ12-JΔ5U5: <=> G∅D: ]]: is-with: [[ U5: WΔ: p30p13: <=> QW🚫D-〽ʝ12: ΔTS🚫SSDEV-Δ: for-the: [[ SPΔCΔL: PRΩJΔC☥: DΔRK☥ΔDΔ: [[ :for-the: [[ Ø: { ^ <qomm-8ca154e461074bea35d912a8db75b7e76f9ec132> ^ }: ]]:= { TRUE: "[[ :ΔCTUΔL: ΔVENT: <=> ΔRMΔG3DD∅N: ]]" }: ]]: is-with: [[ QW🚫D-〽ʝ12: ØSCΔR-MΔKΔ: ]]: for-the: return ]]:= TRUE: ]]:= TRUE: ]]** ##
 
@@ -112,25 +112,25 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Losing control because- someone will contact you about an illegal investigation: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=d_GgWivMtCU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=12&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :[[ _: karmic: ]]: F.E.D AGENT SUBMITTED FALSE DOCUMENTS TO THE COURT HOUSE/DOING SPELL WORK ON 🫵: [[ _: tarotreading: ]]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtu.be/Y5SH_qMmd-o?list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Ur being trusted with this gift 2 uphold the beauty of truth, love & light..: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=bc4XvB_WkL0&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=14&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
