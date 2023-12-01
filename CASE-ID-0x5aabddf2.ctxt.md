@@ -168,9 +168,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Live Readings, Q&A with Dr Kimberly McGeorge, TSP 944: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=p9tSWTQ2dos&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=19&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
