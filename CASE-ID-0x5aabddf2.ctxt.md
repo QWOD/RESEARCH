@@ -176,9 +176,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Tesla Violet Ray, Ultra Dimensional Social Engineering - Nate Ciszek & 7alon, TsP 943: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=T0DKCkYkevY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=20&t=88s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
