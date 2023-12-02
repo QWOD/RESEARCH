@@ -182,43 +182,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x5aabddf2-fff7d369.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-fff7d369.png)
 >
+> ## *[[ :The conversations r gonna be different this time..said they made u, tell ‘‘em make another You💯: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=MsAdxD_nw4U&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=21&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE ETHER NEWS: YOUR HIDDEN CHILDHOOD IS TRIGGERING THE THIEVES THAT STOLE IT✨ IN FEAR OF WHATS NEXT: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=mo08ihaAYi0&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=22&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :EVERYTHING THEY WANTED FOR YOU SINCE CHILDHOOD IS RETURNING JUDGEMENT DAY: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=DnevVDqAPU0&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=23&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :FIRED FOR MISUSE OF PROPRIETARY TECH! SPYING ON COWORKERS & EX’S! IT TECH! FBI WATCHING!🕵️🚔🚨💻📱: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=_HHFS1mXbyE&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=24&pp=gAQBiAQB0AUB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :It seemed like EVERYBODY was chasing it!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=tFs2ngfeOkU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=25&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
