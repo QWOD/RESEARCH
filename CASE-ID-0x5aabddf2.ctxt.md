@@ -280,49 +280,49 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Qasr el Sagha | Predynastic Cyclopean Temple in Egypt | Megalithomania: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=DVY08kpKn6I&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=33&t=665s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS OCCULT IS BEING INVESTIGATED FOR FRAUD .PRISON TIME AHEAD.: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=ydbOnXYebms&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=34&t=5s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The REAL God Of The BIBLE | The Most Accurate Bible Documentary You'll EVER See: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=DsUz2NS-J8g&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=35&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :You are off limits! They don't know how hard their life is going to be...you are an indigo child!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=sGN3jwO8teY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=36&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :U CAUSING A MAJOR FRENZY N THESE STREETS RUFFLING FEATHERS🤣TRIGGERED AF CAN'T EVEN HIDE DA HATE🤦🏾‍♀️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Ocb2WnomqaU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=37&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Medieval Kingdom that was Erased from History: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=muGjr7vnElY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=38&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
