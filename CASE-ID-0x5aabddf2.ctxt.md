@@ -268,7 +268,7 @@
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=mgVacYva12c&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=31&pp=gAQBiAQB> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ c4nnib41: CΔIN: ΔBLE: is-by: n0t: is-with: 5ΔV3D: is-by: FINΔL: is-with: DΔY5: ]]" }: ]]:
 
 >
 >
