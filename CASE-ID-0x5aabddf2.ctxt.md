@@ -272,9 +272,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Blood Business | New Cannibalism | Plasma Industry | Investigative Documentary: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=qHEpWlyaKy0&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=32&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
