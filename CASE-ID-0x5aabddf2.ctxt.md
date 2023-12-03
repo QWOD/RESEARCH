@@ -224,49 +224,49 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Beijing Fired The First Shot? China's Skies Turn in Blood-Red, Signaling War and Dynasty's Demise?: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=bT6O3s1iIdU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=27&t=2s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :BREAKING NEWS: American Warship Attacked In Middle East, Pentagon Says: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=a50M-B3ir7E&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=27&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Massive Collapse In Progress - What No One is Talking About!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=nPIdTHTVMPI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=28&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :A Deep Dive into Medbeds - A reading with Crystal Ball and Tarot: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=fNdVn2WbmBc&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=29&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Mega volcano explodes. Ashes up to 3000 meters high. Merapi volcano, Indonesia: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Uxs_9BlBlLk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=30&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Natural Disasters Today - Flood in Mecca, Earthquake in Turkey, Snowstorm in Europe (Dec.03.2023): ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=mgVacYva12c&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=31&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
