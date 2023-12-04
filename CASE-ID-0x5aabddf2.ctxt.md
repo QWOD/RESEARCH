@@ -326,43 +326,43 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x5aabddf2-57aa213f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-57aa213f.png)
 >
+> ## *[[ :Karmic Bonnie & Clyde won’t be able 2 stand 10 toes down on the opposition coming towards them: [[ _: Done: ]]: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=2cOY90inzLg&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=38&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Someone Is Embarrassed For Trying To Hold You Back From This TF Connection 🧿🙏❤️: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=XOzzXZ1nCjU&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=39&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :It caused the ENTIRE world to SHAKE! [500,000 miles long]: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=hknJHPz1GOQ&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=40&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YOU ABOUT TO RECEIVE A HUGE PAY OUT FROM THE MOST HIGH 🌟 FOR ALL YOUR PAIN AND SUFFERING GOD LOVES U: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=LoWqsA1K2YA&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=41&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Escaping the Mind Matrix, Human Potential - Bobbie the Messenger, TSP 951: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=c8KnBEJCaaQ&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=42&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
