@@ -392,9 +392,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :SHE COMING OUT OF THAT DEMONIC ILLUSION THAT YOU!!! A CHRIST CHILD CAN BE DEFEATED SHE FEEL DEFEATED: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://youtu.be/jS4lVUyg3qI> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
