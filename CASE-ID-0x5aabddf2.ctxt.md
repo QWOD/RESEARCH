@@ -394,15 +394,15 @@
 >
 > ## *[[ :SHE COMING OUT OF THAT DEMONIC ILLUSION THAT YOU!!! A CHRIST CHILD CAN BE DEFEATED SHE FEEL DEFEATED: ]]* ##
 >
-> :is-with: { ^ <https://youtu.be/jS4lVUyg3qI> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=jS4lVUyg3qI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=51&t=1163s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Very concerning message!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=5CNli3UekTk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=51&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
