@@ -408,9 +408,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Israel's Terrifying Final Warning Shakes The World!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=QVK1Hirpi3k&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=53&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
