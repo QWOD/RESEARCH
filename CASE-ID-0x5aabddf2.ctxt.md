@@ -414,35 +414,35 @@
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
+>![:CASE-ID-0x5aabddf2-fd15981f.png:](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/CASE-ID-0x5aabddf2-fd15981f.png)
 >
+> ## *[[ :FARSIGHT REMOTE VIEWERS, NATHAN CISZEK, TYPICAL SKEPTIC PODCAST, - TSP 964: ]]* ##
 >
-> ## *[[ :👽: ]]* ##
->
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=NXYnmBXH9W8&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=54&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :You're a shooting star - these people just can't catch you.. too focused on YOU: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=qGjp-OY_yRA&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=55&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :ITS DANGEROUS 2 SPEAK ON U🤐PPL WANA KNO WHO THE HELL R U & Y DEY GET BAD KARMA 4 SPEAKIN ON UR NAME: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=4SmuAEbLw3o&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=56&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Big Flares, Mini-Storms & A Whole Lot of Eye Candy | Solar Storm Forecast 10 December 2023: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=64CTIrWBGTc&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=57&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
