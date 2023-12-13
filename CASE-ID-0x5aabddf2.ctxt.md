@@ -448,49 +448,49 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The Restoration of Your Character Is Important To Source, Your Legacy Is Your Compassionate Service: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=QMk_ubfagZY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=58&t=979s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Fragmented? No more..: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=xOq958XVnbk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=59&t=266s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :YEA YOU BACK REINCARNATED N MFS SHOULD BE VERY AFRAID!! YOU'RE A LIVING LEGEND... PERIOD👑💅🏾💪🏾: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=o-_jqjKf1ao&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=60&t=501s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Fake spiritualist played w/ ur name & taking a major loss..going 2 prison 4 knowingly spreading STDs: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=XbcfszJb_mM&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=61&t=38s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :U are a MYSTERY, unsolved..they want 2 know HOW u did it.. A True Love story🥰😍: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=dmmpFnGQgOI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=62&t=52s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Entire city going down 4 organized crimes against earth angels..a story that will last 4 lifetimes: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=zTAILricKbM&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=63&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
