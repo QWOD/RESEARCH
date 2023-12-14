@@ -496,33 +496,33 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :How 2024 is The End of The World? This Truth Will Shock You! by ✨Dolores Cannon: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=GX3asHzxIZo&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=64&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THIS HIGH RANKED OFFICIAL WAS DEMOTED FOR WITHHOLDING YOUR INHERITANCE & T.M.H STEPPED IN 💥🧿 💰: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=s04ngLZ69Hk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=65&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :karmic female got news that an official person has been removed from job: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=rMusZoxshnY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=66&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Avangard Hypersonic Missiles unveiled: Is Russia ready for WW3?: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=6AUSV58zveI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=67&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
