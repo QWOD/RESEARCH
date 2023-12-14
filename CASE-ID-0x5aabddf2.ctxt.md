@@ -536,17 +536,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE TYPE OF POWER U POSSESS IS BEYOND PPL UNDERSTANDING IF THEY WAS SMART THEY'LL STAND DOWN💅🏾😘: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=E00VUNQvmwI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=69&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Apocalyptic trumpets sound in the sky, they recorded it. Not recommended for nervous people.: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=KA30Koeh0m4&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=70&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
