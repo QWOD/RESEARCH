@@ -528,9 +528,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :A New Earth is COMING! Prepare Yourself for 2024: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=4tSFmzLwmkA&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=68&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
