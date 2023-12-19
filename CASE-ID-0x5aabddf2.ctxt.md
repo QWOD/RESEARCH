@@ -552,17 +552,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Jordan Maxwell - The Forbidden knowledge: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=5_ThFT5fKPg&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=69&t=498s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE FREEDOM PROJECT EXPERIENCE: YOU WERE KIDNAPPED AND HIDDEN THEY KNOW YOU KNOW ⚖️💪🏿2 JAIL THEY GO👺: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=Y-w_sVPj-DQ&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=70&t=628s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
