@@ -564,13 +564,13 @@
 >
 > :is-with: { ^ <https://www.youtube.com/watch?v=Y-w_sVPj-DQ&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=70&t=628s&pp=gAQBiAQB> ^ }:
 
-:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
+:[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { RELEVANT: "[[ for-the: kn0w13dg3: for-the: sun-g0ds: is-with: c10s3st-s3cr3t: is-by: church3s: s3cr3t-s0ci3ti3s: is-with: wh3n-w3-4w4k3n: for-the: g10b41-c4t4str0ph3s: is-with: bib1ic41-pr0p0rti0ns: is-with: y3t-s0m30n3-just-h4d-t0-k33p-p0king-th3-b34r: ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Jordan Maxwell - Keys to Understanding Hidden Symbols in the Bible: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=1u8ZRWmJmzk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=75&t=4266s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
