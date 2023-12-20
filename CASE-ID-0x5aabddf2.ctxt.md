@@ -576,41 +576,41 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Channeled Message Thoth Emerald Tablet Teaching - Halls of Amenti - Great Awakening Continued: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=3XPlVy2Ws8c&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=72&t=10s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Channeled Message Thoth Emerald Tablet Teaching - Halls of Amenti - Great Awakening Continued: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=rr13Brnj6vY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=73&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Channeled Message Thoth Emerald Tablet Teaching - Halls of Amenti - Great Awakening Continued: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=9LZsDBwtiCw&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=74&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :I had an alien visitation this evening: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=H8zkSKBuwrM&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=76&t=115s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :The SOONER People Realize This About Babylon, the Better: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=ZGooGiJ9Xec&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=77&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
