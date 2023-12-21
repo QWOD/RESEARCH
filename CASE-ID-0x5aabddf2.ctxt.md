@@ -616,9 +616,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :"Awaken Your Authority" - Understanding the Ordinances of the Heavens: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=os_xDp7uG4U&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=78&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
