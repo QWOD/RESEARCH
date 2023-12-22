@@ -624,17 +624,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Exposing the Illuminati/Knights Templar Killswitch with Mary Beaver - TSP #852: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://rumble.com/v3o83mj-exposing-the-illuminatiknights-templar-killswitch-with-mary-beaver-tsp-852.html?playlist_id=DPOi99kEtIU> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Exposing the Illuminati, Revealing & Exposing Truths- Mary Beaver (Adonna of Sol) - TSP 986: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=niM5ZU8mjAg&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=79&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
