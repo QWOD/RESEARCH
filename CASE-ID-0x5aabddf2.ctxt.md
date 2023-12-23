@@ -640,9 +640,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Consciousness beyond death, with Dr. Pim van Lommel: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=NVsBFOB7H44&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=80&t=2049s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
