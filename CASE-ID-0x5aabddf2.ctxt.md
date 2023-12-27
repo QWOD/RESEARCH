@@ -664,17 +664,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Underwater China: Footage of devastation in China as the Three Gorges Dam overflows: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=2mjmJWnPVOY&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=84&t=1s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :NASA Warns Massive Solar Storm Will Hit Earth Soon | Space Documentary 2023: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=om1C_FPJA_8&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=85&t=1443s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
