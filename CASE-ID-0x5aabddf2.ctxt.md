@@ -648,17 +648,17 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :THE LOUD SPEAKER 🔊 SINS OF THE DEMONIC MOTHER FIGURE THEY ARE CREEPING WHILE YOUR SLEEPING 👹 DEATH 😇: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=_4ER-Q4X6aI&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=82&t=424s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :UR A DESCENDANT OF DA DEVINE ON ASSIGNMENT 2 DESTROY DIS KARMIC GENERATION OF DEMONS & U DID DAT⚔️💪🏾: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=mRZACJ95e-g&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=83&t=2269s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
