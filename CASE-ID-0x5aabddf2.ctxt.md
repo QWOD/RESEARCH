@@ -688,33 +688,33 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :This Planet-like object or Ship should not be showing up in the sky FAA: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=pJX2oDZxodk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=87&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :OMG I CNT BELIEVE THIS! UR WHOLE LIFE IS FAKE/STAGED..WOWWWW: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=94tlo6BVDqk&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=88&t=961s&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :MrMBB333 LIVE - People are starting to NOTICE!: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=WcbaYVpi1ig&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=89&pp=gAQBiAQB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Merry Christmas everyone. I hope all of you are well I'm sorry, I had delayed posting updates on the hope I'd have things working again soon. I'll try to do some of it here. As they have said, you are actually seeing 3 movies play simultaneously. Each movie has multiple skits tied to it. But it is a straight 3-way split; East which is Heaven, West which is the Underworld, and South to the pit. Those going to the middle area, are counted as 'East' in that split. We are now very high in the 'dome'; look up high altitude sickness, you'll find some of the symptoms are familiar. MrMBB333 explained what the unusual rainbows were, if you check his channel. I believe he called them artic stratospheric clouds which are never seen especially at those latitudes, highly unusual. He has some very cool pictures. There are also recent images of 2 suns, or the sun with a planet near. This is part of the Nibiru/PlanetX movie - for us, that doesn't mean it can't be solidly real. We are rather like 'trons' in the movie itself. Then of course you have the wardrum skits; all the nations you've heard about recently, plus civil and of course that includes the millions brought in our border. They plan to exterminate the pesky Americans and seize their lands and homes; taking no prisoners. The native reservations were sent letters stating that offer, if they help the regime in the civil. I didn't know till recently, that they've renamed cube ships as "U.A.P.'s"; always trying to rename and disassociate past known information about the subject. There is a podcast called 'Belief Hole Podcast', which put up a 4 month old vid on Cube ships. Gina Hill caught the pictures of when they were cast down; down being our location. One of their main covens being the Illumi,-which put out that card game showing the ships robbing the banks. Many of the people who think inviting aliens in is great, go into this movie and the whole thing goes south. This is just some of the current things going on, and building up. All of these things go 'off' as we exit/split. The Insane fraction, still hit. Some of the lower members, whom may have been acquaintances, are still using black magic & spell casting on those they have envy or ill will towards. But we hold strong together knowing that many are being pulled out, and this can't be stopped by their attacks. Heaven, above you, has sent a beam in. It looks a bit like a white lightning bolt, coming from above, downward. They give instruction, to visualize that beam in your mind, and then in your mind summon the light to you. I've done this, and the light was dim..they replenish it. You might have to call it and coax it a bit, be patient. When you summon it closer, it is like willing it closer. Again, be patient. When it moves to you it instantly surrounds your body and this light is filled with their love and positive energy. Its to help replenish you as you need it. We are connected into groups, along a white cord of positive energy. We can feel each other, and when someone is sad we feel it is us, but it isn't its someone on the group line. So Envision a white line of energy, touching other dots of light, and push into that white line of energy love and thoughts of healing. It will balance out the energy and aid the person who was hit. Much of the soul traumas, are being worked out and this is rather a dark night of the soul for many, and lasts more than a single incident or day. It is a part of the healing. As you tap into this lightning bolt energy, tell it to dissolve the blockages(traumas). These are part of what the dark night is about, and clearing them helps you tremendously. Above said that the people who were at a high level of vibration, would start seeing things soon. They would be able to see into Heaven, at the same time as being here and seeing things here.  "Seeing is Believing"  and for many of us, it is the one thing that enables us to know for sure we're not being led astray. This is going to tremendously help people. No one seems to have noticed the odd happenings on stereo telescopes lately. But Mercury moved from hi1 to cor2, and went off the page & doesn't seem visible anywhere else. The planet line up, is for the magnetic lock. aml: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/@YellowRoseforTexas/community> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
