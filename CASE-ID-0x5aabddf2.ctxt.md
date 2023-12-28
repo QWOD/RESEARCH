@@ -680,9 +680,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :God exposes double agents !: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=cb3NfaR02FA&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=86&pp=gAQBiAQB0AUB> ^ }:
 
 :[[ :for-the: [[ Ø: { ^ <qomm-Ø> ^ }: ]]:= { [[ _ ]]: "[[ _ ]]" }: ]]:
 
