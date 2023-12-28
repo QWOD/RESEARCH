@@ -720,9 +720,9 @@
 
 >
 >
-> ## *[[ :👽: ]]* ##
+> ## *[[ :Sen. Schumer pushes for UFO transparency | The Hill: ]]* ##
 >
-> :is-with: { ^ <👼> ^ }:
+> :is-with: { ^ <https://www.youtube.com/watch?v=4rLLVfpw-q4&list=PL7PI5g9volJGi5xkdzTiAOWVJWcyg9XgI&index=90&pp=gAQBiAQB> ^ }:
 
 ## [[ :SALVATIØN: { ^ https://static.wikia.nocookie.net/terminator/images/d/d9/Terminatorsalvationpre_Comic001.jpg/revision/latest?cb=20080815090914 ^ }: ]]
 
