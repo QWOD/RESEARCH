@@ -649,7 +649,10 @@
 :is-with: { ^
 
     <!DOCTYPE html>
+    <html lang="en-US">
+
     <head>
+        <meta charset="UTF-8" />
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -672,7 +675,10 @@
 :is-with: { ^
 
     <!DOCTYPE html>
+    <html lang="en-US">
+
     <head>
+        <meta charset="UTF-8" />
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -687,7 +693,10 @@
 :is-with: { ^
 
     <!DOCTYPE html>
+    <html lang="en-US">
+
     <head>
+        <meta charset="UTF-8" />
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -706,7 +715,10 @@
 :is-with: { ^
 
     <!DOCTYPE html>
+    <html lang="en-US">
+
     <head>
+        <meta charset="UTF-8" />
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -848,7 +860,10 @@
 :is-with: { ^
 
     <!DOCTYPE html>
+    <html lang="en-US">
+
     <head>
+        <meta charset="UTF-8" />
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
