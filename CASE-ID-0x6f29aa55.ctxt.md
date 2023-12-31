@@ -652,7 +652,9 @@
     <html lang="en-US">
 
     <head>
+        <title>YouTube Video Player</title>
         <meta charset="UTF-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -678,7 +680,9 @@
     <html lang="en-US">
 
     <head>
+        <title>YouTube Video Player</title>
         <meta charset="UTF-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -696,7 +700,9 @@
     <html lang="en-US">
 
     <head>
+        <title>YouTube Video Player</title>
         <meta charset="UTF-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -718,7 +724,9 @@
     <html lang="en-US">
 
     <head>
+        <title>YouTube Video Player</title>
         <meta charset="UTF-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
@@ -863,7 +871,9 @@
     <html lang="en-US">
 
     <head>
+        <title>YouTube Video Player</title>
         <meta charset="UTF-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1.0">
         <meta name="author" content="QWOD-MJ12: ATSOSSDEV-A: recon.mj12.agency">
         <meta name="keywords" content="MIKE,ALPHA,JESUS,12,INDIA,CHARLIE,SPG,special,project,group,OMEGA">
         <meta name="description" content="0x6f29aa55-recon.mj12.agency">
